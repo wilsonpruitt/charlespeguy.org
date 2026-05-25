@@ -1,125 +1,128 @@
-# Next-session brief — Jean-Christophe OCR repair + stub-translation cleanup
+# Next-session brief — Repair the 44 empty/missing FR cahier pieces
 
-Drafted 2026-05-25 at the end of the launch session. Drop this whole file into a fresh `/clear`'d Claude Code session inside `~/charlespeguy.org/` to pick up the work.
+Drafted 2026-05-25 after the audit pass. Drop this file into a fresh `/clear`'d Claude Code session inside `~/charlespeguy.org/` to pick up the work.
 
 ---
 
 ## Context (read first)
 
-Last session shipped charlespeguy.org to Vercel (live at `https://charlespeguy-org.vercel.app`; custom domain DNS pending). The site has **1,716 static pages**, fully bilingual (EN/FR with auto-detect + toggle), built from `~/charlespeguy.org/` (Astro 6 + content collections).
+The site went live 2026-05-24 at https://charlespeguy-org.vercel.app (custom domain DNS pending). 1,716 static pages, fully bilingual.
 
-Read these memories in order:
-1. `~/.claude/projects/-Users-wilsonpruitt/memory/project_charlespeguy-site-direction.md` — design decisions, page tree, known cleanup
-2. `~/.claude/projects/-Users-wilsonpruitt/memory/peguy-translation-gaps.md` — OCR pipeline conventions, vision-OCR workflow, leaf-range corrections
-3. `~/charlespeguy.com/PROGRESS.md` §"2026-05-24 OCR wave summary" — how today's parallel-agent OCR for s09-c14 worked
+The previous brief (`NEXT-SESSION.md` before this rewrite) framed the problem as "11 cahiers of Jean-Christophe need vision OCR." That was wrong. **The full audit found 86 pieces across 76 cahiers with data problems**, not 11.
 
-The PROGRESS.md section is the playbook: vision-OCR'd 140 leaves for s09-c14 via 5 parallel subagents in ~10 minutes, with zero `[?]` flags, by giving each agent a 28-leaf chunk and a clear prompt that included "ignore right-margin spine bleed-through fragments." Same pattern applies here.
+Read these in order:
+1. This file.
+2. `audit.md` (in repo root) — flag-by-flag list of every broken piece.
+3. `audit.csv` — same data, machine-readable.
+4. `~/.claude/projects/-Users-wilsonpruitt/memory/project_charlespeguy-site-direction.md`
+5. `~/.claude/projects/-Users-wilsonpruitt/memory/peguy-translation-gaps.md` — OCR pipeline conventions, vision-OCR workflow.
 
----
+## Diagnosis already done
 
-## Problem 1 — Eleven Jean-Christophe cahiers have garbled French OCR
+- The `.com` source (`~/charlespeguy.com/src/content/texts/<slug>.md`) is the broken layer. 33 of those files are marked `status: "placeholder"` and contain raw Tesseract garbage; the `.org` migration faithfully copied them. 20 other cahiers have no `.com` source file at all.
+- The `.com` repo is being wound down. Fixes should land **in `.org` directly**, not via the migration script.
+- Author miscredits are also in the `.com` YAML — e.g. s12-c06 *Les Milliet V* is wrongly attributed to Péguy in both `.com` and `.org`.
 
-The migration pulled FR text from `~/charlespeguy.com/src/content/texts/<slug>.md`, where those files have Tesseract-image-bleed garbage instead of clean text. The original Foire-2 (s09-c14) had the same problem; we vision-OCR'd it through earlier today and it now reads clean.
+## What was shipped in the prior session (commit `87b7067`)
 
-The remaining 11 affected cahiers:
+- `scripts/denoise-fr-pieces.py` — idempotent OCR-noise stripper. Already run across all 269 FR files; preserves prose, removes only scan garbage. Re-run anytime, safe.
+- `scripts/audit-pieces.py` — emits `audit.csv` + `audit.md`. Re-run after each repair to confirm progress.
+- 174,158 lines of OCR noise removed; build passes (8m 25s, 1,716 pages).
 
-| Slug   | Installment                       | Catalog label | Archive volume |
-|--------|------------------------------------|---------------|----------------|
-| s05-c09 | I. L'aube                          | V-9           | s5cahiersdelaquinz06pg |
-| s06-c08 | III. L'adolescent                  | VI-8          | nscahiersdelaqui08pg   |
-| s08-c04 | IV. La révolte. 1. Sables mouvants | VIII-4        | s8cahiersdelaquinz04pg |
-| s08-c06 | IV. La révolte. 2. L'enlisement    | VIII-6        | s8cahiersdelaquinz05pg |
-| s08-c09 | IV. La révolte. 3. La délivrance   | VIII-9        | s8cahiersdelaquinz05pg |
-| s09-c13 | À Paris. I. La foire sur la Place. 1 | IX-13       | s9cahiersdelaqui13pg   |
-| s09-c15 | À Paris. Antoinette                | IX-15         | s9cahiersdelaqui15pg   |
-| s10-c09 | À Paris. II. Dans la maison. 1     | X-9           | s10cahiersdelaqui09pg  |
-| s10-c10 | À Paris. II. Dans la maison. 2     | X-10          | s10cahiersdelaqui09pg  |
-| s14-c02 | La nouvelle journée. 1             | XIV-2         | s14cahiersdelaqui01pg  |
-| s14-c03 | La nouvelle journée. 2             | XIV-3         | s14cahiersdelaqui01pg  |
+## This session's job: 44 EMPTY_FR + NO_FR pieces
 
-(Already clean: s05-c10, s09-c14, s11-c07, s11-c08, s13-c05, s13-c06.)
+Concretely, the highest-priority work is:
 
-**Each cahier is ~150–300 leaves.** Total roughly 2,200 leaves of vision OCR.
+### 27 EMPTY_FR (file exists, body is pure garbage — denoise produced 0 prose)
 
-### Repair workflow per cahier (replicating today's s09-c14 success)
-
-1. **Re-download leaves** from Archive.org. `~/charlespeguy.com/raw/ocr-images/` was deleted earlier today; need to bring images back. Use `npx tsx scripts/redownload-leaves.ts <slug>` from `~/charlespeguy.com/`. The script's leaf-ranges for these 11 cahiers should be correct (verified during today's discoveries) — but probe leaves at the start + end to confirm before kicking off the OCR.
-2. **Classify leaves** (sparse/content/blank) via `scripts/classify-leaves.ts <slug>` if it exists; otherwise judge by file size (<100KB blank, 100–170KB sparse, >170KB content).
-3. **Vision-OCR in chunks of ~28 leaves per subagent, dispatched in parallel**. 5 agents at a time worked well today on this 8 GB Mac. Each agent prompt should include the standard guards:
-   - Page markers `[leaf NNNN] [p. N]` on their own line
-   - Faithful transcription, NO paraphrase, `[?]` for illegibles
-   - Ignore right-margin spine bleed-through (the key fix that worked for s09-c14)
-   - Skip blank/binding leaves
-   - Preserve italic markup as `*asterisks*`
-4. **Splice chunks** into `~/charlespeguy.com/raw/<slug>-ocr.txt` with a clean header.
-5. **Reconcile into the .org repo**: write/overwrite `~/charlespeguy.org/src/content/pieces/<slug>--<piece-slug>.fr.md` with the new body. Match the existing frontmatter format (see any existing piece for shape). Word count + `ocrSource: "Archive.org vision OCR 2026-05-25"`.
-
-### Pace + budget
-
-Today's 9 cahiers OCR'd took ~5 hours wall-clock with parallel agents. 11 more cahiers + downloading + reconciliation = full session, possibly two. Each cahier's OCR can run as 5 parallel agents (~28 leaves × 5 = 140 leaves per wave); larger cahiers need 2 waves.
-
-Order suggestion: smallest first to build momentum (Antoinette s09-c15 is shortest), biggest last (Foire 1 s09-c13 and Adolescent s06-c08 are largest).
-
----
-
-## Problem 2 — Stub English translations pointing at sibling cahiers
-
-When the original translator hit a work that ran across two cahiers (like *La Nouvelle Journée* across s14-c02 + s14-c03), they put the whole translation at the first cahier's URL and left the second as a 2-sentence pointer.
-
-**Confirmed instance**: s14-c03 EN body says only:
-
-> The Wikisource source for *La Nouvelle Journée* presents Cahiers s14-c02 and s14-c03 as a single continuous text. The complete English translation of both cahiers is published at s14-c02.
-
-**Probable other instances** — pairs where one cahier hosts the full translation and the next has a stub:
-
-| Pair | Work | Stub at... |
+| Cahier+piece | Title | Author |
 |---|---|---|
-| s09-c13 + s09-c14 | *La foire sur la Place* 1+2 | maybe s09-c14? (we did our own translation today; check) |
-| s10-c09 + s10-c10 | *Dans la maison* 1+2 | unknown |
-| s11-c07 + s11-c08 | *La fin du voyage* 1+2 | unknown |
-| s13-c05 + s13-c06 | *Le buisson ardent* 1+2 | unknown |
-| s14-c02 + s14-c03 | *La nouvelle journée* 1+2 | **confirmed: s14-c03 is the stub** |
+| s02-c07 administration | Administration | charles-peguy |
+| s02-c14 courrier-de-chine | Courrier de Chine | lionel-landry |
+| s03-c02 les-universites-populaires | Les Universités Populaires | charles-guieysse |
+| s03-c04 etudes-socialistes | Études Socialistes | jean-jaures |
+| s05-c07 moines-de-l-athos | Moines de l'Athos | les Tharaud |
+| s05-c10 le-matin | Le matin (Jean-Christophe II) | romain-rolland |
+| s06-c03 chad-gadya | Chad Gadya! | israel-zangwill |
+| s06-c04 l-enseignement-primaire-a-madagascar | L'enseignement primaire à Madagascar | raoul-allier |
+| s06-c13 les-evenements-actuels-en-russie | Les événements actuels en Russie | leon-tolstoi |
+| s07-c05 le-22-janvier | Le 22 janvier | etienne-avenard |
+| s07-c07 les-suppliants | Les suppliants | francois-porche |
+| s07-c08 et-vous-riez | Et vous riez | andre-spire |
+| s08-c02 l-abdication | L'abdication | romain-rolland |
+| s08-c07 les-sonnets-de-shakespeare-i | Les sonnets de Shakespeare. I | marie-garnier |
+| s08-c15 les-sonnets-de-shakespeare | Les sonnets de Shakespeare | marie-garnier |
+| s10-c04 vin-de-champagne | Vin de Champagne | pierre-hamp |
+| s10-c11 au-large | Au large | maxime-vuillaume |
+| s11-c06 le-mystere-de-la-charite-de-jeanne-d-arc | Le mystère de la charité de Jeanne d'Arc | charles-peguy |
+| s11-c09 dernier-cahier | Dernier cahier | maxime-vuillaume |
+| s13-c12 le-mystere-des-saints-innocents | Le mystère des saints Innocents | charles-peguy |
+| s14-c04 la-chute | La chute | julien-benda |
+| s14-c08 les-chants-de-l-ame-reveillee | Les chants de l'âme réveillée | rene-salome |
+| s14-c11 mes-cahiers-rouges | Mes cahiers rouges IX | maxime-vuillaume |
+| s14-c11 ix | IX (mis-split — duplicate of above) | maxime-vuillaume |
+| s14-c11 lettres-et-temoignages | Lettres et témoignages | maxime-vuillaume |
+| s15-c10 nous | Nous | francois-porche |
+| (+ the 4 stub-split files we identified: s06-c08 l-adolescent, s08-c04/06/09 la-revolte-*, s10-c09/10 dans-la-maison-*) |
 
-### Cleanup approach
+### 17 NO_FR (cahier declares the piece but no FR file exists at all)
 
-For each affected pair:
-1. Find which cahier hosts the full translation.
-2. Decide policy:
-   - **Option A**: Split the long translation in half at the print boundary (page where the original cahier ended) and put each half at its corresponding URL.
-   - **Option B**: Keep the full translation at the first cahier's URL, but make the second cahier's piece page a graceful "continuation" view — not just a sentence, but a proper UI that says "This text continues in the previous cahier; read it here" with a strong link back, and link forward to the cahier-table that shows the boundary.
+Mostly Milliet/Rolland/Péguy installments where `.com` only ever had an EN translation, or where the cahier JSON was generated from EN frontmatter. Same Archive.org volumes as the EMPTY_FR list — many overlap.
 
-Wilson's likely preference: **Option A** (per-cahier URLs that match the periodical-as-printed framing). Splitting requires finding the page boundary in the EN text that corresponds to the cahier boundary — which means cross-referencing the FR page-numbers in the OCR'd source (so this depends on **Problem 1** being resolved first, since the FR text is currently garbage for most of these).
+## Workflow per cahier (this is the proven pattern)
 
-For pairs where both halves were translated separately today (s09-c14 was translated in this session; check whether s09-c13 has a clean EN), no action needed.
+1. **Find the Archive.org volume + leaf range.** Probe with `curl -s https://archive.org/metadata/<volume_id>`. Many leaf ranges are already in `~/charlespeguy.com/scripts/redownload-leaves.ts`. For ones not there, find the half-title page and colophon manually before kicking off OCR.
+2. **Download leaves.** `~/charlespeguy.com/raw/ocr-images/` was deleted earlier this week; re-download via `npx tsx scripts/redownload-leaves.ts <slug>` (in the `.com` repo) or with a small curl script (the URL pattern is `https://iiif.archive.org/image/iiif/3/<id>%2F<id>_jp2.zip%2F<id>_jp2%2F<id>_NNNN.jp2/full/1200,/0/default.jpg`).
+3. **Vision-OCR in chunks of ~28 leaves × 5 parallel subagents** (per `peguy-translation-gaps.md`). Each prompt must include: ignore right-margin spine bleed-through; skip blank/binding leaves; preserve italic markup as `*asterisks*`; `[?]` for illegibles; one `[leaf NNNN] [p. N]` marker per leaf.
+4. **Splice chunks** into a clean `~/charlespeguy.com/raw/<slug>-ocr.txt` (or write directly into `.org`).
+5. **Write the FR piece file** at `~/charlespeguy.org/src/content/pieces/<cahier>--<piece>.fr.md` with proper frontmatter:
+   ```yaml
+   ---
+   cahier: <cahier>
+   pieceSlug: <piece>
+   lang: fr
+   title: <title>
+   author: <author-slug>
+   isAvertissement: false
+   wordCount: <count>
+   ocrSource: "Archive.org vision OCR 2026-MM-DD"
+   ---
+   ```
+6. **Re-run the audit.** `python3 scripts/audit-pieces.py` — flag count for EMPTY_FR / NO_FR should drop.
 
----
+## Pace + budget
 
-## Problem 3 — Other low-priority cleanup (do if there's time)
+The 9 cahiers in last week's wave took ~5 hours wall-clock with 5 parallel agents. 44 cahiers is roughly **4–6 full sessions** at that pace. Prioritize:
 
-- **~23 remaining stub author bios** for minor single-piece contributors. Honest-stub treatment is acceptable; only fill in if you have real biographical info.
-- **Piece-slug inconsistency**: some pieces have EN-slugified slugs (e.g. `the-milliets-i-up-to-the-threshold-of-exile`) because migration picked from EN frontmatter. Cosmetic; routes correctly. If you want consistency, rename to French-slug everywhere — touch the cahier JSON pieces array AND the piece MD files AND any `works/*.md` parts arrays that reference them.
-- **Multi-author pieces** show only primary author (schema is `author: reference('authors')` single ref). If you want to support multi-author rendering properly, refactor schema to `authors: array<reference>` + update templates.
-- **DNS for charlespeguy.org**: still pending. Cloudflare A-record at `76.76.21.21` (DNS-only, not proxied) and CNAME `www → cname.vercel-dns.com`. Verify Vercel email confirmation once propagated.
-- **Custom 404 page** — currently Vercel's default. Add `src/pages/404.astro` with the site's restraint.
+1. **Round 1** — Jean-Christophe gaps (s05-c10, s06-c08, s08-c04/06/09, s10-c09/10, s11-c07/08): the work most likely to be visited. **9 cahiers.**
+2. **Round 2** — Péguy's own missing prose (s11-c06 Mystère de Jeanne d'Arc, s13-c12 Saints Innocents, s12-c10 Œuvres choisies postface): canonical Péguy. **3 cahiers.**
+3. **Round 3** — Vuillaume *Mes cahiers rouges* (s10-c11, s11-c09, s14-c11 ×3): 1871 Commune memoir, a coherent body. **5 cahiers.**
+4. **Round 4** — Milliet missing FR (s11-c13, s11-c14, s12-c10 les-milliet, s13-c07): bilingual completion. **4 cahiers.**
+5. **Round 5** — orphans (Allier, Garnier sonnets, Salomé chants, Spire, Avenard, Hamp, Porché, Benda, Delahache exode, Zangwill, Tolstoy 1905, Jaurès Études Socialistes, etc.). **~20 cahiers.**
 
----
+## Quick wins (do these first, ~30–45 min)
 
-## How to know you're done
+Before the OCR push, knock out:
 
-- `~/charlespeguy.com/raw/<slug>-ocr.txt` exists and is clean (no Tesseract garbage) for all 11 cahiers above.
-- `~/charlespeguy.org/src/content/pieces/<slug>--<piece-slug>.fr.md` for each of the 11 cahiers contains the new clean FR text.
-- Build is green: `cd ~/charlespeguy.org && NODE_OPTIONS="--max-old-space-size=2048" npx astro build`.
-- Spot-check: open `/cahiers/s14-c03/<piece>/fr` in the dev server (`npm run dev`) and confirm the text reads as Rolland prose, not garbled OCR.
-- Stub-English pairs identified and resolved (split or graceful continuation, your choice).
-- Deploy: `npx vercel deploy --prod --yes`.
-- Update `~/.claude/projects/-Users-wilsonpruitt/memory/project_charlespeguy-site-direction.md` "Cleanup landed" section with the new OCR repair.
+1. **s12-c06 author miscredit.** Audit's only confirmed real miscredit. Open `src/data/cahiers/s12-c06.json` and `src/content/pieces/s12-c06--les-milliet-v-jours-heureux.{fr,en}.md`; change `author: charles-peguy` → `paul-milliet`. Verify Paul Milliet author file exists (`src/content/authors/paul-milliet.md`).
+2. **Verify the 4 other AUTHOR_MISMATCH** (audit.md AUTHOR_MISMATCH section) — most are likely OK (Suarès *on* Tolstoy, Péguy *on* Milliets). Document the call.
+3. **Tune the denoise heuristic** if you hit prose lines that got stripped. The heuristic is in `scripts/denoise-fr-pieces.py:is_noise`; rerun safely (idempotent).
 
----
+## How to know you're done with the session
+
+- `python3 scripts/audit-pieces.py` shows fewer EMPTY_FR + NO_FR than 44.
+- `NODE_OPTIONS="--max-old-space-size=2048" npx astro build` passes.
+- Spot-check at least one repaired piece in dev (`npm run dev`).
+- `npx vercel deploy --prod --yes` if you want it live.
+- `git push` to `github.com/wilsonpruitt/charlespeguy.org` (private, set up 2026-05-25).
+- Update `~/.claude/projects/-Users-wilsonpruitt/memory/project_charlespeguy-site-direction.md` with what you accomplished.
 
 ## Don't forget
 
-- 8 GB RAM Mac — don't launch more than 5 parallel vision-OCR agents.
-- Per-day vision-OCR cap was lifted today; cost-aware but no hard cap.
-- Reconciliation pattern is in `~/charlespeguy.org/scripts/reconcile-today.py` (idempotent).
-- The s09-c14 vision-OCR-repair full transcript is in today's session memory if you want the exact prompt template — search `peguy-translation-gaps.md` for the `s09-c14 vision-OCR repair` block.
-- Commit messages should end with the Claude co-author line.
+- 8 GB RAM Mac — max 5 parallel vision-OCR agents at a time.
+- The denoise script is idempotent and safe to rerun.
+- Per `feedback_acta-usage.md`: cap subagents at 6 ever; 5 is comfortable.
+- All paths in `audit.csv` are relative to `~/charlespeguy.org/`.
+- Repo is now on GitHub (private). `gh repo view wilsonpruitt/charlespeguy.org`.
+- Cloudflare DNS for charlespeguy.org still pending: A `76.76.21.21` (DNS-only) + CNAME `www → cname.vercel-dns.com`.
+- Commit messages should end with the Claude co-author trailer.
