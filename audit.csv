@@ -59,7 +59,7 @@ s03-c02,vraiment-vrai,Vraiment vrai,charles-peguy,65,0.89,19,0.83,
 s03-c02,les-universites-populaires,Les Universités Populaires,charles-guieysse,0,0.00,206,0.97,EMPTY_FR
 s03-c03,de-l-eglise-et-de-l-etat-fragments,"De l'Église et de l'État, fragments",georges-sorel,1834,0.94,159,0.90,
 s03-c04,de-la-raison,De la raison,charles-peguy,7713,0.93,679,0.92,
-s03-c04,etudes-socialistes,Études Socialistes,jean-jaures,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s03-c04,etudes-socialistes,Études Socialistes,jean-jaures,5334,0.90,0,0.00,EMPTY_EN
 s03-c05,juifs,Juifs,georges-delahache,1689,0.93,169,0.88,
 s03-c06,la-greve-trois-actes,"La Grève, trois actes",jean-hugues,1470,0.87,508,0.69,
 s03-c07,m-gustave-tery,M. Gustave Téry,charles-peguy,1795,0.93,323,0.86,
@@ -164,7 +164,7 @@ s07-c18,la-vie-de-michel-ange-i-la-lutte,La vie de Michel-Ange. I. La lutte,roma
 s07-c19,les-retours-les-haleurs-le-soldat,"Les retours. Les haleurs, le soldat",emile-moselly,1323,0.90,48,0.87,
 s08-c01,petit-index-alphabetique,Petit index alphabétique,charles-peguy,1388,0.84,36,0.80,
 s08-c02,la-vie-de-michel-ange,La vie de Michel-Ange,romain-rolland,1462,0.92,120,0.90,
-s08-c02,l-abdication,L'abdication,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c02,l-abdication,L'abdication,romain-rolland,425,0.78,0,0.00,EMPTY_EN
 s08-c03,de-la-situation-faite-a-l-histoire-et-a-la-sociologie,De la situation faite à l'histoire et à la sociologie,charles-peguy,1616,0.93,43,0.78,
 s08-c04,jean-christophe,Jean-Christophe. IV. La révolte. 1. Sables mouvants,romain-rolland,3315,0.92,14,0.64,
 s08-c05,de-la-situation-faite-au-parti-intellectuel,De la situation faite au parti intellectuel,charles-peguy,1894,0.94,14,0.82,
@@ -207,7 +207,7 @@ s10-c06,plus-pres-des-choses,Plus près des choses,rene-salome,1948,0.90,28,0.88
 s10-c07,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,2917,0.90,9,0.75,
 s10-c08,mes-cahiers-rouges-v,Mes cahiers rouges. V,maxime-vuillaume,2441,0.93,708,0.83,
 s10-c09,jean-christophe-a-paris,Jean-Christophe à Paris,romain-rolland,78,0.76,3,0.60,
-s10-c09,dans-la-maison-1,Dans la maison. 1,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s10-c09,dans-la-maison-1,Dans la maison. 1,romain-rolland,726,0.88,0,0.00,EMPTY_EN
 s10-c10,jean-christophe-a-paris,Jean-Christophe à Paris. II. Dans la maison. 2,romain-rolland,6433,0.92,7,0.70,
 s10-c11,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,557,0.94,33,0.94,
 s10-c12,le-travail-de-zarathoustra,Le travail de Zarathoustra,daniel-halevy,1,0.20,2,0.67,LOW_PROSE_FR

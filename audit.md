@@ -4,8 +4,8 @@
 
 - **COM_PLACEHOLDER**: 34
 - **LOW_PROSE_EN**: 17
-- **EMPTY_FR**: 16
 - **COM_MISSING**: 16
+- **EMPTY_FR**: 13
 - **EMPTY_EN**: 12
 - **NO_EN**: 8
 - **AUTHOR_MISMATCH**: 4
@@ -95,7 +95,6 @@
 - s02-c07--administration: Administration  *charles-peguy*
 - s02-c14--courrier-de-chine: Courrier de Chine  *lionel-landry*
 - s03-c02--les-universites-populaires: Les Universités Populaires  *charles-guieysse*
-- s03-c04--etudes-socialistes: Études Socialistes  *jean-jaures*
 - s05-c07--moines-de-l-athos: Moines de l'Athos  *jerome-et-jean-tharaud*
 - s06-c03--chad-gadya: Chad Gadya!  *israel-zangwill*
 - s06-c04--l-enseignement-primaire-a-madagascar: L'enseignement primaire à Madagascar  *raoul-allier*
@@ -103,11 +102,9 @@
 - s07-c05--le-22-janvier: Le 22 janvier  *etienne-avenard*
 - s07-c07--les-suppliants: Les suppliants  *francois-porche*
 - s07-c08--et-vous-riez: Et vous riez  *andre-spire*
-- s08-c02--l-abdication: L'abdication  *romain-rolland*
 - s08-c07--les-sonnets-de-shakespeare-i: Les sonnets de Shakespeare. I  *marie-garnier*
 - s08-c15--les-sonnets-de-shakespeare: Les sonnets de Shakespeare  *marie-garnier*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
-- s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
 
 ## LOW_PROSE_EN
 
