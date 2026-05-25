@@ -21,9 +21,9 @@ mort avant la consommation de son injustice.
 
 Partout où l'on parle anglais, personne n''ignore
 le nom de l'illustre écrivain Dingley. Les enfants
-eux-mêmes le connaissent : maint d'entre eux
+eux-mêmes le connaissent: maint d'entre eux
 apprend à lire dans ses livres. C'était un homme
-d'une gaieté, d'une fantaisie, d'une fraîcheur d'imagination incomparable. Il semblait né à l'aurore du
+d'une gaieté, d'une fantaisie, d'une fraîcheur d'imagination incomparable. Il semblait à l'aurore du
 monde, dans un temps où les sens des hommes
 rivalisaient avec ceux des bêtes. Qu'il décrivit une
 forêt vierge de l'Inde, un oflice de commerce dans
@@ -34,16 +34,16 @@ les spectacles du monde des yeux neufs. Ses histoires
 étaient peintes avec l'exactitude d'un réaliste japonais ou la folle, la délicieuse fantaisie d'un poète
 persan. Les personnages de ses contes habitaient
 presque tous un pays où la puissante imagination
-de l'homme a poussé des fleurs merveilleuses : les
+de l'homme a poussé des fleurs merveilleuses: les
 plaines du Gange, témoins de l'effort le plus désespéré des penseurs pour découvrir un sens à la vie.
 Du contraste entre les préoccupations mesquines
 des Européens émigrés là-bas et une civilisation
-indigène saturée par les rêves des philosophes morts il y a des milliers d'années Dingley avait su
+indigène saturée par les rêves des philosophes morts il y a des milliers d'années Dingley avait
 tirer les effets les plus saisissants. Car lui, dans sa
-cervelle d'artiste né sur cette terre, il unissait
+cervelle d'artiste sur cette terre, il unissait
 l'esprit pratique, concret, des hommes de race
 anglaise à l'âme insatisfaite de la vie et passionnée
-pour le rêve d'un Hindou : il avait l'ardeur d'un
+pour le rêve d'un Hindou: il avait l'ardeur d'un
 pirate normand et le goût des interminables siestes,
 à l'ombre, les yeux clos, tandis que dans le champ
 de la vision intérieure passe comme des visions
@@ -53,7 +53,7 @@ ignorant de l'antiquité et qui peut reconstiluer, avec
 l'exactitude d'un homme qui l'aurait soufferte,
 toute la vie d'un rameur enchaîné au banc d'une
 galère phénicienne, mille ans avant le Christ.
-Évocateur de l'âme des hommes d'autrefois, Dingley ‘
+Évocateur de l'âme des hommes d'autrefois, Dingley
 avait aussi la divination de l'âme obscure des
 bêtes. Il connaît tous les animaux de la forêt; il
 analyse l'âme collective des bufiles, l'esprit anarchiste des singes, la bonté méditative de l'éléphant,
@@ -63,14 +63,14 @@ forêt. Il assiste aux conseils des fauves. IL voit
 comment se développe un enfant élevé dans une
 famille de loups et il vous dira comment parvenu À
 à l'âge d'homme, ce fils d'un homme et d'une femme
-_ quitte la libre vie des bois pour s'enterrer au fond
+quitte la libre vie des bois pour s'enterrer au fond
 d'une boutique parce qu'il s'est épris d'une fille des
 villes. Et tout ce monde des bois vit d'une vie à la
 fois réelle et fantastique. Cette œuvre était un jeu
 merveilleux dont le succès dépassa les limites de la
-langue anglaise. Dingley connut la gloire : il fut
-l'homme le plus lu de l'univers. Sa photographie
-était partout : dans les revues, les magazines, les
+langue anglaise. Dingley connut la gloire: il fut
+l'homme le plus de l'univers. Sa photographie
+était partout: dans les revues, les magazines, les
 journaux. Elle s'étalait aux boutiques de tous les
 libraires du nouveau et de l'ancien monde. Sur les
 grands navires qui le transportaient, toute l'année,
@@ -86,11 +86,11 @@ Quand la guerre du Transvaal fut déclarée il
 enfant le cinquième étage d'un hôtel immense,
 d'où il pouvait voir la vie de la Tamise. Quand le
 vent soufflait et que la brume cachait les toits, il
-aurait pu se croire dans un phare.
+aurait se croire dans un phare.
 
-La guerre changea l'aspect de la rue : elle devint
+La guerre changea l'aspect de la rue: elle devint
 plus hâtive, plus inquiète, plus nerveuse. Dingley
-notait avec soin tous les détails de cette transformation. En même temps il était en quête d'un thème de roman où il pourrait peindre cette agitation de Londres pendant la guerre : le hasard,
+notait avec soin tous les détails de cette transformation. En même temps il était en quête d'un thème de roman où il pourrait peindre cette agitation de Londres pendant la guerre: le hasard,
 comme presque toujours, fut l'initiateur de l'artiste.
 
 C'était le soir, dans Warrington Square; une
@@ -99,19 +99,19 @@ rouge et portant beau. Le sergent vantait le service
 de la Reine:
 
 — Gentlemen, criait-il, vous n'êtes pas nés fils
-de pairs ! Mais le Gouvernement a l'œil sur vous!
-Il veut utiliser vos talents ! Il vous invite à manger
+de pairs! Mais le Gouvernement a l'œil sur vous!
+Il veut utiliser vos talents! Il vous invite à manger
 des côtelettes tous les jours. Ici vous mourez de
 faim et de soif. Au Cap de bons biftecks, de bon
-whisky ! Et la gloire! Au retour, dans la patrie,
+whisky! Et la gloire! Au retour, dans la patrie,
 une bonne petite place où vous n'aurez qu'à fumer
 votre pipe et à cracher dans l'eau! À
 
 Les curieux se dispersèrent quand le sergent eut
-fini de discourir. Il ne resta autour de lui que ‘
+fini de discourir. Il ne resta autour de lui que
 de misère et de vice.
 
-\ Le sergent en prit deux familièrement sous le
+Le sergent en prit deux familièrement sous le
 bras. Il dit au troisième
 — Et vous, vous venez?
 
@@ -129,7 +129,7 @@ contre les Afridis, dans l'Inde, contre le Mahdi, en
 Égypte, contre les Birmans..… Le nombre de ses
 conquêtes grandissait avec la pile de soucoupes
 
-La porte s'ouvrit : un homme entra ; à peine un
+La porte s'ouvrit: un homme entra; à peine un
 homme, un grand enfant à l'air vieillot: le troisième héros. Ses yeux passèrent, sans se fixer, sur
 le sergent recruteur et ses compagnons, errèrent
 lentement autour de la salle, se croisèrent avec
@@ -149,7 +149,7 @@ d'une voix rauque, j'ai soif.
 
 Le sergent comprit qu'il avait affaire à un désespéré et que les phrases étaient inutiles. 1] l''entraîna
 seulement à boire. Les deux autres ronflaient déjà
-le front sur Îa table. Il les éveilla pour leur faire
+le front sur table. Il les éveilla pour leur faire
 signer un papier qu'il tira de la doublure de sa
 veste. On but une dernière rasade. Les recrues et le
 sergent sortirent silencieusement du bar. Le soldat
@@ -170,24 +170,24 @@ pareil à celui que je viens de voir — des
 yeux faux — des cheveux rares — chlorotique —
 la dernière misère. Il s'engage au service de la
 Reine, non par patriotisme — pour quelques gui- nées. — Par la vertu de la guerre il redeviendra
-un homme nouveau... Si vous l'aviez vu avec son
+un homme nouveau... Si vous l'aviez avec son
 long corps souple, sa figure imberbe, ses gestes
 mous. Il éveillait l'idée d'une fille! Imaginez cet
 être resté encore quelque temps à Londres, il
 tombe dans la plus basse crapule. Mais la guerre
-va le prendre, en faire un homme sain et vigoureux.
+le prendre, en faire un homme sain et vigoureux.
 
 — Et vous l'appelez?
 
-— Barr ! naturellement. Comment voulez-vous
-que je l'appelle ? Barr ! Barr !
+— Barr! naturellement. Comment voulez-vous
+que je l'appelle? Barr! Barr!
 
 Il répéta plusieurs fois ce monosyllabe qui lui
 plaisait par sa sonorité brève et dure. Un nom, un
 seul nom convenait à chacun de ses héros: il se
 flattait de le trouver toujours.
 
-— Eh bien! comment trouvez-vous mon conte ?.
+— Eh bien! comment trouvez-vous mon conte?.
 demanda-t-il inquiet de ne pas sentir sa femme
 vibrer à son récit. Il avait coutume d'essayer sur
 elle comme sur un public admirablement sensible
@@ -195,7 +195,7 @@ l'effet de ses imaginations.
 
 — Comprenez donc! insista-t-il nerveusement,
 montrer comment la guerre peut faire de ma
-canaïille un héros !
+canaïille un héros!
 
 — Croyez-vous! mon ami, répondit-elle incrédule. Pouvez-vous demander à des gens recrutés en
 état d'ivresse de devenir des héros? Engager des
@@ -204,7 +204,7 @@ le sacrifice de leur vie.
 
 — Ma chère, reprit Dingley sur un ton hautain,
 les soldats de Wellington n'ont pas été recrutés
-autrement : ils ont vaincu les plus vaillanies
+autrement: ils ont vaincu les plus vaillanies
 troupes du monde.
 
 Les choses réglées par des coutumes séculaires,
@@ -215,12 +215,12 @@ participer de la nécessité de la nature.
 de Wellington. répondit Jeanne.
 
 — Ah! vous y voilà! s'écria Dingley. Vous ne
-comprenez rien à cette guerre ! Toujours votresouci
+comprenez rien à cette guerre! Toujours votresouci
 de justice et d'injustice! Il haussa les épaules, posa
 sa canne sur une table, déboutonna son manteau et
-alla appuyer son front à la fenêtre : le brouillard et
+alla appuyer son front à la fenêtre: le brouillard et
 la fumée noyait tout. Son esprit nostalgique mit à
-la voile vers le passé : dans la Tamise arrivaient et
+la voile vers le passé: dans la Tamise arrivaient et
 partaient sur leurs dragons les Vikings. Les meuglements des sirènes évoquaient le son des trompes
 des rois de la mer. Il dit
 — Les marchandises, dans le ventre de ces
@@ -239,12 +239,12 @@ vont mourir pour d'autres hommes déjà riches,
 laids et vieux.
 
 — Voici bien une idée de femme! Vous excuseriez cette guerre si nos capitalistes étaient moins
-riches, moins laids et moins vieux ?
+riches, moins laids et moins vieux?
 
 La femme de Dingley avait hérité de ses aïeux
 un sentiment juste des caractères. Sa très grande
 admiration pour son mari ne l'avait pas aveuglée
-sur les limites de son génie : il était né pour
+sur les limites de son génie: il était pour
 enchanter l'imagination des hommes, non pour
 moraliser, fût-ce sur la guerre.
 
@@ -265,11 +265,11 @@ Dans une pièce voisine un enfant riait avec sa
 bonne. Les paroles de la femme et les rires de l'enfant se mêélaient aux cris, montés de la rue, des
 Annonciateurs des Nouvelles du Soir.
 
-On sonna : l'enfant courut à la porte. Il revint,
+On sonna: l'enfant courut à la porte. Il revint,
 apportant à Dingley, dans ses bras, un journal considérable, presque aussi haut, presque aussi large,
 presque aussi lourd que sa frêle personne. Dingley
 enleva le journal et l'enfant. Il lui demanda
-— Et toi, fils, que penses-tu de master Krüger ?
+— Et toi, fils, que penses-tu de master Krüger?
 
 Archie éclata de rire. Master Krüger n'était pas
 encore entré dans le cercle de ses pensées. L'écrivain assit l'enfant sur une table, prit le Times, jeta
@@ -280,7 +280,7 @@ signé mon article de mon nom.
 Et il montrait du doigt à sa femme sur la feuille
 encore humide son nom écrit en toutes lettres.
 
-— C'est vrai. Je n'avais pas encore vu un leader
+— C'est vrai. Je n'avais pas encore un leader
 du Times signé. Je vous félicite, mon ami.
 
 — Je ne l'avais pas demandé.
@@ -290,23 +290,23 @@ que vous êtes partisan de la guerre... dit-elle avec
 un peu d'amertume.
 
 Les désastres, au début de la guerre, déconcertèrent l'imagination du romancier. Pourrait-il vanter
-l'intelligence d'officiers battus par des paysans ?
+l'intelligence d'officiers battus par des paysans?
 l'héroïsme de soldats qui levaient les bras dès
-qu'un mulet avait été tué dans la colonne ? Barr
+qu'un mulet avait été tué dans la colonne? Barr
 n'aurait-il de cœur au ventre que devant les
 Afridis ou les nègres du Mahdi?
 
 L'écrivain courait les quartiers misérables de la
-cité : il entrait dans les bouges, écoutait les gueux
+cité: il entrait dans les bouges, écoutait les gueux
 parler de la guerre. Il passait des heures dans le
-hall de la Bourse ; il se mélait à la foule arrêtée
+hall de la Bourse; il se mélait à la foule arrêtée
 devant les offices des grands journaux et attendant,
 le nez en l'air, les transparents où se projetaient en
 noir les derniers télégrammes de la guerre.
 
 Il revit un grand nombre de fois la scène qui
 l'avait tant intéressé le premier jour qu'il l'avait
-vue : le même sergent et les mêmes voyous. Il semblait que ce sergent eût été tiré par la Providence à
+vue: le même sergent et les mêmes voyous. Il semblait que ce sergent eût été tiré par la Providence à
 des milliers d'exemplaires. C'était toujours le même
 homme grand, sec, rouge, habillé d'écarlate, avec
 une petite baguette à la main et une calotte ronde
@@ -317,10 +317,10 @@ Dans la salle du War-Office où étaient affichés
 chaque jour, sur plusieurs colonnes, les noms des
 blessés et des morts, Dingley vécut des minutes
 inoubliables. Un chapitre de son roman devait
-porter ce nom si tragiquement banal : {a salle
+porter ce nom si tragiquement banal: salle
 d'attente. En vérité le sombre royaume de l'Attente,
-cette salle ordinairement vide et nue ! Dingley ne se
-rappelait avoir vu nulle part de pareïlles expressions
+cette salle ordinairement vide et nue! Dingley ne se
+rappelait avoir nulle part de pareïlles expressions
 de désespoir; dans la foule qui attendait chaque
 jour l'apparition des listes, il reconnaissait des
 visages. Quelques-uns séduisaient plus particulièrement son œil d'artiste; il les observait à la dérobée.
@@ -329,15 +329,15 @@ faces humaines les effets de l'appréhension! La
 lumière avait peine à percer la couche de crasse
 ancienne épaissie sur les vitres; dans ce jour sale
 les teints les plus éclatants de jeunes filles semblaient livides. Avant l'affichage des noms, pour
-tromper l'angoisse, les gens rassemblés là chuchotaient très bas, très bas comme s'ils avaient eu peur
+tromper l'angoisse, les gens rassemblés chuchotaient très bas, très bas comme s'ils avaient peur
 de réveiller, dans une salle voisine, quelque bête
 redoutable. La distinction entre les classes était
 abolie; Dingley vit des gentlemen aux cylindresles plus reluisants causer avec des gens à casquettes
 des femmes de la plus fine aristocratie en confidences avec des femmes vêtues de haillons. Ces
-instants d'égalité parfaite duraient jusqu'à l'apparition des listes. Alors c'était une poussée ; à
-qui verrait! Ceux qui n'avaient lu au tableau
+instants d'égalité parfaite duraient jusqu'à l'apparition des listes. Alors c'était une poussée; à
+qui verrait! Ceux qui n'avaient au tableau
 les revoyait le lendemain, à la même place,
-_ avec la même physionomie d'angoisse que la
+avec la même physionomie d'angoisse que la
 veille. Après la grande poussée, quand la foule
 s'était écoulée, une petite vieille coiffée d'un chapeau de paille bleue de-la forme dite cabriolet
 s'avançait timidement vers les listes. Ses bras et
@@ -350,21 +350,21 @@ sur elle était sa chemise. Le jupon qui dépassait sa
 robe boueuse était sale. Ses bottines éculées, aux
 élastiques claqués, laissaient voir ses maigres chevilles. Elle remuait toujours ses lèvres. Était-ce le
 mouvement continuel de ses lèvres ou seulement le
-développement anormal de sa lèvre inférieure ?
+développement anormal de sa lèvre inférieure?
 Était-ce la rondeur de ses gros yeux ronds cerclés
 de rouge? Elle avait l'air stupide, peureux et bon
 d'une mère lapine. Elle ne savait pas lire, et chaque jour elle demandait à un inconnu de lui dire s'il y
-avait écrit sur la liste le nom de : « James Crook?
-Crook, n'est-ce pas ? Crook James”? » Dingley regarda
+avait écrit sur la liste le nom de: « James Crook?
+Crook, n'est-ce pas? Crook James”? » Dingley regarda
 souvent la liste pour elle et plusieurs fois il alla
-au devant de son désir : « Crook, n'est-ce pas?
+au devant de son désir: « Crook, n'est-ce pas?
 Crook James? Non, il n'est pas marqué. » La vieille
 levait sur lui ses gros yeux ronds, bêtes et reconnaissants, disait un pâle merci et s'en allait. Un
 jour Dingley lut parmi les morts le nom de Crook
 (James). Il laissa à un autre le soin d'annoncer la
 nouvelle à la vieille. Il s'effaça dans un coin de la
 salle pour l'épier. « James Crook? il est mort! » dit
-l'inconnu auquel la vieille avait demandé : « James
+l'inconnu auquel la vieille avait demandé: « James
 Crook? Crook? Crook James? » Elle laissa tomber
 ses bras dans un geste de lassitude infinie. Son châle
 se déroula et Dingley vit ses mains, de pauvres
@@ -379,25 +379,25 @@ les soirs
 — Mort, répondit-il avec un sourire pénible.
 
 — Pauvre Crook! Il ne recevra pas les friandises
-de Archie!... Vous avez vu sa mère?
+de Archie!... Vous avez sa mère?
 
-Dingley répondit « oui », d'un signe de tête. Après
+Dingley répondit « oui d'un signe de tête. Après
 un assez long silence sa femme murmura
 — Terrible guerre! Il meurt autant d'officiers
 que de soldats.
 
 — Les officiers. tous frappés à la tête. précisa
-distraitement le romancier. N'importe! Quel exemple unique de sang-froid donne au monde l'Angleterre !
+distraitement le romancier. N'importe! Quel exemple unique de sang-froid donne au monde l'Angleterre!
 
 La nouvelle des premiers succès souleva dans
 Londres une délirante joie, à laquelle on put mesurer combien l'appréhension, quoique dissimulée
 par orgueil, avait été grande. La chasse donnée au
-général Cronje passionnait l'opinion : les Boers
+général Cronje passionnait l'opinion: les Boers
 fuyaient avec leurs chariots où s'entassaient femmes
 et enfants. Minute par minute le télégraphe annonçgait à Londres les détails de la poursuite. Un employé du Times téléphonait à Dingley toutes les
 dépêches. L'écrivain communiquait à haute voix
 à sa femme les nouvelles transmises par le téléphone
-_— Le vieux renard ne peut échapper... Il s'est
+Le vieux renard ne peut échapper... Il s'est
 terré dans les berges de la Modder... Deux cents
 pièces tirent sur lui, à la lyddite, nuit et jour. Les
 voitures sont en feu. Au-dessus de la flamme
@@ -415,7 +415,7 @@ détaillait l'agonie de Cronje et de son armée.
 Le cinquième jour, pendant le diner, le téléphone
 sonna impérieusement. Dingley avait posé le récepteur sur sa table, près de son assiette. Il écouta
 
-— On l'a pris ? demanda Jeanne.
+— On l'a pris? demanda Jeanne.
 
 — Non. Il s'est rendu, répondit-il avec mépris.
 
@@ -428,7 +428,7 @@ flambaient au bout des cannes.
 
 — Voyez, Jeanne, dit Dingley en souriant, la
 
-| croyance à l'envoûtement n'est pas morte!
+croyance à l'envoûtement n'est pas morte!
 
 . — Cest vrai, répondit Jeanne; nos contempo-
 . rains brülent Krüger en effigie, comme au MoyenAge bon percçait d'une aiguille le cœur figuré en cire de son ennemi.
@@ -443,13 +443,13 @@ l'Afrique et sa vie à bord. Il avait assisté à bien des
 embarquements de troupes à Portsmouth. Mais il
 n'avait jamais visité de transport, en cours de
 route. Il en était réduit à imaginer cette partie de
-son roman et cela lui était désagréable : il était
+son roman et cela lui était désagréable: il était
 consciencieux et aimait le document pris sur le
 
 Il décida de partir avec sa femme et son enfant
 pour le Sud de l'Afrique.
 
-Son départ fut un triomphe : une foule immense
+Son départ fut un triomphe: une foule immense
 sur le quai acclamait le romancier, debout à l'arrière du paquebot entre Jeanne et Archie qu'il
 tenait par la main. Quand le navire s'ébroua, on
 acclama son nom. Il leva sa casquette de voyage.
@@ -458,7 +458,7 @@ conscience même de la race. Un profond sentiment
 d'orgueil enfla son cœur. Shakespeare n'avait
 jamais connu, une seconde, cette ivresse. Jeanne
 sentit la main de son mari trembler. Elle oublia
-l'injustice de la guerre : Dingley était grand! Les
+l'injustice de la guerre: Dingley était grand! Les
 massacres étaient finis; Pretoria prise, le sang
 allait cesser de couler. Un sentiment d'optimisme
 universel pénétrait son âme. Archie, effaré par les
@@ -479,9 +479,9 @@ sa femme, il eût éprouvé la puissance évocatrice
 de la musique, la vie de bord avait été le meilleur
 stimulant de son génie. Il avait espéré, pendant
 cette traversée, recréer en lui l'état divin d'une
-Dingley se mit au travail : sa femme, dans une
+Dingley se mit au travail: sa femme, dans une
 chambre voisine, jouait — assez mal — une suite
-de banalités musicales : des valses, des chansons de
+de banalités musicales: des valses, des chansons de
 music hall, des fragments d'opéras. Que la musique
 fût bonne ou mauvaise, il importait peu à Dingley.
 Il lui suffisait d'entendre des rythmes et du bruit
@@ -492,7 +492,7 @@ installé dans une auberge près d'une scierie dont le
 ronflement se mélait à l'égouttis de l'eau d'une
 roue de moulin. Au Caire il payaït un griot soudanais, amené comme captif par les troupes victorieuses du Mahdi, pour lui réciter d'interminables
 mélopées en s'accompagnant sur une sorte de lyre
-à trois cordes : il écrivait alors la célèbre histoire
+à trois cordes: il écrivait alors la célèbre histoire
 de ce maharajah élevé dans un collège d'Oxford
 qui finit par s'apercevoir qu'il ne pourra jamais
 être heureux, car le bonheur des Européens n'est
@@ -512,7 +512,7 @@ Le dîner était l'heure la plus gaie du jour.
 Beaucoup des gens rassemblés autour de la longue
 table, qui pelaient une poire ou râclaient un
 chester, avaient parcouru le monde les uns en quête d'aventures, les autres par devoir professionnel. Il
-y avait là Ted Cox, le plus fameux reporter du
+y avait Ted Cox, le plus fameux reporter du
 Royaume-Uni, assis en face de Thibert, un dessinateur français envoyé par l'Illustration dans
 l'Afrique du Sud. Le vagabondage par toutes les
 terres, sur toutes les mers, n'avait pas affaibli chez
@@ -529,14 +529,14 @@ l'Image.
 
 — Oh! nous, répondit Cox, qui faisait avec ses
 lèvres, quand il voulait paraître modeste, la moue
-d'un homme qui siffle un œuf, nous ne sommes !
+d'un homme qui siffle un œuf, nous ne sommes!
 
 que des enfants. Thibert, qui a connu Jack
 Kurrachee, le mulâtre correspondant des Daily
 News, ne me contredira pas. Celui-là, Mrs. Dingley,
 était, comme vous dites, un vrai héros de la Nouvelle et de l'Image! La dernière photographie qu'il
 a prise est celle où l'on voit un canonnier blessé à
-mort à l'instant où il tire la ficelle de la pièce : la chute du soldat fait partir le coup. Il vous souvient,
+mort à l'instant où il tire la ficelle de la pièce: la chute du soldat fait partir le coup. Il vous souvient,
 
 — Parfaitement. Quand Kurrachee prit ce cliché,
 il était assis à dix mètres du canonnier sur la roue
@@ -552,19 +552,19 @@ mulâtre fut tué par le dernier obus qu'il photographia?
 
 — La Providence veille sur vous!
 
-— La Providence ? c'est possible. Je n'y crois
+— La Providence? c'est possible. Je n'y crois
 pas pour les autres, maïs j'y crois pour moi...
 Ainsi, je suis absolument sûr de mourir en France,
 en Beauce, dans mon lit.
 — Et moi en Angleterre, dans le comté
-— .… Et voyez, disait à l'autre bout de la table
+—.… Et voyez, disait à l'autre bout de la table
 un jeune lieutenant, sir George Harvey, blessé à
 Colenso, et qui revenait prendre du service en
 Afrique, ces Boers sont si simples qu'ils sont incapables de se servir de la hausse de leurs mauser!
 
 — J'ai entendu dire, répliqua Thibert, qu'ils
 remplacent avantageusement la hausse avec le
-pouce de leur main gauche levé perpendiculairement au canon du fusil ?
+pouce de leur main gauche levé perpendiculairement au canon du fusil?
 
 — C'est vrai, répondit Harvey. Mais, en somme,
 ce sont des brutes, qui ignorent même l'usage d'une
@@ -575,7 +575,7 @@ Quelles raisons il avait de hasarder sa vie dans le
 Sud de l'Afrique. Il était riche et pouvait fort bien
 rester chez lui, près d'un vieil oncle très riche
 dont il était l'unique héritier. Un jour que le dessinateur le poussait, Harvey avait répondu
-— Je suis né dans une société qui m'a inspiré
+— Je suis dans une société qui m'a inspiré
 des sentiments propres à favoriser sa conservation.
 Cette communauté, je crois sincèrement qu'elle en
 vaut une autre, et je la défends. Voilà tout.
@@ -587,12 +587,12 @@ justice et contre tout droit?
 
 Mais il s'était retenu de parler ainsi, de peur de
 blesser le lieutenant et aussi parce qu'il était,
-d'avance, sûr de sa réponse : Les Boers, les premiers; avaient violé la justice. Et puis c'était une
+d'avance, sûr de sa réponse: Les Boers, les premiers; avaient violé la justice. Et puis c'était une
 idée latine d'introduire partout l'idée de justice.
 Dans les affaires humaines, il ne s'agissait jamais
 que de force. Ceux qui pensaient autrement étaient
 
-* des hypocrites ou des imbéciles.
+des hypocrites ou des imbéciles.
 
 — Pourvu que nous n'arrivions pas trop tard!
 quand le bal sera fini! dit Ted Cox.
@@ -600,8 +600,8 @@ quand le bal sera fini! dit Ted Cox.
 de plaques Lumière sans emploi.
 — Et une occasion perdue, ajouta Cox, de voir
 autre chose que des mitraillades de nègres, des
-jaunes ou des cuivrés : enfin on va voir des Blancs
-contre des Blancs !
+jaunes ou des cuivrés: enfin on voir des Blancs
+contre des Blancs!
 
 Elle ne marchait pas son histoire de Barr.
 
@@ -616,7 +616,7 @@ cette admiration respectueuse et enthousiaste que
 tout Anglais avait pour lui. Ils voulurent le retenir
 dans le salon réservé aux officiers supérieurs.
 Dingley, peu soucieux du punch et des toasts imminents, demanda à visiter le bateau. Le capitaine,
-ùn petit homme, propre, très propre, extrêmement
+petit homme, propre, très propre, extrêmement
 propre, lui expliqua la répartition du chargement.
 L'arrière était réservé aux officiers. Les sousofliciers campaient au gaillard d'avant, les soldats
 dans la cale et l'entrepont.
@@ -628,7 +628,7 @@ revenir. Voyons les hommes, s'il vous plaît.
 
 Dès qu'ils approchèrent de l'entrepont, une
 insupportable odeur de crottin, de latrines, de
-cuisine et de saumure les empuantit ; une multitude
+cuisine et de saumure les empuantit; une multitude
 de soldats grouillaient là-dedans. Les uns couchés,
 les autres debout, quelques-uns chantaient, d'autres
 
@@ -648,22 +648,22 @@ barrière de bois des paillasses où couchaïent les
 
 — Ce sontles plus malheureux qui habitent ici,
 
-— Au contraire, répondit le capitaine, ils demandent tous à descendre là-dedans. Ça pue le mulet,
-mais ça tient chaud. « Les gens du peuple sont frileux. »
+— Au contraire, répondit le capitaine, ils demandent tous à descendre là-dedans. pue le mulet,
+mais tient chaud. « Les gens du peuple sont frileux. »
 
 Dingley fit la grimace. Du côté des cuisines il
 aperçut un boulanger qui puisait l'eau dans le
 réservoir des latrines pour éviter d'aller à la pompe.
 
-Le capitaine haussa les épaules. Après tout, ça les
-regarde, n'est-ce pas ?
+Le capitaine haussa les épaules. Après tout, les
+regarde, n'est-ce pas?
 
 Dingley revint dans le salon des officiers peiné
 que cette foule de soldats fût aussi avachie que toute
-I croyait les Anglais d'un meilleur acier que les
+croyait les Anglais d'un meilleur acier que les
 autres peuples du monde.
 
-Lesofficiers avaient allumé un punch. Quand Dingley entra, ils crièrent trois fois : hip! hip! hurrah!
+Lesofficiers avaient allumé un punch. Quand Dingley entra, ils crièrent trois fois: hip! hip! hurrah!
 Pendant qu'ils buvaient, un matelot apporta un
 télégramme de l'Afrique australe qui donnait des
 nouvelles de la guerre. Elles étaient mauvaises. Un
@@ -674,14 +674,14 @@ deux batteries montées. Un escadron de lanciers
 
 Les officiers n'avaient jamais entendu encore ce
 nom de Dewet. Ils s'interrogèrent entre eux
-Dewet? Dewet ? Qu'est-ce que c'est que ce Dewet ?
+Dewet? Dewet? Qu'est-ce que c'est que ce Dewet?
 
 Les premières minutes de surprise passées, le
 capitaine du Vultur déclara
-— C'est une affaire de guérilla, messieurs ! A la
-santé de la Reine !
+— C'est une affaire de guérilla, messieurs! A la
+santé de la Reine!
 
-Dingley quitta le Vultur au milieu des acclamations : les soldats avaient appris le nom de leur
+Dingley quitta le Vultur au milieu des acclamations: les soldats avaient appris le nom de leur
 visiteur inconnu. Ils se bousculaient vers le bordage pour le voir. Ils chantaient en chœur une chanson
 de marche composée par Dingley. Des hommes
 iraient mourir une chanson de lui sur les lèvres!
@@ -692,7 +692,7 @@ refrain. La chanson s'abattait sur la mer, comme
 les ailes d'un gigantesque oiseau. Elle sortait des
 poitrines de ces jeunes hommes si pleine, si vigoureuse qu'elle semblait l'improvisation des soldats et
 des marins... Dingley se rappelait le moment où il
-avait eu l'idée de cette chanson, l'endroit où il
+avait l'idée de cette chanson, l'endroit où il
 l'avait écrite, la peine qu'elle lui avait coûtée.…
 
 Il revint sur son bateau. Des brins de paille et de
@@ -723,11 +723,11 @@ Dingley avait l'habitude de peindre ses compatriotes physiquement propres; il ne
 représenter entassés dans l'étroit espace d'une cale
 et d'un entrepont, sales, mal nourris, déprimés, et
 plus semblables à ces moutons de la Plata embarqués
-à Buenos-Ayres, qu'à des conquérants : de tous les
+à Buenos-Ayres, qu'à des conquérants: de tous les
 animaux, l'homme malpropre a la plus répugnante
 odeur. Dingley s'ingéniait à chercher des récits, à
 imaginer des dialogues où son héros se montrerait
-supérieur à sa fortune ; il ne trouvait rien.
+supérieur à sa fortune; il ne trouvait rien.
 
 Pour rompre le charme de ces pages blanches où
 il ne pouvait écrire une ligne, le romancier essaya
@@ -737,7 +737,7 @@ pont Archie jouait avec sa bonne, une jeune Hindoue
 que Dingley avait rencontrée, il y avait une dizaine
 d'années, dans une fumerie d'opium tenue parun
 
-= Chinois: c'était elle qui préparait Les pipes des habitués. Elle savait toutes les histoires des dieux et des
+Chinois: c'était elle qui préparait Les pipes des habitués. Elle savait toutes les histoires des dieux et des
 héros, toutes les légendes de l'Inde. Il l'avait engagée à son service. Maint de ses contes les plus
 célèbres n'était qu'une transcription des récits de
 cette petite fille maigre aux yeux fixes. Elle s'était
@@ -765,7 +765,7 @@ orteils engagés dans un anneau de cuir. Au bras
 gauche, elle portait trois bracelets d'ivoire.
 
 Dingley s'approcha de l'Hindoue et lui demanda
-— Connaïis-tu l'histoire du fossé d'Amiritzir ?
+— Connaïis-tu l'histoire du fossé d'Amiritzir?
 
 — Oui, maître. C'est moi qui vous l'ai racontée
 autrefois, il y a longtemps. C'était avant la naïssance de Archie.
@@ -779,11 +779,11 @@ mais ne parlons pas de cela.
 Elle n'aimait pas rappeler la sordide auberge où
 elle présidait aux rêves de quelques brutes.
 
-— Bah ! répondit Dingley, ce temps est loin!
+— Bah! répondit Dingley, ce temps est loin!
 
-— Tu te souviens de Chamba, près d'Amiritzir ?
+— Tu te souviens de Chamba, près d'Amiritzir?
 Dingley revit aussitôt la plaine ardente sous le
-soleil, au pied des hauts Himalayas. !
+soleil, au pied des hauts Himalayas.!
 
 — Eh bien, il y eut un jour une telle famine dans
 ce pays que presque toutes les femmes et tous les
@@ -795,12 +795,12 @@ montagnes dans le pays de Chamba.
 — Précisément. En deux années le fossé fut
 achevé. Mais l'eau des lacs qui devaient l'emplir,
 
-_ enchantée par les Dragons, refusa d'y couler. La
+enchantée par les Dragons, refusa d'y couler. La
 sécheresse avait été grande. Une épouvantable
 disette s''annonçait. Les prêtres prièrent tant les
 Génies qu'ils envoyèrent un jeune nain pour faire
 savoir à quelles conditions ils permettraient aux
-eaux de couler dans le canal de Chamba : ils exigeaient que la belle Harribakti, la fille du roi,
+eaux de couler dans le canal de Chamba: ils exigeaient que la belle Harribakti, la fille du roi,
 suivit la berge du fossé, toute nue, jusqu'aux lacs,
 où elle se livrerait à leur prince. Les Brahmanes
 hésitèrent longtemps à accomplir leur message
@@ -813,7 +813,7 @@ Dingley, le menton étayé sur ses poings fermés, les
 coudes au genoux, levait les yeux sur l'Hindoue qui
 se tenait assise le buste droit, les mains à plat sur
 les cuisses, dans l'attitude d'une déesse d'Égypte.
-— Trois jours et trois nuits les Brahmanes hésitèrent. Ils n'auraient peut-être jamais eu le courage de
+— Trois jours et trois nuits les Brahmanes hésitèrent. Ils n'auraient peut-être jamais le courage de
 paraître devant le roi Djehangir, si la foule ameutée
 devant le temple ne les avait contraints par sa clameur. Ils sortirent derrière le grand-prêtre, et s'en
 allèrent vers le palais, la tête basse, comme des
@@ -835,21 +835,21 @@ Le roi se leva violemment de son trône.
 
 — … sous les yeux de tout le peuple.
 
-— Jamais ! cria le roi.
+— Jamais! cria le roi.
 
 — Ce n'est pas tout, continua le Brahmane.
 
-— Qu'exigent-ils donc encore d'Elle ? interrogea
+— Qu'exigent-ils donc encore d'Elle? interrogea
 — Sa vie. Ils veulent qu'au terme de sa route
 elle plonge au fond du lac où l'attend le prince des
-* Les jours suivants le roi épia désespérément le
+Les jours suivants le roi épia désespérément le
 Ciel, vers l'Ouest, pour voir si quelque nuage n'arrivait pas. Maïs le ciel restait d'un bleu impassible
 et la famine ravageait la ville. Le peuple contraignit Djehangir comme il avait contraint les Brahmanes. Il dut expliquer à sa fille ce que les Dragons voulaient d'elle. La belle Harribakti était
 avec ses femmes dans la cour du palais où le dernier
 jet d'eau bruissait encore. La princesse devint plus
 rouge que la soie jetée sur ses épaules quand elle
 entendit qu'elle devait marcher toute nue, sous les
-yeux de la multitude : elle devint plus blanche que
+yeux de la multitude: elle devint plus blanche que
 le marbre de son trône quand elle sut qu'elle devait
 rejoindre, au fond du lac, le Génie des eaux. Après
 un long silence, elle répondit
@@ -876,14 +876,14 @@ d'un vol irrégulier et incertain.
 Le navire allait si vite, qu'elle n'en vit aucune se
 poser sur la mer.
 
-_— Bast! C'est vain de s'intéresser à ces vieillevies, dit en souriant Dingley, quand il y a dans notre
+Bast! C'est vain de s'intéresser à ces vieillevies, dit en souriant Dingley, quand il y a dans notre
 monde de bien autrement tragiques histoires.
 
 Le temps était passé d'écrire des histoires bonnes
 à amuser les enfants; il fallait écrire pour des
 hommes! Dingley avait hâte d'arriver au Cap, de
 
-_ visiter les champs de bataille, les ambulances, les
+visiter les champs de bataille, les ambulances, les
 hôpitaux, les camps, de rassembler tous les documents nécessaires à la composition du tableau
 saisissant et vrai de cette guerre.
 
@@ -891,30 +891,30 @@ Le paquebot atterrit quelques heures à SainteHélène. Il fut permis à Dingley
 visiter les prisonniers boers. Ils étaient bien tels
 
 . quetous les journaux illustrés du mondeles avaient
-représentés : mal vêtus, de longues barbes, l'air
+représentés: mal vêtus, de longues barbes, l'air
 hirsute, mais peu farouches. Le général Cronje
 habitait, à l'écart, une petite maison blanche à
-volets verts : quand Dingley poussa la barrière à
+volets verts: quand Dingley poussa la barrière à
 claire-voie de son jardin, il fumait sur le pas de sa
 porte. Le romancier le salua et se présenta. A ce
 moment la porte de la maison s'ouvrit et sur le
 seuil apparut une femme de haute taille, déjà vieille,
 au visage sec et dur. Elle dit en anglais, avec un
 
-_ accent indicible de mépris
-| — Allons! Pierre! Il faut rentrer! On ne parle
+accent indicible de mépris
+— Allons! Pierre! Il faut rentrer! On ne parle
 
-| pas avec ces gens-là!
+pas avec ces gens-là!
 
 Cronje retira sa pipe de sa bouche, porta la main
 à son chapeau, et rentra dans la maison.
 
 Dingley dit, à demi-voix, avec colère
-— L'hospitalité boer ? Elle est propre!
+— L'hospitalité boer? Elle est propre!
 
 Madame Cronje, par la porte ouverte, l'entendit.
 Elle reparut sur le seuil et lui dit gravement
-— Elle vaut la vôtre !
+— Elle vaut la vôtre!
 
 Le soir même Dingley racontait à Thibert sa visite
 au camp des prisonniers.
@@ -930,7 +930,7 @@ aux choses que lorsqu'il pouvait les nommer. Sa
 femme ne pensait à rien, enveloppée dans la caresse
 de cette nuit, si douce qu'elle faisait oublier l'heure.
 Le bateau s'avançait, sans roulis, sans tangage,
-presque sans bruit : les étoiles pâlirent jusqu'à la
+presque sans bruit: les étoiles pâlirent jusqu'à la
 
 Encore étonné de la première humiliation qu'on
 eût osé infliger au nom anglais, devant lui, Dingley
@@ -943,7 +943,7 @@ et Ted Cox pour voir la guerre.
 En route, Cox, faute de nouvelles vraies, en imagina de symboliques.
 
 Elle est de lui cette histoire d'un si délicieux
-humour britannique : l'histoire des essais de tir au
+humour britannique: l'histoire des essais de tir au
 canon exécutés par les Boers sur un troupeau de
 bœufs parqués dans un enclos. Non seulement
 aucune des bêtes ne fut blessée, mais encore, après
@@ -953,13 +953,13 @@ d'une tête. Sous le feu, une vache avait mis bas.
 Enfin ils virent la vraie guerre, en accompagnant
 les colonnes. Thibert eut La chance de se trouver,
 maintes fois, à peu de distance des points de chute
-des obus. De là ces photographies, parues dans
-l'Illustration, aussi dramatiques que scientifiquement intéressantes : obus tombant au milieu d'une
+des obus. De ces photographies, parues dans
+l'Illustration, aussi dramatiques que scientifiquement intéressantes: obus tombant au milieu d'une
 formation en ordre dispersé — obus éclatant sur
 une voiture de munitions — cheval sans cavalier
 
 éventré par la mitraille. Jamais on n'avait encore
-vu reproduits d'une manière aussi saisissante des
+reproduits d'une manière aussi saisissante des
 hommes et des bêtes immobilisées par l'effroi ou
 éparpillées aux quatre vents du ciel.
 
@@ -971,11 +971,11 @@ auxquels se livre une humanité affolée.
 
 Cox, lui, employait toute l'ingéniosité de son
 esprit à déguiser par des phrases habiles les échecs.
-Quand un régiment était repoussé, ül se retirait sur
+Quand un régiment était repoussé, se retirait sur
 une position inexpugnable; quand une colonne
 battait en retraite, elle opérait un mouvement de
 
-Archie était heureux dans la grande villa : il
+Archie était heureux dans la grande villa: il
 s'était ennuyé à Londres et sur le paquebot. Il
 aimait l'espace. Le parc de la villa, avec ses grands
 arbres, ses fourrés, ses fleurs moins éclatantes que
@@ -985,7 +985,7 @@ les branches se tordaient en forme de cor de chasse,
 à quelques pieds du sol. L'enfant glissait son corps
 souple dans les anneaux des branches.
 
-Sa mère vivait dans l'inquiétude : elle savait la
+Sa mère vivait dans l'inquiétude: elle savait la
 probité professionnelle de Dingley. Jamais il n'hésitait à risquer sa vie pour avoir un document vrai.
 
 Il avait visité des villes décimées par le choléra ou
@@ -994,7 +994,7 @@ lettre où Dingley racontait une affaire un peu chaude
 exalta toutes ses terreurs
 … Une estafette, écrivait-il, vint nous avertir que
 les hussards de la reine étaient aux prises avec
-l'ennemi. Thibert et Cox sautent à cheval : je fais
+l'ennemi. Thibert et Cox sautent à cheval: je fais
 comme eux. Des grenades éclatent à cinquante pas.
 Voici nos bêtes emballées! En quelques minutes
 elles nous emportent à la hauteur des highlanders
@@ -1003,16 +1003,16 @@ intervalles, vers un kopje où s'était fortifié l'ennemi.
 
 Nous mettons pied à terre, tous les trois. En avant
 de la première ligne il semblait qu'il n'y eût pas un
-homme vivant. Or nous savions tous que l'ennemi,
+homme vivant. nous savions tous que l'ennemi,
 abrité derrière les rochers, nous regardait venir,
 attendant pour tirer que nous fussions à quatre
 cents yards. Le soleil levant découpait au ras de
 l'horizon, dans le ciel nuageux, un rectangle bleu.
 Nos ombres étaient exactement perpendiculaires à
 nos corps. Nous hâtions le pas, pressés d'être délivrés de l'angoisse qui précède la première décharge.
-Thibert courait de ci de là, son appareil photographique à la main. Le silence effroyable faisait
+Thibert courait de de là, son appareil photographique à la main. Le silence effroyable faisait
 paraître les secondes des siècles. Près de moi, un
-gordon cria aux Boers d'une voix rageuse : « Mirez!
+gordon cria aux Boers d'une voix rageuse: « Mirez!
 mais tirez donc! » Je brisai le tuyau de ma pipe
 entre mes dents. À quatre cents yards une fusillade
 irrégulière et nourrie commença. Les gordons, avec
@@ -1021,8 +1021,8 @@ s'arrétèrent, derrière des rochers éboulés, pour
 reprendre haleine et attendre les Irlandais qui
 venaient derrière. Tout près de moi, Thibert profita
 de ce répit pour prendre une vue panoramique de
-la bataille : des petits bonshommes épars sur les
-collines, dans la plaine ; de ci, de là, des nuages de
+la bataille: des petits bonshommes épars sur les
+collines, dans la plaine; de ci, de là, des nuages de
 Quand les Irlandais eurent rejoint, l'assaut fut
 relancé. J'arrivai sur la crête avec les premiers
 
@@ -1046,7 +1046,7 @@ Les Boers ouvrent sur lui une terrible fusillade. IL
 se baisse sur Thibert, ouvre la veste, passe la main
 sur la poitrine du Français. Par miracle aucune
 balle ne l'atteint. Il revient vers nous, toujours courant, un paquet sous le bras. Je lui crie
-— Il est mort ?
+— Il est mort?
 
 Et ce diable d'homme me répond
 — Je n'en sais rien. Mais j'ai ses clichés. Les
@@ -1058,22 +1058,22 @@ paillasse dans la cour d'une ferme, légèrement
 blessé et toujours gai. Je lui demandai s'il avaitdes
 nouvelles de Thibert.
 
-— Thibert ! Je crois bien. On l'a ramené ici hier
-au soir, à demi mort. Ce matin il a dû être réveillé
+— Thibert! Je crois bien. On l'a ramené ici hier
+au soir, à demi mort. Ce matin il a être réveillé
 par le bruit des caissons qui roulaient devant la
-ferme. Le pauvre diable avait le délire : il s'estlevé
+ferme. Le pauvre diable avait le délire: il s'estlevé
 pour aller voir. On l'a retrouvé contre la porte, son
 appareil sur ses genoux, accroupi comme une bonne
 femme qui vend des pommes au marché. On l'a
-poussé : il est tombé sur le nez.
+poussé: il est tombé sur le nez.
 
-— Vous pouvez le voir : il est la-bas dans la
-Notre ami était couché sur la terre battue : sa fine
+— Vous pouvez le voir: il est la-bas dans la
+Notre ami était couché sur la terre battue: sa fine
 figure caprine toute barbouillée de boue, les yeux
-grands ouverts... Cette mort m'a beaucoup ému ;
+grands ouverts... Cette mort m'a beaucoup ému;
 mais à la guerre comme à la guerre! Sait-on qui À
 
-La femme de Dingley sentit qu'elle pleuraït : elle À
+La femme de Dingley sentit qu'elle pleuraït: elle À
 
 4 aimait la gaieté gamine du dessinateur. Elle sou
 
@@ -1094,8 +1094,8 @@ Dingley des lettres où elle le pressait de revenir.
 Mais lui, passionné par sa nouvelle vie, les
 poches bourrées de notes, la mémoire pleine d'attitudes, de mots, de récits, de spectacles de guerre ne
 songeait pas au retour. Il envoyait à la côte des
-.… Barr va bien. Il lutte de hardiesse et de ruse
-avec les Boers. Il dynamite les fermes : c'est une
+.… Barr bien. Il lutte de hardiesse et de ruse
+avec les Boers. Il dynamite les fermes: c'est une
 mesure nécessaire. Il est paternel pour les enfants
 et les femmes... La guerre simplifie les êtres et les
 purifie.. Il est propre. J'admire le soin avec
@@ -1104,7 +1104,7 @@ pluie. Quand il reviendra à Londres, ses camarades ne le reconnaîtront plus. S
 il n'a plus ni haine ni convoitise. La guerre, en
 supprimant ses besoins, lui a fait retrouver l'honnêteté de sa nature. Il est redevenu joyeux. L'humidité de Londres ne le pourrit plus. Dans le rang,
 il a pris conscience de la solidarité qui doit lier les
-êtres : chaque jour, il redevient davantage un
+êtres: chaque jour, il redevient davantage un
 homme. Décidément la Providence des voyous de
 Londres m'apparaît sous les espèces et apparences
 d'un sergent recruteur... Vous êtes inquiète pour
@@ -1123,11 +1123,11 @@ Archie était déjà très malade; il ne descendait plus
 au jardin; le docteur redoutait la dysenterie.
 Seule dans cette villa, au milieu de ce parc immense, au bord d'une mer toujours orageuse en
 cette saison, elle fut prise d'une angoisse folle.
-L'Hindoue ne pouvait la rassurer : l'âme de cette fille était si enfantine! Au moins amusait-elle
+L'Hindoue ne pouvait la rassurer: l'âme de cette fille était si enfantine! Au moins amusait-elle
 Archie en lui racontant le jour et la nuit, pendant
 ses insomnies, des histoires.
 
-Le soir tombait : Dingley, au milieu d'un cercle
+Le soir tombait: Dingley, au milieu d'un cercle
 : d'officiers à qui un soldat faisait le récit d'un engagement auquel il venait d'assister, fut abordé par
 
 — Une dépêche pour vous, Dingley, ditle journaliste en lui tendant un bout de papier qu'un exprès
@@ -1146,7 +1146,7 @@ Le journaliste le suivit:
 je n'arrive pas trop tard, répondit Dingley d'une
 
 Le reporter ouvrit les bras, sans plus témoigner
-d'émotion. Il en avait tant vu mourir d'enfants
+d'émotion. Il en avait tant mourir d'enfants
 depuis quelques mois que la mort, même du fils
 d'un ami, ne le touchait guère.
 
@@ -1158,9 +1158,9 @@ chevaux étaient attachés. Cox reconnut le sien, un
 alezan éborgné par une balle et sans queue.
 . — Il n'est pas joli joli, dit-il en souriant, mais
 il est bon.
-| Dingley se mit en selle.
+Dingley se mit en selle.
 — Reconnaîtrez-vous votre route? demanda le
-_ reporter. À votre place, je demanderais un guide
+reporter. À votre place, je demanderais un guide
 — Inutile. Les chevaux crevés marquent la route.
 Dingley s'élança de toute la vitesse de son petit
 cheval, sur le Veldt, dans la direction de Bloemfontein. La nuit était assez claire. Autour du cavalier, aussi loin que la vue pouvait s'étendre, une
@@ -1179,7 +1179,7 @@ Un lourd silence écrasait le Veldt. Dingley ne voyait,
 n'entendait plus rien. Son cheval s'arrêta net et
 refusa d'avancer. Il mit pied à terre. Le sol fraîchement remué s'enfonçait sous ses pas. Sa botte
 découvrit la face d'un homme enfoncé dans la boue.
-Un combat récent s'était livré là : on avait enterré,
+Un combat récent s'était livré: on avait enterré,
 à la hâte, les morts dans ce champ. Il était tombé
 sur un charnier. Il allait, traînant son cheval par la
 bride. Il avait l'impression de patauger dans une
@@ -1187,12 +1187,12 @@ sanglante bouillie, d'écraser des têtes, des bras,
 des poitrines. Ses pieds se décollaient difficilement de la terre humide, comme si les morts le
 tiraient par les bottes. Dans un éclair, il se souvint
 de toutes les maisons qu'il avait habitées et où il
-aurait pu être à l'abri cette nuit : les cabines de
+aurait être à l'abri cette nuit: les cabines de
 transatlantiques, les bungalows de l'Inde, son
 appartement de Londres, la villa où vivait Jeanne
-et l'enfant malade. Lentement, à la peur vague qui !
+et l'enfant malade. Lentement, à la peur vague qui!
 l'avait envahi, succédait l''étonnement d'être, lui,
-l'homme le plus lu du monde, à cette heure, seul,
+l'homme le plus du monde, à cette heure, seul,
 dans un charnier, au milieu du Veldt, halant son
 cheval par la bride. En ce moment que faisait
 Archie? S'il allait mourir? Il ne s'émouvait guère
@@ -1201,13 +1201,13 @@ lui. Mais la mort de son fils lui apparaissait d'une
 autre nature que les autres, — inique — mons-*
 trueuse et, au fond, impossible. Il se remit en selle,
 
-ÿ enfonça ses éperons dans les flancs de sa bête et
+enfonça ses éperons dans les flancs de sa bête et
 partit ventre à terre, droit devant lui, au jugé,
 vers Bloemfontein.
 
 Son cheval l'amena près d'une ferme dynamitée
 dont il ne restait que les murs
-— C'est toi, Piet Retief ? demanda une Voix.
+— C'est toi, Piet Retief? demanda une Voix.
 
 Dingley était tombé sur un campement boer. Il
 
@@ -1222,18 +1222,18 @@ auprès de son fils, que Archie pouvait mourir sans
 
 . qu'il en fût même averti, il répondit avec une brus-
 
- querie impolie à un jeune Boer qui lui demandait, dans l'anglais le plus élégant, qui il était et com-
-| ment il passait si tard dans ces parages.
+querie impolie à un jeune Boer qui lui demandait, dans l'anglais le plus élégant, qui il était et com-
+ment il passait si tard dans ces parages.
 
-. — Vous nous permettrez de visiter vos poches, répondit le Boer : c'est l'usage de la guerre.
+. — Vous nous permettrez de visiter vos poches, répondit le Boer: c'est l'usage de la guerre.
 
-j Dingley lui remit son calepin, ses notes et la dépêche de Jeanne.
+Dingley lui remit son calepin, ses notes et la dépêche de Jeanne.
 
 Le chef du poste parcourut rapidement les pa- piers à la lueur d'un rai de cave qu'un homme
 tenait allumé à la hauteur de ses yeux. Quand il eut
 fini son inspection, il se découvrit et salua profondément Dingley.
 
-__ Enchanté, sir, de vous connaître. Je ne m'attendais pas, cette nuit, à recevoir le premier romancier de l'Angleterre. En disant ces mots, il remit à
+Enchanté, sir, de vous connaître. Je ne m'attendais pas, cette nuit, à recevoir le premier romancier de l'Angleterre. En disant ces mots, il remit à
 l'écrivain tous ses papiers. Les autres paysans,
 voyant que la capture manquait d'intérêt, s'étaient
 déjà défilés, sans demander l'autorisation à leur
@@ -1243,15 +1243,15 @@ Quelques brins de paille humide ne réussissaient
 pas à cacher la terre battue. Le Boer invita Dingley à
 
 — Je vous prends votre lit?
-__ Vous êtes mon hôte. Désolé de ne pasen avoir
+Vous êtes mon hôte. Désolé de ne pasen avoir
 un meilleur à vous offrir. Si vous étiez venu hier,
 la maison était encore très confortable. Mais on l'a
 fait sauter ce matin après un petit combat.
 — Qui s'est livré non loin d'ici
-_ A cinq ou six milles. Vous avez dû passer
+A cinq ou six milles. Vous avez passer
 ttpar la
-__ On a tué beaucoup de monde? J'ai traversé un
-_ N...on : Un petit engagement, une dizaine de
+On a tué beaucoup de monde? J'ai traversé un
+N...on: Un petit engagement, une dizaine de
 morts, tout au plus. Dingley fut surpris. Sous l'empire de l'effroi et de la nuit, il avait cru patauger
 dans une bouillie de chair et de sang, quand ilmarchaït dans une terre détrempée.
 
@@ -1279,12 +1279,12 @@ comment s'y prendre pour engager l'entretien.
 — Me permettez-vous, sir, dit-il enfin en s'adressant à son compagnon, de vous demander votre
 pays d'origine. L'excellence de votre anglais...
 
-— Je suis né près d'Abrahamskraal, pas loin
+— Je suis près d'Abrahamskraal, pas loin
 d'ici. Je m'appelle Villiers, et je suis ancien élève
 
 d'Oxford... A mon tour, vous me permettrez de
 vous demander si vous êtes pressé de revenir à la
-Côte ? La dépêche que j'ai eu l'indiscrétion de parcourir.
+Côte? La dépêche que j'ai l'indiscrétion de parcourir.
 — Oui, répondit Dingley avec une angoisse qu'il
 ne parvint pas à dissimuler, un enfant malade.
 — Vous pourrez partir à l'aube, interrompit le
@@ -1310,7 +1310,7 @@ cordon de lumière dorée.
 Le guide de Dingley était un enfant d'une quinzaine d'années, monté à cru sur sa bête, les jambes
 ballantes. Il semblait ne faire qu'un avec son cheval,
 qu'il excitait seulement de la voix. Son corps
-souple suivait tous les mouvements de l'animal. II
+souple suivait tous les mouvements de l'animal.
 était d'une souveraine élégance.
 
 Dingley songeant à Archie pensait qu'il serait heureux s'il acquérait, un jour, cette maîtrise de cava- lier. Tout en galopant, il adressa plusieurs fois la
@@ -1322,11 +1322,11 @@ tromper. Vous n'avez qu'à vous diriger sur cet
 arbre. Et l'enfant montrait du doigt à l'horizon un
 arbre grêle qui ressemblait à un peuplier.
 
-Dingley remercia son guide : il allait repartir au
+Dingley remercia son guide: il allait repartir au
 galop. Mais l'enfant saisit son cheval par la bride
-— Excusez, sir ; c'est un de nos chevaux que vous
+— Excusez, sir; c'est un de nos chevaux que vous
 
-Dingley le regarda Stupéfait : il montait le cheval
+Dingley le regarda Stupéfait: il montait le cheval
 que Ted Cox lui avait prêté. Et c'était bien en effet
 un cheval boer.
 
@@ -1337,35 +1337,35 @@ un cheval boer.
 — Après tout, il a raison, pensa Dingley, cette
 bête n'est pas à moi.
 
-I1 descendit de cheval, très dépité.
+descendit de cheval, très dépité.
 
 L'enfant salua, siffla le cheval de Dingley et s'éloigna lestement avec les deux bêtes.
 
-Dingley se sentit vieux, misérable, ridicule ; il se
+Dingley se sentit vieux, misérable, ridicule; il se
 hâta dans le Veldt. Quand il arriva à Klipsdrift, le
-train était en gare; aucune voiture de voyageurs .
-n'était accrochée à la machine ; rien que des
+train était en gare; aucune voiture de voyageurs.
+n'était accrochée à la machine; rien que des
 fourgons remplis de blessés qu'on évacuait sur
 Bloemfontein. Les Boers, embusqués le long dela
 voie, avaient tiré sur le train. La cheminée de la
 locomotive était trouée de balles.
 
-_— C'est bien le premier et le dernier train qui
-passera dans la journée, annonça le mécanicien. !
+C'est bien le premier et le dernier train qui
+passera dans la journée, annonça le mécanicien.!
 Dingley se logea dans le tender, la seule place libre
 de blessés et qui n'empestät pas le iodoforme. Le
 ballast de la voie récemment réparée n'était pas
-sûr : le train n'avançait qu'avec une extrême
+sûr: le train n'avançait qu'avec une extrême
 lenteur. De loin en loin, des fermes en ruines, des
 chars démontés, des postes de soldats en haillons.…
 
 Sur le quai, la première figure connue qu'aperçut à
 Dingley fut celle de Harvey, ce jeune lieutenant
-blessé à Colenso qu'il avait rencontré sur le paque- « bot. Harvey s'avança vers Jui, la main tendue : À
+blessé à Colenso qu'il avait rencontré sur le paque- « bot. Harvey s'avança vers Jui, la main tendue: À
 
 — Déjà de retour?
 — Archie malade... je reviens... À
-— Pauvre enfant! Et qu'at-il?.… }:
+— Pauvre enfant! Et qu'at-il?.…
 
 départ pour le Cap, aujourd'hui?
 
@@ -1374,8 +1374,8 @@ PNelne sais. Tous les trains sont réquisi - tionnés pour les approvisionnement
 Si vous voulez partir, il vous faut une autorisation du commandant de place. Je vous accompagne.
 
 Au quartier général, Dingley passa sa carte à un
-officier d'ordonnance : il fut introduit, sur le champ,
-auprès du major. La figure de sir John Carey avait la couleur de la lie d'un vieux bordeaux : il
+officier d'ordonnance: il fut introduit, sur le champ,
+auprès du major. La figure de sir John Carey avait la couleur de la lie d'un vieux bordeaux: il
 était bègue et bavard.
 
 — Une minute. je n'ai qu'une minute à vous
@@ -1399,23 +1399,23 @@ que lui disait sir John irritait son impatience.
 
 Enfin il reçut son laissez-passer et il prit aussitôt
 Le major le rattrapa dans le couloir
-__ Vous di... di... dînez au mess, ayec nous, ce
+Vous di... di... dînez au mess, ayec nous, ce
 soir? Le train ne part qu'à onze heures. Vous avez
 le temps... C'est dit?
 Dingley voulut refuser. Il avait bien le cœurà
 diner en compagnie! Mais le loquace officier avait
 déjà fait demi-tour. Il se retourna et cria de
-nouveau : C'est dit?
+nouveau: C'est dit?
 — Le diable l'emporte! murmura Dingley.
-__ Cela vous aidera à tromper l'attente, dit Harvey. Que feriez-vous, seul toute la soirée ?
+Cela vous aidera à tromper l'attente, dit Harvey. Que feriez-vous, seul toute la soirée?
 Il accompagna l'écrivain jusqu'à la porte de
 son hôtel. Dingley commanda ses malles.
-I1 plaça dans une sacoche de cuir qu'il portait
+plaça dans une sacoche de cuir qu'il portait
 toujours avec lui les pages rédigées de son roman,
-ses notes, ses photographies ; il paya ses fournis- à
+ses notes, ses photographies; il paya ses fournis- à
 seurs, fit quelques visites indifférentes. Quand il
 eut tout fini, il s'aperçut qu'il lui restait encore
-deux heures avant le dîner : il erra dans les rues de
+deux heures avant le dîner: il erra dans les rues de
 Bloemfontein. Lors de son premier voyage au Cap, À
 
 ilavait visité la ville. C'était alors une ville de
@@ -1434,7 +1434,7 @@ Il ne parvenait pas à s'intéresser au mouvement
 de la vie. Derrière ses lunettes, ses yeux chasseurs
 ne guettaient rien. Entre lui et les choses et les êtres
 qui allaient et venaient autour de lui, s'interposait
-une chambre d'enfant malade... Il sortit de Bloemfontein : des soldats étaient occupés à tendre des
+une chambre d'enfant malade... Il sortit de Bloemfontein: des soldats étaient occupés à tendre des
 grillages pour rendre plus efficace la besogne des
 
 De dix yards en dix yards une sonnette tintait à
@@ -1442,7 +1442,7 @@ toute tentative d'escalade. Dingley montra son
 laissez-passer. Il se promena dans la plaine défoncée
 et stérile comme un champ de manœuvres. La solitude aviva la souffrance sourde de son cœur...
 
-_ Archie était-il plus mal? Pourquoi sa femme ne lui
+Archie était-il plus mal? Pourquoi sa femme ne lui
 avait-elle pas envoyé une nouvelle dépêche? S'il
 allait arriver trop tard”? Si... ces trains de guerre
 ne marchaient pas... Les ponts n'étaient pas solides.. Les Boers, peut-être, réussiraient à couper
@@ -1453,7 +1453,7 @@ des rues grouillantes de soldats faisaient une diversion à son inquiétude. Il 
 ligne des sentinelles.
 
 , L'heure du dîner approchaiït. A la porte du mess,
-il rencontra un médecin militaire qu'il avait connu aux Indes : Mr. Colgrave. Ce vieillard avait vu ,
+il rencontra un médecin militaire qu'il avait connu aux Indes: Mr. Colgrave. Ce vieillard avait,
 mourir un grand nombre d'hommes et il avait toujours à raconter quelque significative histoire. Il
 marchait cassé, en s'appuyant sur un jonc blanc,
 à pomme d'ivoire. Au War-Office, on le tenait pour
@@ -1463,14 +1463,14 @@ l'armée se moquaient de sa science surannée.
 en tendant à Dingley ses doigts tourmentés par la
 goutte. Sir John Carey m'assure que vous revenez
 — Je pars ce soir. Mon fils est malade.
-Mr. Colgrave fit la grimace :
+Mr. Colgrave fit la grimace:
 — Mauvaise affaire pour les enfants d'être à
-malades en ce moment, dans ce pays! Imaginezvous, ils meurent comme des mouches. /
-Dingley connaissait les dernières statistiques : la
+malades en ce moment, dans ce pays! Imaginezvous, ils meurent comme des mouches.
+Dingley connaissait les dernières statistiques: la
 mortalité infantile était terrifiante. Maïs tant que À
-Archie avait été bien portant, il n'en avait pas eu
+Archie avait été bien portant, il n'en avait pas
 Le Major avait bégayé à tous les officiers qu'il
-avait vus que Dingley dinait, ce soir-là, au mess. L'
+avait vus que Dingley dinait, ce soir-là, au mess.
 Aussi la salle était pleine quand le romancier entra.
 Chacun s'attendait à lui entendre raconter deshis
 toires et des impressions de guerre. Mais Dingley
@@ -1479,7 +1479,7 @@ tristesse de sa mine découragea les questionneurs.
 Le bruit se répandit vite, autour de la table, que
 son fils était malade. Il écoutait, l'esprit ailleurs,
 ce qu'on disait près de lui. La grimace de Mr. Colgrave l'avait épouvanté. Le vieux médecin était à
-l'autre bout de la table : il aurait voulu se lever,
+l'autre bout de la table: il aurait voulu se lever,
 aller à lui, lui parler. De quoi, il ne savait pas au
 juste, mais lui parler de maladies, d'enfants, de
 ceux qu'il soignait à l'hôpital. Une pitié subite
@@ -1501,20 +1501,20 @@ lui avait jusqu'alors prêtée. Il avait perdu cet
 intérêt passionné qu'il avait à voir, à entendre. Le
 pittoresque des choses et des êtres ne l'intéressait
 plus. Il devinait qu'il y avait des réalités profondes
-qu'il n'avait jamais soupçonnées ; il entrevit le
-monde de la douleur... Ces ofliciers qui étaient là et dont quelques-uns étaient ses amis lui parurent
+qu'il n'avait jamais soupçonnées; il entrevit le
+monde de la douleur... Ces ofliciers qui étaient et dont quelques-uns étaient ses amis lui parurent
 d'une puérilité ridicule. La plupart, en somme,
 étaient de ces professionnels abêtis, comme il en
 existe danstoutes les armées du monde... Pour la première fois de sa vie Dingley jugeait impartialement des hommes de son pays. Il s'était toujours contenté
-de les regarder, de décrire le son de leur voix, leur !
+de les regarder, de décrire le son de leur voix, leur!
 allure, leurs gestes, leurs tics. Jamais il ne s'était
 . demandé quelle était leur valeur d'hommes. Il n'eut
 pas le loisir de réfléchir à cet état nouveau de sa
 sensibilité, qui pouvaitavoir une si grande influence
-sur son talent : l'heure était venue de partir.
+sur son talent: l'heure était venue de partir.
 A ce moment le major bègue se leva et portant à
-travers le verre plein Dingley aperçut son nez d'i- .
-vrogne démesurément grossi par la réfraction :
+travers le verre plein Dingley aperçut son nez d'i-.
+vrogne démesurément grossi par la réfraction:
 — Messieurs, à la santé de l'illustre écrivain qui...
 Côte pour suivre les opérations de la guerre.
 — L'imbécile! murmura Harvey. On n'est pas
@@ -1524,12 +1524,12 @@ qui attendait à la porte. Ils franchirent sans mot
 dire la distance qui les séparait de la gare. Le lieu- y LEUR
 
 tenant sentait que tout ce bruit de fête avait irrité
-| Dingley et qu'il voulait du silence.
+Dingley et qu'il voulait du silence.
 
 — Vous me télégraphierez, n'est-ce pas? dit Harvey en descendant de la voiture.
 
 — Non. A Pretoria. Je viens de recevoir l'ordre
-de rejoindre French. J'aime mieux ça que de rester
+de rejoindre French. J'aime mieux que de rester
 ici dans la crotte.
 
 — Sans doute, sans doute, répondit distraitement
@@ -1554,16 +1554,16 @@ French avec les troupes de Botha.
 Le train n'avançait qu'avec une désespérante
 lenteur. Une pluie fine et inlassable ajoutait sa
 queue du train, du chauffeur aux soldats employés
-à la litière des bêtes embarquées, la même inquiétude : une surprise de l'ennemi. Dingley se serait
+à la litière des bêtes embarquées, la même inquiétude: une surprise de l'ennemi. Dingley se serait
 estimé heureux, il y avait seulement quelques jours,
 d'assister à l'attaque d'un convoi. Aujourd'hui il
-était le plus anxieux des voyageurs : si les Boers
+était le plus anxieux des voyageurs: si les Boers
 allaient faire dérailler le train! Tous les cahots
-inattendus, tous les arrêts l'inquiétaient. S'il était Ç .
+inattendus, tous les arrêts l'inquiétaient. S'il était.
 étendu sur sa chaise, il se levait, faisait rouler la
 porte de la voiture sur ses gonds; il se penchaït au À
-dehors : toujours la plaine noyée sous la pluie.
-La machine stoppait : des soldats en guenilles
+dehors: toujours la plaine noyée sous la pluie.
+La machine stoppait: des soldats en guenilles
 approchaiïent. On leur jetait des caisses, des
 paquets. ils aidaient à débarquer des bœufs, des
 chevaux... Pourquoi le train s'était-il arrêté ici plu- À
@@ -1572,11 +1572,11 @@ village, de maison. Ou bien on approchait d'un à
 pont. La locomotive sifflait et ralentissait sa À
 marche. Les passerelles jetées en hâte pourremplacer les ponts que les Boers en retraite avaient
 
-| fait sauter étaient si légères qu'un train à l'allure
+fait sauter étaient si légères qu'un train à l'allure
 brutale de trente milles les aurait écrasées.
 
 voie serait plus sûre. On avancerait plus vite... Il
-espérait trouver là-bas une dépêche de Jeanne : il
+espérait trouver là-bas une dépêche de Jeanne: il
 fut déçu. Aucune dépêche ne l'attendait. Son
 
 Une nuit — il somnolait, étendu sur la chaise
@@ -1592,10 +1592,10 @@ fallait ramasser tous Les blessés.
 
 — Alors! Faut-il qu'il crève comme un chien,
 contre la voie, s'écrièrent des hommes furieux.
-Nous ne pouvons l'emporter : il ne peut se teniren
+Nous ne pouvons l'emporter: il ne peut se teniren
 
 Dingley mit la tête à la portière. Devant lui une
-immense étendue déserte : un peloton de soldats
+immense étendue déserte: un peloton de soldats
 se partageaient les cartouches qu'on leur lançait
 d'un wagon par paquets. Un blessé, la chemise
 ouverte sur la poitrine, était couché devant eux sur la terre nue.
@@ -1629,13 +1629,13 @@ Dingley demanda au chef de train
 — Ne voyez-vous aucun inconvénient à ce. qu'on
 l'étende sur ma chaise longue.
 
-— Ça vous regarde, sir, vous êtes maître chez
+— vous regarde, sir, vous êtes maître chez
 vous.
 
 Dingley fit coucher sur sa chaise longue le blessé,
 qui lui envoya un regard tel que l'artiste n'en avait
-jamais vu de plus émouvant jaillir d'une prunelle
-humaine : un regard chargé de toute la reconnaissance que ne pouvaient traduire ni les gestes du
+jamais de plus émouvant jaillir d'une prunelle
+humaine: un regard chargé de toute la reconnaissance que ne pouvaient traduire ni les gestes du
 blessé ni sa voix.
 
 Le train sifila quelque temps, les camarades galopèrent sur leurs petits chevaux hongrois à la hauteur du wagon; quand ils se virent dépassés par le
@@ -1664,7 +1664,7 @@ Mais cet homme était aussi muet que s'il avait été
 mort. Couché raide sur la chaise longue, les yeux
 attachés aux planches noires du plafond, il était
 effrayant à voir. De temps en temps, un cahot du
-train lui arrachait un gémissement sourd ; les traits
+train lui arrachait un gémissement sourd; les traits
 de son visage se convulsaient, et puis il reprenait
 sa rigidité cadavérique.
 
@@ -1675,18 +1675,18 @@ voir remuer le bout de sa langue.
 
 Il ressemblait à Barr; il avait la taille, les yeux, À
 la face blafarde de son héros. Songeant à son roman, À
-l'écrivain fit une comparaison mélancolique :
+l'écrivain fit une comparaison mélancolique:
 — Barr aussi, paralysé.
 
 JIl aurait mieux fait de rester à Londres, de ne
 connaître pour décrire la guerre que les nouvelles
 - données par les journaux. Il y avait, décidément,
-des choses capables de troubler la vision de l'artiste le mieux trempé. Ainsi, il avait souvent vu des gens mourir, sans. en ressentir le moindre effroi.
-Mais il n'avait pas encore vu de blessé pareil à ce
+des choses capables de troubler la vision de l'artiste le mieux trempé. Ainsi, il avait souvent des gens mourir, sans. en ressentir le moindre effroi.
+Mais il n'avait pas encore de blessé pareil à ce
 singulier camarade de chambre — un mort vivant.
 Et Archie se porterait bien.
 
-Il se remit à songer à son fils : « Celui-là ne pouvait pas mourir. » Il lui semblait que son fils était
+Il se remit à songer à son fils: « Celui-là ne pouvait pas mourir. » Il lui semblait que son fils était
 plus assuré contre la mort que nul être au monde.
 Mais la fatigue du voyage, la lassitude d'avoir
 assisté depuis tant de jours à des spectacles de carnage, la certitude que les enfants boers mouraient
@@ -1696,13 +1696,13 @@ lui, concourut à l'envahir d'une morne tristesse.
 Arrivés à De Aar, il remit Humphry entre les
 
 . mains du médecin de service à la gare. Il serra
-doucement la main du blessé et lui dit sans conviction : « Au revoir mon ami, au rev... » Il n'eut
+doucement la main du blessé et lui dit sans conviction: « Au revoir mon ami, au rev... » Il n'eut
 pas le courage d'achever ce mot: le regard du soldai le dispensait de la banalité de ce souhait. Au
 médecin qui le reconduisait à la porte de la salle
 d'attente qui servait d'infirmerie, Dingley demanda
-— Il va mourir, n'est-ce pas ?
+— Il mourir, n'est-ce pas?
 
-— Hélas ! non. Il est fort possible qu'il vive!
+— Hélas! non. Il est fort possible qu'il vive!
 
 Le jour suivant il arrivait au Cap. Une légère
 voiture conduite par un cocher noir et attelée de
@@ -1711,26 +1711,26 @@ chevaux poussifs — toutes bêtes vigoureuses avaient
 villa habitée par sa femme. La maison, imitée
 d'une pagode chinoise, dressait ses toits relevés aux
 angles, entre deux rangées de cyprès, vers le ciel
-noir : elle semblait déserte.
+noir: elle semblait déserte.
 
 Dingley escalada le perron. Sa femme avait
 entendu grincer la voiture sur le sable de l'allée.
 Elle demanda penchée sur la rampe de l'escalier
 — (est moi!
 Déjà il était près d'elle, sur un large palier où
-s'ouvraient trois portes : deux étaient sombres; la
+s'ouvraient trois portes: deux étaient sombres; la
 troisième éclairée par des bougies brûlant au fond
-d'une chambre. |
+d'une chambre.
 — Vous arrivez trop tard!
 
 — Mort? cria Dingley d'une voix rauque.
 
-Elle tomba dans ses bras : étroitement enlacés ils
+Elle tomba dans ses bras: étroitement enlacés ils
 L'Hindoue sortit de la chambre éclairée, au fond
 
 de laquelle luisait la tête pâle de Archie entre les
 bougies allumées. Elle prit la main de Dingley et la
-_ baïsa. Elle demanda avec douceur
+baïsa. Elle demanda avec douceur
 — Madame, la clef de l'armoire aux draps, je
 vous prie.
 
@@ -1754,9 +1754,9 @@ douleur au chloroforme d'un conte.
 
 Par une insupportable nuit d'orage austral, elle
 descendit de sa chambre vêtue d'un peignoir blanc,
-pieds nus. L'escalier était désert, la porte entrebâillée. Sur le perron, elle entendit une voix chantante : la voix de l'Hindoue qui continuait l'histoire
+pieds nus. L'escalier était désert, la porte entrebâillée. Sur le perron, elle entendit une voix chantante: la voix de l'Hindoue qui continuait l'histoire
 commencée à bord du bateau, au commencement
-de leur voyage, l'histoire de la belle Harribakti :
+de leur voyage, l'histoire de la belle Harribakti:
 Sa voix était monotone et douce, comme un ruissellement de source. Elle disait
 .… La princesse sortit du palais, toute nue: Ses
 longs cheveux noirs retombaient sur son visage:
@@ -1767,7 +1767,7 @@ serrés que la trame d'un châle de cachemir. Personne ne vit ainsi la Vierge nu
 Jeanne descendit le perron- Dingley accroupi sur
 les marches, la tête dans ses mains, ne la vit pas.
 L'Hindoue la regarda passer sans interrompre Sa
-Jeanne n'entendit pas la fin du conte : elle erra
+Jeanne n'entendit pas la fin du conte: elle erra
 dans le parc une demi-heure. Quand elle revint,
 
 Dingley et l'Hindoue étaientimmobiles et silencieux
@@ -1781,7 +1781,7 @@ innombrables, au fond de ses prunelles. Il dit
 — Ah! répondit-elle, si nous n'étions jamais
 venus ici! Si vous n'aviez voulu revoir ni la
 Tamise, ni les Docks, ni la Bourse, ni les rues de la
-Cité, ni cette terre, ni cette guerre !
+Cité, ni cette terre, ni cette guerre!
 
 — Les choses devaient être ainsi, maîtresse, dit
 à demi-voix l'Hindoue. Dingley reprit
@@ -1802,13 +1802,13 @@ le mardi 15 avril 1902
 9, rue du Pont
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
-la rédaction ni sur l'administration : ces fonctions
+la rédaction ni sur l'administration: ces fonctions
 
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;
 et des abonnements de propagande à huit francs.
 
-Il va sans dire qu'il n'y a pas une seule différence
+Il sans dire qu'il n'y a pas une seule différence
 de service entre ces différents abonnements. Nous voulons seulement que nos cahiers soient accessibles à tout
 le monde également.
 

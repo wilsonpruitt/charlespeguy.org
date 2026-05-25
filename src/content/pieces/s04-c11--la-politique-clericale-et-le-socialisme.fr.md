@@ -7,8 +7,8 @@ author: edouard-berth
 isAvertissement: false
 wordCount: 15595
 ---
-_ la politique anticléricale
-_ et le socialisme |
+la politique anticléricale
+et le socialisme
 rue de la Sorbonne, au rez-de-chaussée
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
@@ -20,13 +20,13 @@ Nous mettons ce cahier dans le commerce; nous le
 
 vendons un franc
 
-L'essai que l'on va lire a été publié pour la première
+L'essai que l'on lire a été publié pour la première
 fois dans la Revue Socialiste, numéro de novembre,
 15 novembre 1902. On doit noter à l'avantage de Gustave Rouanet, député, directeur de la Revue Socialiste,
 qu'il a justement et libéralement, comme directeur dela
-Revue, accueilli et mis en bonne place un article fortement contraire à la politique de gouvernement qu'il |
-soutient comme député. Non seulement ce déplacement |
-d'attitude est tout à l'avantage personnel de M. Gustave |
+Revue, accueilli et mis en bonne place un article fortement contraire à la politique de gouvernement qu'il
+soutient comme député. Non seulement ce déplacement
+d'attitude est tout à l'avantage personnel de M. Gustave
 Rouanet, mais il est en général à l'avantage personnel
 de certains métiers.
 
@@ -34,7 +34,7 @@ C'est un fait notoire, et notable, que dans les longs
 débats qui se poursuivent pour et contre la liberté de la
 conscience les revues et les livres, qui sont d'une matière et d'une forme plus épaisse, d'un travail plus épais,
 et, ainsi, presque toujours plus sérieux, ont pour la
-plupart défendu la liberté ; au contraire la liberté n'a
+plupart défendu la liberté; au contraire la liberté n'a
 guère été opprimée que par des hommes de travail léger
 ou de nul travail, par des hommes de gouvernement, de
 parlement, de conférence, de discours, d'allocution, de
@@ -46,7 +46,7 @@ On peut avoir ou n'avoir pas, on peut avoir plus ou
 L. moins l'opinion de Berth sur la politique anticléricale
 et le socialisme: personnellement je crois que je suis
 devenu anarchiste comme il ne l'est pas; toutes opinions
-libres sont librement discutables ; — ce qui est indiscutable, c'est qu'il y a plus, beaucoup plus de travail et
+libres sont librement discutables; — ce qui est indiscutable, c'est qu'il y a plus, beaucoup plus de travail et
 beaucoup plus de réalité, beaucoup plus de pensée, beaucoup plus de réalité repensée, beaucoup plus de justice
 depuis trois ans dans tous les discours de tous les
 ministres, de tous les sénateurs, de tous les députés, de
@@ -57,7 +57,7 @@ et dans les articles de tous les journalistes, sur les conflits primordiaux qui 
 Les beaux temps de l'anticléricalisme sont revenus. Toute la politique actuelle gravite autour du
 péril clérical, et la lutte contre l'Église reprend plus
 vigoureuse que jamais. L'affaire Dreyfus a mis à
-nu le travail souterrain accompli par le catholicisme pour reconquérir la société moderne. Comme
+le travail souterrain accompli par le catholicisme pour reconquérir la société moderne. Comme
 on l'a fait observer très justement, l'Église est en
 train de payer son attitude antirevisionniste; on n'a
 pas osé toucher à l'État-Major; les conseils de guerre
@@ -66,17 +66,17 @@ que le nôtre, aucun gouvernement n'oserait heurter
 de front la religion patriotique, cette religion que
 la Troisième République, pour sa part, a si diligemment cultivée. Mais si le pays est ardemment
 patriote, il est non moins ardemment anticlérical,
-— M. Jules Lemaïître, qui a dû se séparer de
-én France un nationalisme radical et anticlérical
+— M. Jules Lemaïître, qui a se séparer de
+France un nationalisme radical et anticlérical
 aurait peut-être des chances de triompher, — et le
-ministère Waldeck-Rousseau a pu faire voter cette
+ministère Waldeck-Rousseau a faire voter cette
 
 loi de représailles et de « défense républicaine »
-qui s'appelle la loi sur les associations ou plutôt la .
+qui s'appelle la loi sur les associations ou plutôt la.
 loi contre les congrégations.
 
 A cette lutte contre le cléricalisme, les socialistes
-s'associent pleinement, sans réserves et sans réticences d'aucune sorte ; ils renchérissent même sur
+s'associent pleinement, sans réserves et sans réticences d'aucune sorte; ils renchérissent même sur
 les simples radicaux et vont jusqu'à proposer des
 mesures du plus pur jacobinisme. Et ce n'est pas
 seulement au Parlement que les socialistes tiennent
@@ -84,11 +84,11 @@ le record de l'anticléricalisme: les maires socialistes
 passent leur temps à prendre les arrêtés les plus
 étranges et les plus bizarres dans le seul but de « taquiner » les curés. Et qu'on ne se permette pas la
 
-: moindre observation ! Le « Bloc » ne badine pas, et
+: moindre observation! Le « Bloc » ne badine pas, et
 on aura vite fait, si l'on tient à rester poli, de vous
-traiter de « métaphysicien », de « dupe candide », de
+traiter de « métaphysicien de « dupe candide de
 
-L « légiste ahuri », de « libérâtre », à moins qu'on
+« légiste ahuri de « libérâtre à moins qu'on
 n'insinue, plus brutalement et plus simplement, que
 vous trahissez la République, la Démocratie, l''Esprit moderne. Et cet état d'esprit est presque universel parmi les socialistes. Je relève seulement,
 comme protestations, un article de Briquet dans Le
@@ -103,7 +103,7 @@ de la Quinzaine, (x) et les observations dont Péguy
 la fait suivre, et où, du point de vue dreyfusiste,
 l'étrangeté de la conduite actuelle desex-dreyfusards
 est très justement mise en relief. Mais, à part ces
-deux articles, nous n'avons vu nulle part faire des
+deux articles, nous n'avons nulle part faire des
 
 réserves: et tous les journaux socialistes, y compris
 l'Aurore, sont unanimes pour accabler de leurs
@@ -125,14 +125,14 @@ contre l'Église, puisque l'Église représente par ex-
 cellence l'esprit de domination et l'opposition au
 libre examen. Mais le socialisme doit dans cette
 lutte conserver une attitude originale et rester
-fidèle à lui-même. Or, son esprit est nettement antiidéologique; j'oserai même dire anti-idéaliste : Le
+fidèle à lui-même. Or, son esprit est nettement antiidéologique; j'oserai même dire anti-idéaliste: Le
 socialisme n'est pas une doctrine, une science, une
 philosophie, un nouveau dogmatisme, un nouvel
-absolu ; essentiellement réaliste et relativiste, il ré-
-pugne, par conséquent, à tout idéalisme ; car un
+absolu; essentiellement réaliste et relativiste, il ré-
+pugne, par conséquent, à tout idéalisme; car un
 idéal, qu'est-ce, sinon une abstraction qui prétend
 régenter le réel, le dominer, et qui, née d'un sentimentalisme toujours exclusif, conduit tout droit ses
-partisans à quelque nouveau fanatisme ? Je sais
+partisans à quelque nouveau fanatisme? Je sais
 bien que cette manière d'entendre le socialisme est
 susceptible de heurter beaucoup de gens; on rééditera, sans doute, l'accusation fameuse de « doctrine
 du ventre ». Le monde regorge de gens chez qui le
@@ -148,29 +148,29 @@ Que l'esprit du socialisme soit bien tel cependant
 et qu'il se caractérise essentiellement par l'opposi-
 
 tion à toute idéologie nouvelle, rien de plus clair et
-de plus certain : qu'est-ce, en définitive, que le
-socialisme ? Ce n'est pas autre chose qu'un mouvement social déterminé par la révolte du prolétariat
+de plus certain: qu'est-ce, en définitive, que le
+socialisme? Ce n'est pas autre chose qu'un mouvement social déterminé par la révolte du prolétariat
 contre l'ordre économique actuel. La classe ouvrière
 s'organise, crée des institutions, lutte pour son
-émancipation ; cette émancipation est liée à la ruine
-de certains rapports sociaux objectifs ; mais cela n'a
+émancipation; cette émancipation est liée à la ruine
+de certains rapports sociaux objectifs; mais cela n'a
 rien à voir avec aucune théologie ni aucune métaphysique, et cela n'implique aucun credo nouveau
 que l'humanité dût adopter. La métaphysique,
 l'idéalisme, la religion, tout cela est du domaine
-sentimental, que le socialisme laisse libre et considère comme chose privée ; cela seul est social qui
+sentimental, que le socialisme laisse libre et considère comme chose privée; cela seul est social qui
 est scientifique et impersonnel, susceptible d'être
 traduit en formules juridiques et de devenir le droit.
 C'est en ce sens que le socialisme moderne se dit
 scientifique; non qu'il croie à une science sociale
 planant au-dessus des classes, mais la science n'est
-à ses yeux qu'une systématisation de la pratique ; et
-il est la théorie de la pratique prolétarienne : quand
+à ses yeux qu'une systématisation de la pratique; et
+il est la théorie de la pratique prolétarienne: quand
 le prolétariat se sera élevé à la capacité et qu'il aura
 élaboré dans son sein de nouvelles formes de vie
 économique, son droit deviendra le droit social
 général, puisque le droit n'a rien d'absolu, mais se
 réfère toujours au système dominant des relations
-économiques. Or, c'est là une évolution toute objec7
+économiques. Or, c'est une évolution toute objec7
 
 tive, toute réaliste, où l'idéologie n'a rien à faire et
 par où se concilient pratiquement des antagonismes
@@ -182,20 +182,20 @@ contraire, ainsi que Sorel en a fait si judicieusement la remarque, est presque 
 sinon sanguinaire, — les gens qui ont le cœur géné-
 reux et de l'idéal à revendre voulant toujours faire
 le bonheur de l'humanité malgré elle. Le socialisme
-convie l'humanité, non à embrasser un credo nouveau, mais à vivre une nouvelle vie ; ou plutôt, et ce
+convie l'humanité, non à embrasser un credo nouveau, mais à vivre une nouvelle vie; ou plutôt, et ce
 sera parler plus exactement, le mouvement ouvrier
 crée des cadres nouveaux, des formes nouvelles de
 vie, où l'humanité pourra trouver plus de justice et
-- plus de liberté. Et c'est là une création toute impersonnelle qui ne doit en rien violenter les volontés
+- plus de liberté. Et c'est une création toute impersonnelle qui ne doit en rien violenter les volontés
 individuelles ou les croyances privées, en s'imposant du dehors par une force extérieure quelconque,
 étatiste ou autre, puisqu'elle sortira du jeu même
 des institutions modernes. Sans doute, à cette vie,
 à cette pratique nouvelle de l'humanité, correspondra une théorie nouvelle, une conception spécifique
 des rapports sociaux et pour tout dire, si l'on veut,
-une métaphysique originale ; car, selon les principes
+une métaphysique originale; car, selon les principes
 
 marxistes, ce n'est pas la théorie qui domine la
-pratique, mais la pratique qui détermine la théorie ;
+pratique, mais la pratique qui détermine la théorie;
 et, en dernière analyse, si le socialisme implique
 un idéal nouveau, c'est que cet idéal surgira des
 entrailles mêmes du réel; ce ne sera pas, comme le
@@ -205,15 +205,15 @@ régenter la vie sociale.
 
 Une telle révolution comporte, je le répète, un
 minimum de force, de contrainte et de violence;
-sinon, comment opérer ? Il y a en France, actuellement, trois grandes classes dominantes : les classes
+sinon, comment opérer? Il y a en France, actuellement, trois grandes classes dominantes: les classes
 précapitalistes, qui restent attachées à la religion
 catholique et dont l'idéal social est plus ou moins
-réactionnaire ; les classes capitalistes, qui sont au
+réactionnaire; les classes capitalistes, qui sont au
 pouvoir et se réclament des principes de 89; enfin
 la classe ouvrière, dont le socialisme est l'idéologie.
 
-_ Catholiques, républicains libres-penseurs, socialistes, ce sont les forces du passé, du présent et de
-l'avenir qui seheurtent; le problème consiste à assurer le triomphe des forces de l'avenir, mais comment ? On peut suivre deux voies : la voie étatiste
+Catholiques, républicains libres-penseurs, socialistes, ce sont les forces du passé, du présent et de
+l'avenir qui seheurtent; le problème consiste à assurer le triomphe des forces de l'avenir, mais comment? On peut suivre deux voies: la voie étatiste
 ou jacobine, qui procède par contrainte, croit à la
 puissance de l'Idée, ou plutôt y croit si peu, malgré
 l'idéalisme professé, qu'elle veut mettre à son service la force très positive, très matérialiste et très
@@ -231,47 +231,47 @@ développement interne de la société elle-même;
 elle ne saurait, par conséquent, faire violence à
 aucune croyance, la violence venant toute des
 choses eiles-mêmes, non des hommes. Il est vraiment commode de gémir sur les deux jeunesses, sur
-les deux Frances ; nos rêveurs d'unité dogmatique,
+les deux Frances; nos rêveurs d'unité dogmatique,
 intellectualiste et jacobine, cléricaux à rebours, ont
 
-toujours une conception ecclésiastique de l'unité ;
+toujours une conception ecclésiastique de l'unité;
 la Force, destinée à cette unification mystique et
-transcendantale, seule, change ; le gendarme de
+transcendantale, seule, change; le gendarme de
 l'État et l'instituteur laïque remplacent l'Inquisiteur
 et le frère ignorantin; la métaphysique des Droits
 de l'Homme se substitue à la métaphysique de saint
-Thomas d'Aquin ; on en est quitte pour s'identifier
+Thomas d'Aquin; on en est quitte pour s'identifier
 ingénument avec la Raison et la Liberté et pour
-dire : je suis la Liberté; donc, si mon parti triomphe,
+dire: je suis la Liberté; donc, si mon parti triomphe,
 c'est la Liberté qui l'emporte sur la servitude et le
 
 dogme! Mais vraiment, est-ce nous, socialistes, qui
 pouvons adopter une semblable façon de raisonner,
 nous à qui l'on reproche de créer un État socialiste
 dans l'État, d'opposer classe à classe, prolétariat à
-bourgeoisie, de diviser par là la nation et de pousser à la guerre civile ? Et n'avons-nous pas, en effet,
+bourgeoisie, de diviser par la nation et de pousser à la guerre civile? Et n'avons-nous pas, en effet,
 l'ambition que le monde ouvrier se constitue à
 part du monde bourgeois, grâce à des organismes
 économiques, francs de toute tutelle civile ou religieuse, dressés aussi bien contre l'État que contre
 
-l'Église ? Et, sauf le caractère parfaitement pacifique de nos intentions, demandons-nous autre
+l'Église? Et, sauf le caractère parfaitement pacifique de nos intentions, demandons-nous autre
 chose à la classe bourgeoise que la liberté, le plus
 de liberté possible? Mais si nous réclamons pour
-nous une liberté pleine et entière, allons-nous travailler à la ravir aux autres ? Ne devons-nous pas
+nous une liberté pleine et entière, allons-nous travailler à la ravir aux autres? Ne devons-nous pas
 nous rappeler sans cesse, qu'intéressés plus qu'aucun autre parti à la liberté, toute mesure antilibérale
 est destinée fatalement à retomber sur nous de tout
-son poids ? Il suflit de penser à l'article 12 de la loi
+son poids? Il suflit de penser à l'article 12 de la loi
 Waldeck-Rousseau, cet article que quinze socialistes, plus anticléricaux que socialistes, n'ont pas
-hésité à voter ! Non, moins qu'à personne, il ne nous
+hésité à voter! Non, moins qu'à personne, il ne nous
 est permis de pratiquer une politique aveugle et
-imprudente, hypnotisée par le moment présent ;
+imprudente, hypnotisée par le moment présent;
 parti d'avenir, nous devons avoir au plus haut degré
 cette prévoyance, sauvegarde contre l'arbitraire,
 
 qui doit caractériser toute grande et large politique.
 A voir l'esprit dont républicains et socialistes sont
 animés aujourd'hui, ne dirait-on pas que les ministères sont soudain devenus éternels et les réactions
-impossibles ? Et puis, non seulement la classe
+impossibles? Et puis, non seulement la classe
 ouvrière a besoin du maximum de liberté pour
 pouvoir accomplir son devenir dans les cadres de
 la société actuelle, — et c'est en cela qu'elle est inté-
@@ -288,34 +288,34 @@ Marx nommait si heureusement le surnaturel démo-
 contre, l'idée de la lutte de classe et les principes
 marxistes en général sont fort en baisse. Oui, il
 semble aux socialistes actuels que rien ne doive
-échapper à l'action miraculeuse de l'État : sa puissance mystique doit violenter le corps social, précipiter l'évolution, créer de toutes pièces une bienheureuse unité dogmatique. Il suffirait, par exemple,
+échapper à l'action miraculeuse de l'État: sa puissance mystique doit violenter le corps social, précipiter l'évolution, créer de toutes pièces une bienheureuse unité dogmatique. Il suffirait, par exemple,
 que l'État reprit le monopole de l'enseignement
 
 pour que, par dessus les antagonismes sociaux et
 par dessus tes classes, l'unité intellectuelle et morale
-de la nation fût rétablie : préjugé que de simples
+de la nation fût rétablie: préjugé que de simples
 démocrates peuvent caresser, mais dont les socialistes ne sauraient que sourire. Autrefois, c'était
 dans l'unité d'un catéchisme religieux que nos rois
-rêvaient de maintenir l'unité nationale ; aujourd'hui c'est d'un catéchisme civique que nos démocrates attendent le même miracle social. On se
+rêvaient de maintenir l'unité nationale; aujourd'hui c'est d'un catéchisme civique que nos démocrates attendent le même miracle social. On se
 figure énorme et décisive l'influence de l'école sur
 . la société et sur la vie, en vertu de cette prénotion
 intellectualiste et antimarxiste, que l'Idée gouverne
 le monde et n'a qu'à paraître, soleil intelligible,
 pour que toutes les oppositions fondent à sa
 chaleur. D'ailleurs, comment des socialistes peuvent-ils s'exagérer à ce point les bienfaits et la
-valeur de l'enseignement étatiste ? Essentiellement
+valeur de l'enseignement étatiste? Essentiellement
 idéologique, aussi idéologique que l'enseignement
 de l'Église, reposant sur la croyance que la théorie
 : sans la pratique a une valeur souveraine, non
 seulement il n'a aucune portée socialiste, mais on
-pourrait dire qu'il est antisocialiste. Faut-il rappeler ce qu'écrivait Proudhon en 1851 (1) : « .… La
+pourrait dire qu'il est antisocialiste. Faut-il rappeler ce qu'écrivait Proudhon en 1851 (1): «.… La
 centralisation gouvernementale, en matière d'instruction publique, est impossible dans le ré-
 (1) Idée générale de la Révolution, pages 290-291.
 
 gime industriel, par la raison décisive que l'instruction est inséparable de l'apprentissage, l'éducation scientifique de l'éducation professionnelle.
 Il répugne que l'école soit séparée de l'atelier,
 et sous prétexte de perfectionnement, qu'elle
-tombe sous une puissance extérieure : séparer,
+tombe sous une puissance extérieure: séparer,
 comme on le fait aujourd'hui, l'enseignement de
 l'apprentissage, et ce qui est plus détestable encore,
 distinguer l'éducation professionnelle de l'exercice
@@ -332,45 +332,45 @@ d'anarchie industrielle. Nos écoles, quand elles ne
 sont pas des établissements de luxe ou des prétextes
 à sinécure, sont les séminaires de l'aristocratie. Ce
 n'est pas pour le peuple qu'ont été fondées les écoles
-Polytechnique, Normale, Saint-Cyr, de Droit, etc. ;
+Polytechnique, Normale, Saint-Cyr, de Droit, etc.;
 c'est pour entretenir, fortifier, augmenter la distinc14
 
-tion des classes, pour consommer et rendre irrévocable la scission entre la bourgeoisie et le prolétariat. » — Ces paroles de Proudhon sont bien remarquables : non seulement elles indiquent, avec une
+tion des classes, pour consommer et rendre irrévocable la scission entre la bourgeoisie et le prolétariat. » — Ces paroles de Proudhon sont bien remarquables: non seulement elles indiquent, avec une
 admirable netteté, quel est en matière d'éducation
 l'idéal socialiste, mais elle font voir quelle valeur
 antisocialiste possède l'enseignement étatiste. Les
 socialistes, qu'on accuse de prêcher la lutte des
 classes, peuvent bien l'oublier, pour se suspendre,
-hypnotisés, aux crochets de l'État : la bourgeoisie,
+hypnotisés, aux crochets de l'État: la bourgeoisie,
 
 - elle, n'est pas si naïve et s'entend à maintenir sa
 domination en pratiquant sourdement cette lutte
 de classes, et cette séparation de classes, qu'elle fait
 un crime aux ouvriers de dénoncer ouvertement. Le
-devoir des socialistes, en tous cas, en matière d'enseignement, est clair et tout tracé : ce n'est pas de
+devoir des socialistes, en tous cas, en matière d'enseignement, est clair et tout tracé: ce n'est pas de
 réclamer le monopole universitaire, mais de pousser au contraire le prolétariat à se donner lui-même
-un enseignement prolétarien. Les Bourses du Travail semblent l'avoir compris, et c'est un bon signe :
+un enseignement prolétarien. Les Bourses du Travail semblent l'avoir compris, et c'est un bon signe:
 dans cette voie, qui est une voie sûre, est l'avenir
 du socialisme. C'était l'opinion, non seulement de
 Proudhon, mais de Marx, (1) et l'on conviendra qu'en
 fait de devenir socialiste il est peu d'autorités plus
 indiscutables. Oui, que les syndicats ouvriers éten-
 
-@) Voir: Marx, à propos d'unité (lettre sur le programme de
+Voir: Marx, à propos d'unité (lettre sur le programme de
 
 dent leurs attributions, créent tout un réseau
 d'œuvres sociales intéressant l'ensemble de la classe
 ouvrière et l'enveloppant, que les syndicats et coopératives de la ville donnent la main aux syndicats
-et coopératives de la campagne ; et l'unité de la classe
+et coopératives de la campagne; et l'unité de la classe
 ouvrière se constituera sur le solide terrain de la
 vie économique, en dehors de tout sectarisme religieux ou politique. Les catholiques peuvent créer,
-eux aussi, des syndicats et des coopératives ; mais la
+eux aussi, des syndicats et des coopératives; mais la
 force des antagonismes sociaux est telle que ces
 créations ne sauraient compromettre sérieusement
 l'unité ouvrière en formation. Que la législation,
 mal inspirée, égarée précisément par cette croyance
 dans la vertu du surnaturel démocratique, ne vienne
-pas à la traverse ; que les ouvriers se maintiennent
+pas à la traverse; que les ouvriers se maintiennent
 sur leur terrain propre, et ils réaliseront l'unité.
 Or, seule, l'unité prolétarienne nous intéresse; car
 étle ne sera pas, comme l'unité que rêvent les catholiques et les bourgeois, uneunité dogmatique, transcendantale, faite par la subordination des producteurs aux non-producteurs, mais elle sera une unité
@@ -381,7 +381,7 @@ fût-ce celui des Droits de l'Homme, qui fait les
 hommes libres et les producteurs sérieux dont la
 classe ouvrière a besoin pour parvenir à s'émanci16
 
-per : ce qu'elle doit acquérir, c'est la capacité technique et l'aptitude à se diriger dans l'atelier auto-
+per: ce qu'elle doit acquérir, c'est la capacité technique et l'aptitude à se diriger dans l'atelier auto-
 -nome, débarrassé de la tutelle capitaliste, afin de
 pouvoir démontrer l'inutilité du patronat et de
 résorber en elle, devenue majeure, l'État pensant,
@@ -389,7 +389,7 @@ produit actuellement aussi bien par l'enseignement
 universitaire que par celui de l'Église.
 
 .. Mais, dira-t-on, vous n'envisagez que la classe
-ouvrière ; or, en France surtout, où, à côté de la
+ouvrière; or, en France surtout, où, à côté de la
 une petite bourgeoisie et une petite paysannerie
 très considérables, — et l'on ne peut plus compter,
 pour amener leur réduction, sur la fameuse loi de
@@ -399,25 +399,25 @@ simple politique prolétarienne? Ne doit-elle pas
 forcément s'élargir en une politique démocratique?
 Les socialistes ne doivent-ils pas s'allier aux repré-
 sentants des parties avancées de la bourgeoisie pour
-travailler au développement des institutions républicaines ? N'est-ce pas l'opinion de Bernstein que
+travailler au développement des institutions républicaines? N'est-ce pas l'opinion de Bernstein que
 la pleine et mûre démocratie est une condition
 nécessaire à la réalisation du socialisme, et Sorel
 
 lui-même n'a-t-il pas reconnu qu'au moins sur le
 côté spirituel de la vie sociale, il y avait accord
 entre la démocratie et le socialisme, si sur le côté
-économique il y avait contradiction ? Or l'anticléricalisme n'est-il pas fatalement la maîtresse pièce
+économique il y avait contradiction? l'anticléricalisme n'est-il pas fatalement la maîtresse pièce
 d'une politique républicaine? La lutte n'est-elle pas
 entre la Révolution et l'Église? Comment dès lors
 le socialisme garderait-il cette sorte de neutralité
-passive et contemplative que vous semblez préconiser ? Pour imparfait que soit l'enseignement de
+passive et contemplative que vous semblez préconiser? Pour imparfait que soit l'enseignement de
 l'État, pour inadéquat à l'idéal que le socialisme se
 fait de l'éducation, n'est-il pas, malgré tout, bien
 supérieur à l'enseignement de l'Église? Son esprit
 n'est-il pas plus libre, son respect de la liberté
 intellectuelle de l'enfant plus grand? IL y a de
-l'exagération, de l'injustice même, à mettre sur le |
-même plan l'enseignement universitaire et l'enseignement congréganiste : c'est toujours le sophisme
+l'exagération, de l'injustice même, à mettre sur le
+même plan l'enseignement universitaire et l'enseignement congréganiste: c'est toujours le sophisme
 guesdiste de a masse réaclionnaire, renvoyant dos
 à dos monarchie et république, réactionnaires et
 bourgeois. Que les syndicats ouvriers créent un
@@ -429,15 +429,15 @@ lisme. D'autre part, n'est-ce pas l'intérêt du socialisme que la bourgeoisie s
 mission historique, et développe au plus haut
 degré les forces productives du pays? Une bourgeoisie hardiment révolutionnaire au point de vue
 économique, un prolétariat s'élevant librement à la
-capacité, ne sont-ce pas là les deux conditions né-
+capacité, ne sont-ce pas les deux conditions né-
 cessaires à la réalisation du socialisme? Or, qui
 niera l'influence déprimante du cléricalisme sur
-l'énergie industrielle et économique d'un peuple ?
+l'énergie industrielle et économique d'un peuple?
 
 L'exemple de l'Espagne n'est-il pas là, cruellement
 probant”? L'enseignement clérical ne peut produire
 qu'une bourgeoisie émasculée, sans vigueur pour
-les luttes économiques modernes : laisser libre cet
+les luttes économiques modernes: laisser libre cet
 enseignement, c'est donc enlever au socialisme un
 de ses droits à la réalité. Et cette liberté même,
 indispensable au devenir prolétarien, ne faut-il
@@ -445,9 +445,9 @@ pas l'attendre plutôt d'une bourgeoisie hardiment
 libérale, telle que l'enseignement laïque est certainement plus capable de la former? L'avenir
 du socialisme serait donc doublement compromis,
 si on laissait l'Église continuer à instruire la bourgeoisie. Allons-nous, maintenant, prendre au sé-
-rieux les objections d'un libéralisme abstrait ?
+rieux les objections d'un libéralisme abstrait?
 On ne peut pas assimiler la liberté d'enseigner
-aux autres libertés : celles-ci concernent des majeurs, celle-là des mineurs. On conçoit un ensei19
+aux autres libertés: celles-ci concernent des majeurs, celle-là des mineurs. On conçoit un ensei19
 
 gnement supérieur libre; un enseignementprimaire,
 un enseignement secondaire libres, non.Ilne s'agit
@@ -458,34 +458,34 @@ convictions. Concevrait-6n une justice à la merci
 des opinions et des partis? De mième que le Juge
 dit le droit, dans une pleine indépendance, et sans
 acception de personnes, de même le professeur doit
-dire le Vrai, d'un esprit libre de toute préoccupation extérieure. Or c'est seulement dans les établissements de l'État que le professeur peut jouir de
-cette liberté intellectuelle : ailleurs, il est l'esclave
+dire le Vrai, d'un esprit libre de toute préoccupation extérieure. c'est seulement dans les établissements de l'État que le professeur peut jouir de
+cette liberté intellectuelle: ailleurs, il est l'esclave
 d'une secte, d'une croyance, d'une coterie, d'inté-
-rêts privés ; il doit faire plier la science devant
+rêts privés; il doit faire plier la science devant
 mille considérations subjectives ou sociales. Il ne
 faut pas exagérer, après tout, le caractère de classe
-üe l'État moderne : il est faux d'affirmer qu'il soit
-seulement le conseil d'administration de la bourgeoisie ; déjà, dans la société actuelle, il représente
+l'État moderne: il est faux d'affirmer qu'il soit
+seulement le conseil d'administration de la bourgeoisie; déjà, dans la société actuelle, il représente
 une force supérieure et relativement indépendante
 des intérêts purement capitalistes, une force qui se
-pénètre et se charge de plus en plus de préoccupations morales, scientifiques, hygiéniques. Comprendrait-on, autrement, toute la législation sociale contemporaine ? Et Marx, lui-même, ne faisait-il pas
+pénètre et se charge de plus en plus de préoccupations morales, scientifiques, hygiéniques. Comprendrait-on, autrement, toute la législation sociale contemporaine? Et Marx, lui-même, ne faisait-il pas
 appel, entre autres mobiles, aux motifs d'ordre
 
 élevé, qui devaient guider la bourgeoisie dans sa
-conduite vis-à-vis de la classe ouvrière ? Sans doute
-l'État actuel n'enseigne pas la morale, ni la politique, ni l'économie socialistes ; mais sont-ce là matières entrées définitivement dans la science ? ‘Au
-surplus, c'est trop lui demander : il nous suflit en
+conduite vis-à-vis de la classe ouvrière? Sans doute
+l'État actuel n'enseigne pas la morale, ni la politique, ni l'économie socialistes; mais sont-ce matières entrées définitivement dans la science? ‘Au
+surplus, c'est trop lui demander: il nous suflit en
 somme qu'il forme des esprits assez critiques, assez
 libres, assez scientifiques, pour pouvoir s'élever
 ensuite d'eux-mêmes à ce que nous croyons être la
 . vérité socialiste. Or, encore une fois, ces esprits
-libres, ne faut-il pas plutôt les attendre de l'Université que de l'Église ? Et qu'on n'invoque pas la
-liberté du père de famille ! L'autorité paternelle ne
-saurait être absolue ; elle n'est qu'une délégation de
+libres, ne faut-il pas plutôt les attendre de l'Université que de l'Église? Et qu'on n'invoque pas la
+liberté du père de famille! L'autorité paternelle ne
+saurait être absolue; elle n'est qu'une délégation de
 la loi civile; celle-ci peut intervenir chaque fois
 qu'il y a abus, et en fait, elle intervient déjà de par
 les lois de fabrique et la loi de 1889 sur les enfants
-moralement abandonnés. Or n'y at-il pas un véri- ‘
+moralement abandonnés. n'y at-il pas un véri-
 table abus de la puissance paternelle lorsque celleci attente à la liberté intellectuelle de l'enfant”? Et
 un enseignement aussi partial que celui de l'Église
 n'est-il pas, par définition, un attentat à la liberté
@@ -494,18 +494,18 @@ pas plus qu'il ne saurait supporter une justice catholique, une justice protesta
 au subjectivisme des croyances individuelles. Son
 
 rôle est de défendre la liberté de penser, de dire le
-Vrai impersonnel, comme il dit le Droit. II serait
+Vrai impersonnel, comme il dit le Droit. serait
 assurément incapable de remplir ce rôle, s'ilétait la
-chose d'une secte ou d'une classe : mais, encore une
-fois, peut-on sérieusement ne voir dans l'État démocratique moderne qu'un État de classe ? Après tout
+chose d'une secte ou d'une classe: mais, encore une
+fois, peut-on sérieusement ne voir dans l'État démocratique moderne qu'un État de classe? Après tout
 une société ne saurait vivre sans une certaine unité;
 il ne s'agit nullement de créer artificiellement une
-l unité mystique et dogmatique, mais de réaliser ce
+unité mystique et dogmatique, mais de réaliser ce
 minimum d'unité spirituelle qui s'exprime dans
 l'unanime adhésion à certains principes fondamentaux constituant l'armature juridique et morale
 d'une société. Cette unité est une unité pour ainsi
 dire matricielle, qui n'empêche en aucune façon
-l''éclosion des variétés individuelles ; elle est le
+l''éclosion des variétés individuelles; elle est le
 canevas commun sur lequel la Liberté peut bro-
 - der les dessins les plus divers. Un acte ne peut
 comporter deux directions divergentes ni relever,
@@ -515,16 +515,16 @@ spirituels contradictoires. Si la société moderne
 veut progresser dans le sens de la liberté, il faut
 done, comme disait Proudhon, que le spirituel de
 la Révolution se subordonne le spirituel chrétien.
-I n'est nullement question de ravir aux catholiques
+n'est nullement question de ravir aux catholiques
 les libertés essentielles: liberté de la presse, de réunion, d'association, liberté d'enseignement supé-
 
 rieur, toutes libertés, encore une fois, qui concernent des majeurs: ce qu'ils ne sauraient garder,
-c'est la liberté de l'enseignement primaire et secondaire : ici l'enseignement requiert, en définitive, La
+c'est la liberté de l'enseignement primaire et secondaire: ici l'enseignement requiert, en définitive, La
 même sorte d'unité que la justice: on a aboli les
-justices locales et particulières ; on doit abolir l'enseignement congréganiste. Il n'y aurait là aucune
-atteinte à la liberté; il n'y aurait là aucun jacobinisme; mais simplement l'affirmation du Droit révolutionnaire, devant qui, à peine de mort pour la
+justices locales et particulières; on doit abolir l'enseignement congréganiste. Il n'y aurait aucune
+atteinte à la liberté; il n'y aurait aucun jacobinisme; mais simplement l'affirmation du Droit révolutionnaire, devant qui, à peine de mort pour la
 
-_ civilisation moderne issue de 1789, le mysticisme et
+civilisation moderne issue de 1789, le mysticisme et
 le subjectivisme chrétiens, dont l'essence est antijuridique et antisociale, doivent enfin s'incliner.
 
 ; Telle est, résumée mais, croyons-nous, non affaiblie, l'argumentation que l'on pourrait nous opposer. Le problème, au fond, revient à déterminer
@@ -548,13 +548,13 @@ lutte contre l'État est aussi essentielle que la lutte
 contre l'Église, alors qu'aux démocrates c'est la
 lutte contre l'Église qui est le point capital. Aussi
 les socialistes hésitent-ils à se servir de l'État pour
-diminuer l'influence de l'Église ; ils craignent de
+diminuer l'influence de l'Église; ils craignent de
 jouer un jeu de dupes. Les démocrates ne sont
-jamais même eflleurés par une pareille crainte :
+jamais même eflleurés par une pareille crainte:
 tout ce qui est gagné par l'État sur l'Église est à
 leurs yeux un gain absolu pour la Liberté. Être
 libre, pour un démocrate, c'est avoir rejeté le joug
-clérical ; le joug administratif lui pèse peu: pour en
+clérical; le joug administratif lui pèse peu: pour en
 moins sentir le poids, l'illusion du contrôle parlementaire lui suffit. La liberté démocratique est plus
 . formelle que réelle. Pour un socialiste, être libre,
 c'est surtout posséder son instrument de production,
@@ -566,9 +566,9 @@ plus riche; sa notion est celle d'une capacité, d'un
 pouvoir réel, qui touche aux racines mêmes de la
 vie etne s'embarrasse pas de formes mensongères.
 Le démocrate croit avoir tout conquis avec la
-liberté intellectuelle et métaphysique ; en réalité,
+liberté intellectuelle et métaphysique; en réalité,
 timide et emprunté devant la vie aux cadres résistants, il s'y laisse enfermer avec une extrême facilité. Le socialiste, lui, estime que tout reste à faire,
-tant qu'il n'a pas brisé ces cadres : la liberté, pour
+tant qu'il n'a pas brisé ces cadres: la liberté, pour
 lui, ce n'est pas l'Ariel descendant des cieux supé-
 rieurs pour tomber dans la prison terrestre, c'est le
 prisonnier qui, d'un rude effort, rompt les barreaux
@@ -581,10 +581,10 @@ mêmes conclusions pratiques. Ils sont bien d'accord
 pour lutter contre la démagogie nationaliste et le
 cléricalisme, mais les démocrates ne voulant dans
 cette lutte que se servir de l'État, les socialistes
-hésitent : l'instrument leur paraît dangereux. Sans
+hésitent: l'instrument leur paraît dangereux. Sans
 doute, il est au moins inexact de soutenir que l'État
 moderne n'est que le conseil d'administration de la
-classe bourgeoise ; il est bon toutefois de ne jamais
+classe bourgeoise; il est bon toutefois de ne jamais
 oublier qu'il est surtout cela, encore aujourd'hui.
 Et les influences, étrangères aux intérêts strictement
 capitalistes, qu'il peut subir, sont des influences
@@ -596,21 +596,21 @@ défense républicaine en est rendu très difficile, très
 sujet à caution. N'y aurait-il, entre la démocratie et
 le socialisme, que leur opposition sur la question
 du patriotisme, qu'elle suflirait à faire de leur
-alliance presque une mésalliance ! La lutte contre
-la démagogie nationaliste est à l'ordre du jour :
+alliance presque une mésalliance! La lutte contre
+la démagogie nationaliste est à l'ordre du jour:
 mais s'il y a un fait certain, c'est la responsabilité
 de l'enseignement primaire laïque dans la crise
 nationaliste. Les radicaux ont la prétention d'être
-plus patriotes encore que les nationalistes : lutter
+plus patriotes encore que les nationalistes: lutter
 contre ceux-ci revient pour eux à battre le record
-du chauvinisme. On l'a bien vu à la rentrée des
+du chauvinisme. On l'a bien à la rentrée des
 
-* Chambres : M. Léon Bourgeois, le grand homme
+Chambres: M. Léon Bourgeois, le grand homme
 de la démocratie radicale, n'a-t-il pas cru devoir
 interrompre Jaurès opposant à la politique de
-revanche une politique de sincérité et de loyauté ?
+revanche une politique de sincérité et de loyauté?
 Le général André et Pelletan n'ont-ils pas prononcé dernièrement d'assez étranges discours
-« revanchards »? Et M. Goblet, enfin, un des
+« revanchards Et M. Goblet, enfin, un des
 chefs du radical-socialisme, dans la lettre que la
 Dépêche a publiée, (x) ne voit qu'un moyen de
 
@@ -623,11 +623,11 @@ législation sociale et ouvrière. Les simples démocrates tendent invinciblemen
 qui n'est, comme on l'a dit, que la caricature du
 socialisme. Pour eux, socialiser, cela veut dire
 étatiser, transformer en un service administratif
-‘public un service privé ; pour les socialistes, socialiser signifie remettre aux mains des producteurs
+‘public un service privé; pour les socialistes, socialiser signifie remettre aux mains des producteurs
 eux-mêmes la direction de la production. Les démocrates ne veulent que substituer à la tutelle capitaliste la tutelle de ce patronat collectif qu'est l'État,
-l'Administration ; or, les ouvriers ne veulent plus
+l'Administration; or, les ouvriers ne veulent plus
 
-__ d'aucune tutelle, fût-ce celle d'un État très bienveillant, très pénétré de ses devoirs, très soucieux
+d'aucune tutelle, fût-ce celle d'un État très bienveillant, très pénétré de ses devoirs, très soucieux
 de morale et d'hygiène, comme ne peut manquer de
 l'être, selon les radicaux, la haute et noble personnalité d'un État vraiment démocratique. Accroissement des pouvoirs de l'État, tel serait le résultat
 d'une politique radicale, alors que le but des
@@ -637,24 +637,24 @@ le socialisme, en France surtout, ne peut rester
 
 exclusivement ouvrier et qu'on ne peut attendre du
 prolétariat seul la transformation totale de la
-société ? Opposera-t-on à la formule de Marx, selon
+société? Opposera-t-on à la formule de Marx, selon
 laquelle c'est au prolétariat à éduquer la société,
-l'affirmation contraire : la classe ouvrière doit-elle
-encore être éduquée par la société ? Mais il faut
+l'affirmation contraire: la classe ouvrière doit-elle
+encore être éduquée par la société? Mais il faut
 justement s'entendre sur le sens de cette éducation
-du prolétariat par la société, en l'espèce l'État : le
+du prolétariat par la société, en l'espèce l'État: le
 socialisme soutient que c'est au prolétariat à se
 former lui-même et qu'iln'y a de véritable formation
-prolétarienne qu'au sein du prolétariat lui-même ;
-c'est évidemment le sens de la formule : l'émancipation des travailleurs doit être l'œuvre des travailleurs eux-mêmes. La société ne peut dès lors :
-intervenir que comme auxiliaire ; elle ne saurait
+prolétarienne qu'au sein du prolétariat lui-même;
+c'est évidemment le sens de la formule: l'émancipation des travailleurs doit être l'œuvre des travailleurs eux-mêmes. La société ne peut dès lors:
+intervenir que comme auxiliaire; elle ne saurait
 prétendre à un rôle tutélaire. Ce qu'elle doit faire,
 c'est donner aux organismes prolétariens des
 occasions d'agir, de se développer, d'exercer leur
-liberté, d'accroître leur capacité juridique ; car il
+liberté, d'accroître leur capacité juridique; car il
 n'y a encore que l'usage de la liberté qui soit eflicacement et profondément éducatif. Craindre les abus
 de la liberté, se méfier d'elle, la mettre en tutelle,
-appréhender les excès de la « tyrannie syndicale »,
+appréhender les excès de la « tyrannie syndicale
 voilà qui est peut-être conforme au caractère
 français, mais qui n'est nullement « socialiste ».
 L'État, en France, a toujours traité les associations
@@ -668,7 +668,7 @@ au sens de l'initiative personnelle celui de la
 solidarité sociale, — ce n'est pas douteux. Ce n'est
 pas en vain que des siècles de centralisation
 
-_ monarchique, césarienne et démocratique, ont pesé
+monarchique, césarienne et démocratique, ont pesé
 sur nous, pétrissant nos âmes dans le moule d'une
 docilité invincible mème aux plus fiers accès de
 révolte et de révolution. Mais le socialisme est
@@ -676,7 +676,7 @@ précisément la réaction la plus caractérisée contre
 cette « tradition nationale ». Proudhon, toute sa vie,
 
 a combattu les jacobins, les partisans de la démocratie une et indivisible, à laquelle il opposait le
-système fédératif. Et tous ceux qui ont lu {a
+système fédératif. Et tous ceux qui ont
 Commune de Paris, de Marx, savent que les conceptions politiques du grand philosophe socialiste
 allemand n'ont pas, finalement, différé de celles que
 défendit, inlassable, le grand philosophe socialiste
@@ -703,7 +703,7 @@ autonome des syndicats l'avenir du socialisme.
 Dira-t-on que le mouvement ouvrier en France a
 peu de chance de prendre cette direction, que, lui
 aussi, sera obligé de s'adapter au génie séculaire de
-la nation, à la tradition étatiste ? Il se peut, mais, en
+la nation, à la tradition étatiste? Il se peut, mais, en
 tous cas, le devoir des socialistes est de travailler à
 combattre cette tradition, et c'est ce qui rend, encore
 
@@ -711,12 +711,12 @@ combattre cette tradition, et c'est ce qui rend, encore
 
 une fois, le concours du socialisme et de la simple
 
-| Mais examinons le problème de plus près. L'avenir du socialisme, dit-on, est suspendu à deux conditions : il faut, d'une part, que la bourgeoisie soit
+Mais examinons le problème de plus près. L'avenir du socialisme, dit-on, est suspendu à deux conditions: il faut, d'une part, que la bourgeoisie soit
 au point de vue économique hardiment révolutionnaire, qu'elle développe à leur plus haut degré les
 : forces productives du pays; il faut, d'autre part,
 que le prolétariat puisse, d'un mouvement libre,
 s'élever à la capacité, afin de pouvoir un jour diriger
-‘ L'atelier collectiviste légué par le capitalisme.
+L'atelier collectiviste légué par le capitalisme.
 Autrement dit, le socialisme se réalisera si dans un
 pays la bourgeoisie est, d'une part, assez hardie pour
 donner au capitalisme tout son développement, et
@@ -727,7 +727,7 @@ cléricalisée à outrance, cagotisée jusqu'à la moelle,
 qu'on peut attendre cette hardiesse et ce libéralisme?
 Est-ce l'enseignement congréganiste qui pénétrera
 la bourgeoisie française, par tempérament déjà si
-timorée et si réactionnaire, de cette vigueur industrielle et de ce large esprit social ?
+timorée et si réactionnaire, de cette vigueur industrielle et de ce large esprit social?
 
 Nous savons tout le mal qu'on peut dire de l'enseignement clérical, mais nous demanderons, à
 notre tour, si ce n'est pas se bercer d'étranges illusions que de compter sur le monopole universitaire
@@ -742,7 +742,7 @@ est-elle si grande? Ne sont-ce pas là, en somme,
 deux grands corps idéologiques, ayant en gros les
 mêmes défauts essentiels, aussi mal adaptés l'un
 que l'autre aux nécessités de la vie économique
-moderne ? M. Gustave Le Bon, dans le livre qu'il
+moderne? M. Gustave Le Bon, dans le livre qu'il
 vient de faire paraître, la Psychologie de l'éducation, dresse contre l'Université, d'après l'enquête
 officielle elle-même, un réquisitoire dont on ne
 saurait méconnaître le grand fond de vérité. Et l'on
@@ -752,22 +752,22 @@ qu'on enseigne, comme on l'enseignera d'après les
 mêmes méthodes intellectualistes, on aura toujours,
 comme résultat, les mêmes esprits faussés par l'idéologie, les mêmes caractères affaissés par l'inertie,
 les mêmes âmes sans ressort ni direction. D'aucuns
-affirment que la réforme actuelle ne fera qu'augmenter encore le nombre des aspirants fonction- :
+affirment que la réforme actuelle ne fera qu'augmenter encore le nombre des aspirants fonction-:
 naires. Et il faudrait compter sur le monopole
 universitaire pour infuser à la bourgeoisie française,
 
 fatiguée et craintive, une vigueur, une hardiesse
-nouvelles ! Il nous donnera, assure-t-on, des esprits
+nouvelles! Il nous donnera, assure-t-on, des esprits
 libres, affranchis de tout dogme. Cela même est-il
 sûr? Un esprit libre, c'est un esprit qui sait voir le
 réel, qui n'a aucune œæillère, aucune lunette s'interposant entre la réalité et son jugement pour le pré-
-disposer et, partant, le fausser ; et l''éducateur idéal
+disposer et, partant, le fausser; et l''éducateur idéal
 est celui qui s'efface le plus derrière son élève, de
 manière à influencer le moins possible son esprit et
 
 à le laisser bien voir, bien regarder, bien observer,
 
-‘ selon la force de ses yeux. La grande machine universitaire est-elle, plus que l'Église, proche de cet
+selon la force de ses yeux. La grande machine universitaire est-elle, plus que l'Église, proche de cet
 éducateur idéal? S'il y a une empreinte jésuite, n'y
 a-t-il pas une empreinte universitaire? Avec la
 centralisation actuelle, au surplus, si favorable à la
@@ -780,7 +780,7 @@ en tutelle du pays par une coterie politique. A la
 vérité, on peut faire de beaux discours sur l'enseignement créateur de liberté spirituelle; mais ce
 qu'il y a de plus sûr, c'est que la liberté ne s'en-
 
-‘ seigne pas; et c'est par dérision sans doute qu'on a
+seigne pas; et c'est par dérision sans doute qu'on a
 
 (1) Voir à ce sujet l'essai de Sorel sur l'Église et l'État, page
 
@@ -788,7 +788,7 @@ liberté se conquiert par un contact incessant avec le
 réel, la vie, le mouvement des choses et des idées;
 seule la participation effective et pratique à des
 institutions peut la développer. Nous avons exposé
-plus haut, d'après Proudhon, quel était l'idéal socialiste en fait d'éducation : il consiste à combiner
+plus haut, d'après Proudhon, quel était l'idéal socialiste en fait d'éducation: il consiste à combiner
 l'enseignement et l'apprentissage, c'est-à-dire à fondre l'école et la vie, de manière à confronter de
 bonne heure l'esprit avec le réel, à donner le plus
 tôt possible le sens de la responsabilité et de l'initiative. Un enseignement idéologique, fût-il le plus
@@ -805,25 +805,25 @@ diat ni ne force à un choix pratique où la responsabilité soit engagée. Or, 
 abstraitement au-dessus des choses sans pouvoir
 jamais, dans leur tissu compact, insérer une action;
 mais c'est savoir s'organiser avec le réel pour le
-dominer. Et le réel, c'est la complexité et la variété :
+dominer. Et le réel, c'est la complexité et la variété:
 plus donc il y aura d'écoles diverses, avec des
 
 méthodes diverses et des enseignements divers, et
 plus il y aura de chances pour que les esprits soient
 libres. Le malheur, en France, c'est qu'il n'y a
 guère, pour distribuer l'enseignement, que deux
-qui d'ailleurs se copient l'une l'autre : l'Église et
+qui d'ailleurs se copient l'une l'autre: l'Église et
 l'Université. Prise ainsi entre ces deux énormes
 marteaux-pilons, qui brisent tous les cerveaux,
 la Liberté a peine à grandir; elle végète, elle s'étiole.
-l L'Université, seule, vaudra-t-elle mieux ? On soutient
+L'Université, seule, vaudra-t-elle mieux? On soutient
 quelquefois que c'est la concurrence de l'Église qui
-* déprime l'enseignement de l'État. Mais l'Université
-a été seule pendant un demi-siècle : était-elle alors
+déprime l'enseignement de l'État. Mais l'Université
+a été seule pendant un demi-siècle: était-elle alors
 soutient au contraire que si l'Université s'est réformée, quelque peu, depuis 1850, c'est sous l'aiguillon
 de la concurrence congréganiste. (1) Il n'a peut-être
 pas tort. Dira-t-on que, débarrassée de sa rivale,
-l'Université va pouvoir se décentraliser, faire péné-
+l'Université pouvoir se décentraliser, faire péné-
 trer partout la vie avec l'autonomie? L'État ne
 serait ainsi qu'un tuteur provisoire, qui, après avoir
 déblayé le terrain des ennemis trop encombrants,
@@ -836,22 +836,22 @@ où les républicains songent à rétablir le serment
 politique, à surveiller de près tous les fonctionnaires; ce n'est pas à l'heure où le vent politique
 souffle au jacobinisme officiel, où l'on veut créer
 l'unité morale du pays par la récitation unanime
-d'un catéchisme civique, que la centralisation va se
+d'un catéchisme civique, que la centralisation se
 relâcher et laisser respirer un peu la France. Décentraliser, ce serait rendre aux influences locales,
 régionales, particulières, un libre jeu; et les catholiques, après avoir été chassés par la grande porte,
 pourraient rentrer par mille petites fenêtres dans
 l'enseignement public. Ce serait à recommencer;
 l'unité laïque serait de nouveau compromise. Non,
-c'est à choisir : ou la liberté d'enseignement pleine
+c'est à choisir: ou la liberté d'enseignement pleine
 et entière, pour les catholiques aussi bien que pour
 les autres, ou le monopole universitaire dans toute
 
-Dire : l'État seul, par son indépendance des inté- |
+Dire: l'État seul, par son indépendance des inté-
 rêts privés, locaux, des coteries et des sectes, peut
 donner un haut enseignement vraiment scientifique
 et assurer à ses professeurs toute la liberté intellectuelle dont ils ont besoïn; assimiler l'enseignement
 à la justice et donner pour fonction à l'enseignement public de proclamer le Vrai comme les tribunaux déclarent le Droit; et vouloir supprimer
-l'enseignement privé, comme on a aboli les juridictions ecclésiastiques, c'est là une théorie très sédui-
+l'enseignement privé, comme on a aboli les juridictions ecclésiastiques, c'est une théorie très sédui-
 
 sante, mais un peu spécieuse, il nous semble.
 L'impartialité de la justice, nous la connaissons,
@@ -863,47 +863,47 @@ actuelle. L'impartialité de l'enseignement, l'indé-
 pendance du professeur, seraient du même aloi.
 D'ailleurs, où sont ces vérités dont l'État serait
 
-_ détenteur ? Sauf en matière de sciences, où la certitude est plus grande, il y a encore partout matière à
-controverses ; en morale, histoire, littérature, philosophie, il n'y a point de vérités indiscutables, et
+détenteur? Sauf en matière de sciences, où la certitude est plus grande, il y a encore partout matière à
+controverses; en morale, histoire, littérature, philosophie, il n'y a point de vérités indiscutables, et
 les esprits se partagent. Il n'y a pas de physique
 catholique, bourgeoise ou socialiste, mais il y a une
 morale catholique, une morale bourgeoise, une
 morale socialiste, il y a une histoire catholique, une
-bourgeoise, une socialiste. L'État va-t-il les enseigner toutes impartialement ? laissera-t-il chaque
+bourgeoise, une socialiste. L'État va-t-il les enseigner toutes impartialement? laissera-t-il chaque
 professeur enseigner ce qu'il croit, en conscience,
-être le vrai ? Mais ce serait en fait rétablir la
+être le vrai? Mais ce serait en fait rétablir la
 liberté de l'enseignement. Va-t-il choisir, émettre
-des vérités qui seront officielles : mais de quel droit
+des vérités qui seront officielles: mais de quel droit
 l'État choisirait-il? Pratiquement, un État de classe
 le fait, et l'État bourgeois actuel enseigne sa morale,
 son économie, son histoire. Mais nous tombons en
-pleine partialité, en pleine tyrannie : que devient la
+pleine partialité, en pleine tyrannie: que devient la
 
-liberté ? que devient le vrai impersonnel ? Soutiendra-t-on qu'il y a, soustraites déjà à la controverse,
+liberté? que devient le vrai impersonnel? Soutiendra-t-on qu'il y soustraites déjà à la controverse,
 un certain nombre de vérités morales, historiques,
 littéraires, philosophiques, et que, d'ailleurs, ce qui
 importe, c'est moins ce qu'on enseigne que la
-méthode par où on l'enseigne ? Mais les méthodes
-elles-mêmes sont controversables : l'État sera-t-il
-détenteur de l'unique bonne méthode ? Et qui déterminera les points soustraits à la controverse? On a
-beau faire : de quelque façon que l'on s'y prenne,
+méthode par où on l'enseigne? Mais les méthodes
+elles-mêmes sont controversables: l'État sera-t-il
+détenteur de l'unique bonne méthode? Et qui déterminera les points soustraits à la controverse? On a
+beau faire: de quelque façon que l'on s'y prenne,
 l'enseignement ne peut que refléter la société, et si
 dans une société il y a diversité d'opinions, il ne
 peut pas ne pas la traduire. On ne saurait, par
 aucun moyen connu, créer théoriquement une unité
 qui n'existe pas praliquement. Croit-on d'ailleurs
 
--« que dans cette espèce de duel où l'on acculerait
+que dans cette espèce de duel où l'on acculerait
 l'école et la société, ce soit nécessairement l'école
-qui triompherait ? Les familles catholiques, obligées d'envoyer leurs enfants au lycée, lui feraient
-une guerre sourde, sournoise, acharnée : qui de la
+qui triompherait? Les familles catholiques, obligées d'envoyer leurs enfants au lycée, lui feraient
+une guerre sourde, sournoise, acharnée: qui de la
 famille ou du professeur serait le plus fort? Même
 en prenant en considération l'esprit d'indépendance
 qui souffle parmi les enfants modernes, l'issue de
 ce duel apparaît fort incertaine. On invoque la
 liberté de l'enfant; mais on pourrait tout aussi bien,
 avec un tel argument, limiter la liberté de la presse,
-par exemple, que la liberté d'enseignement. A voir |
+par exemple, que la liberté d'enseignement. A voir
 
 comment la presse arrive à façonner l'esprit des
 foules, à créer d'étranges fanatismes, on pourrait,
@@ -913,26 +913,26 @@ l'État. L'homme qui lit tous les jours l'Intransigeant, la Libre Parole, le Pet
 dans ses écoles. Peut-on dire même que les jour-
 
 _naux soi-disant libres-penseurs respectent mieux la
-liberté de leurs lecteurs ? Hélas, non, il s'en faut
+liberté de leurs lecteurs? Hélas, non, il s'en faut
 étrangement. Personne, cependant, ne demande la
 limitation de la liberté de la presse.
 
 ÆEt puis, en définitive, n'a-t-on pas exagéré l'incompatibilité entre le catholicisme et l'esprit moderne? Sans doute, si l'homme était partout et
 toujours un {out psychologique parfaitement cohé-
 
-_ rent dans toutes ses parties et logiquement systé-
+rent dans toutes ses parties et logiquement systé-
 matisé, il y aurait, à notre sens, incompatibilité
 absolue entre le catholicisme et l'esprit moderne.
 Un catholicisme libéral est, au fond, un pur nonsens. Mais l'homme n'est nullement ce tout bien
-coordonné, rigoureusement agencé ; c'est un mé-
+coordonné, rigoureusement agencé; c'est un mé-
 lange complexe, chaotique, où peuvent coexister
 les états les plus contradictoires. Des savants
 comme Pasteur, des philosophes comme Lachelier,
 des observateurs sociaux comme MM. Paul Bureau
-et Paul de Rousiers, sont catholiques : ont-ils
+et Paul de Rousiers, sont catholiques: ont-ils
 
 l'esprit moins moderne que n'importe quel député
-du « Bloc républicain » ? La vie religieuse, c'est la
+du « Bloc républicain »? La vie religieuse, c'est la
 vie intérieure, domaine complexe et mystérieux, —
 royaume de la liberté spirituelle, incommensurable
 avec la vie sociale, politique, économique. Aussi
@@ -941,18 +941,18 @@ nécessairement telle économie, ou telle économie
 telle religion. Entre la vie économique et la vie
 spirituelle, la relation n'est pas aussi simple. Les
 peuples anglo-saxons sont des peuples remarquables par leur esprit d'initiative et leur sens de la
-liberté : est-ce uniquement parce que leur formation
-religieuse a été protestante ? Les peuples catholiques sont plus artistes, moins utilitaires, moins
+liberté: est-ce uniquement parce que leur formation
+religieuse a été protestante? Les peuples catholiques sont plus artistes, moins utilitaires, moins
 adaptés aux luttes industrielles, plus dociles,
 malgré des révoltes et des soubresauts révolution-
 
-+ naires : est-ce uniquement parce que le catholicisme a pétri leur âme? Il y a des catholiques en
-Amérique, il y en a en Angleterre ; la Belgique est
+naires: est-ce uniquement parce que le catholicisme a pétri leur âme? Il y a des catholiques en
+Amérique, il y en a en Angleterre; la Belgique est
 catholique. Le Nord de la France est catholique et
-pourtant c'est là que se déploie la plus vive activité
+pourtant c'est que se déploie la plus vive activité
 économique de tout le pays. N'est-ce pas plutôt une
 question de race, et ne faut-il pas distinguer, avec
-M. Le Bon, les Anglo-Saxons et les Latins ? Les
+M. Le Bon, les Anglo-Saxons et les Latins? Les
 peuples imprègnent beaucoup plus une religion de
 leur esprit que la religion ne les imprègne euxmêmes du sien. Sans doute, il y a réaction de la
 
@@ -966,7 +966,7 @@ se demander avec Sorel (x) si la faculté mystique
 acquise par l'humanité avec le christianisme se perdra jamais. La religion est peut-être un fait irréductible, avec lequel il faut par conséquent compter.
 Quoi qu'il en soit, ce qu'il importe de constater,
 c'est qu'aujourd'hui personne ne conteste plus la
-nécessité de travailler au progrès économique : tout
+nécessité de travailler au progrès économique: tout
 le monde, y compris les catholiques, est obligé d'y
 collaborer. Et s'il se manifeste des tendances susceptibles de compromettre l'avenir économique,
 elles se rencontrent aussi bien parmi les soi-disant
@@ -978,7 +978,7 @@ que les élèves des écoles techniques de l'État sont
 malaisément utilisés par l'industrie ou l'agriculture.
 C'est un exemple de la facilité d'adaptation de
 
-l'Église à la civilisation moderne. On a beau dire :
+l'Église à la civilisation moderne. On a beau dire:
 l'initiative individuelle est plus souple, plus inventive, qu'une administration, une bureaucratie. Et
 les vraies racines de l'esprit de liberté qui nous
 anime aujourd'hui ne sont pas dans telle ou telle
@@ -1002,7 +1002,7 @@ responsabilité, que leur autorité morale puisse
 s'imposer aux patrons et à la masse ouvrière, — ei,
 en conquérant de hauts salaires et de courtes journées, ils forceront la bourgeoisie à renouveler son
 
-outillage industriel, à sortir de sa quiétude, à devenir hardiment progressiste ; ils la contraindront
+outillage industriel, à sortir de sa quiétude, à devenir hardiment progressiste; ils la contraindront
 aussi à renoncer à tout paternalisme, à toute fausse
 philanthrophie, à tout gouvernement patronal, et à
 reconnaître dans la classe ouvrière une force maté-
@@ -1010,7 +1010,7 @@ rielle et morale qu'on ne peut plus domestiquer,
 mais avec qui l'on doit compter, arbitre de la production, vraiment capable, jalouse autant de la
 qualité du travail que de ses droits et de sa dignité,
 
-; la classe dirigeante enfin ! Le prolétariat pourrait
+; la classe dirigeante enfin! Le prolétariat pourrait
 ainsi, tout en s'éduquant lui-même, en éliminant de
 son sein toute démagogie comme toute docilité étatiste, éduquer la bourgeoisie elle-même et, avec elle,
 toute la société, qu'il entraînerait hors des voies
@@ -1018,14 +1018,14 @@ croupissantes du gouvernementalisme à outrance,
 
 de la centralisation étouffante, du protectionnisme
 effréné. Un tel esprit d'initiative et de progrès soufflerait dès lors sur la société qu'aucune réaction ne
-serait plus à craindre ; la Liberté serait désormais
-invincible ! Dira-t-on que la faiblesse du mouvement syndical en France ne permet pas d'en
+serait plus à craindre; la Liberté serait désormais
+invincible! Dira-t-on que la faiblesse du mouvement syndical en France ne permet pas d'en
 augurer un si brillant avenir? Et qu'étant donné
 l'état inorganique, où végète encore la classe ouvrière française, un rôle aussi providentiel ne
-saurait lui être attribué ? Nous répondrons qu'en
-Angleterre même le mouvement ouvrier a dû passer
+saurait lui être attribué? Nous répondrons qu'en
+Angleterre même le mouvement ouvrier a passer
 
-par cette phase de faiblesse inorganique ; et s'il y a
+par cette phase de faiblesse inorganique; et s'il y a
 
 incontestablement des différences de race et de traditions historiques qui créent entre la classe ouvrière
 anglaise et la classe ouvrière française de notables
@@ -1039,18 +1039,18 @@ ouvrier en France, que les socialistes ont peut-
 attendant leur salut d'un miracle politique, ou
 d'une catastrophe révolutionnaire, les ouvriers
 français ont trop négligé leur organisation économique pour perdre leur temps et leurs forces dans
-les voies douteuses d'un socialisme purement élecToral. La propagande socialiste a été à la fois jusqu'ici trop idéaliste et trop matérialiste : trop idéaliste, en faisant miroiter devant les yeux du
+les voies douteuses d'un socialisme purement élecToral. La propagande socialiste a été à la fois jusqu'ici trop idéaliste et trop matérialiste: trop idéaliste, en faisant miroiter devant les yeux du
 prolétariat français la possibilité messianique d'une
-conquête rapide des pouvoirs publics ; trop maté-
+conquête rapide des pouvoirs publics; trop maté-
 rialiste, en ne pénétrant pas les ouvriers français
 d'une idée assez haute de leur mission et de leur
 responsabilité dans le devenir moderne, en négligeant de leur dire que leur émancipation dépendra
 autant de leur élévation morale que de leur élépa-
 
 tion politique. Nous n'avons pas encore essayé, en
-définitive, les voies de la liberté : pourquoi désespérer d'elle ? Ou le socialisme se dégagera, lui et la
+définitive, les voies de la liberté: pourquoi désespérer d'elle? Ou le socialisme se dégagera, lui et la
 société française, du bourbier où l'étatisme, combiné avec la démagogie, risque de les enlizer l'un
-et l'autre, et la classe ouvrière s'engagera résolument dans les voies de la liberté ; ou il faut déclarer
+et l'autre, et la classe ouvrière s'engagera résolument dans les voies de la liberté; ou il faut déclarer
 que le socialisme n'a aucun avenir en France, et
 
 que, forcé de s'adapter à de séculaires et désastreuses traditions, il laissera notre pays achever sa
@@ -1061,13 +1061,13 @@ l'on semble s'engager, et la politique actuelle, suivie
 par le « Bloc républicain » et soutenue sans réserve
 par les socialistes, est faite pour inspirer les plus
 vives inquiétudes à tous les vrais amis de la liberté.
-Et quel paradoxe! La politique de défense républicaine est née de l'affaire Dreyfus ; c'est à la lumière
+Et quel paradoxe! La politique de défense républicaine est née de l'affaire Dreyfus; c'est à la lumière
 de cet événement tragique, qui a secoué si violemment la société française, que le péril clérical est
-l'offensive contre l'Église. Cependant, de quoi s'agissait-il, dans cette fameuse affaire ? — De droit indi45 ni.
+l'offensive contre l'Église. Cependant, de quoi s'agissait-il, dans cette fameuse affaire? — De droit indi45 ni.
 
 viduel, supérieur à toute raison d'État; le dreyfusisme, c'est lanégation intrépide, héroïque, obstinée,
-farouche, de toute raison d'État. Or aujourd'hui,
-© — et Bernard-Lazare l'a parfaitement marqué dans
+farouche, de toute raison d'État. aujourd'hui,
+— et Bernard-Lazare l'a parfaitement marqué dans
 sa consultation aux Cahiers de la Quinzaine, (1) —
 on ne parle plus que de raison d'État de la pensée
 moderne; il n'est plus question que d'intérêt supé-
@@ -1082,13 +1082,13 @@ obscurcit leur conscience, et la fait trébucher dans
 égale à la passion nationaliste, aboutit, comme toute
 de la liberté pour l'ennemi, le non-conformiste.
 On ne raisonne plus, on frappe; on ne discute
-plus, on court sus à l'Infâme. L'arrêt critique est |
-complet : la haine domine, furieuse, grossière, impérieuse, terrible à tout empêcheur de hurler en )
+plus, on court sus à l'Infâme. L'arrêt critique est
+complet: la haine domine, furieuse, grossière, impérieuse, terrible à tout empêcheur de hurler en )
 rond. Nous avons connu les débordements sauvages
 (4) Voir le vingt-et-unième Cahier de la troisième série (août 1902).
 
-de la rage nationaliste : nous connaissons aujourd'hui ceux de la rage anticléricale; ils ne nous
-changent guère : dent pour dent, œil pour œil; pour
+de la rage nationaliste: nous connaissons aujourd'hui ceux de la rage anticléricale; ils ne nous
+changent guère: dent pour dent, œil pour œil; pour
 Jaurès lui-même, la justice, c'est le talion! Il semblait que, d'une lutte comme l'affaire Dreyfus, la
 d'autre lumière que celle de la Vérité et du Droit, et
 c'est à cela que nous aboutissons! IL n'y a pas
@@ -1096,11 +1096,11 @@ d'exemple d'une telle banqueroute. Il est vrai
 qu'une fois accaparé par les politiciens, si prudents,
 si circonspects au début, sinon hostiles, le grandiose et héroïque mouvement de justice devait
 avorter. La politique gâte tout ce qu'elle touche; les
-politiciens n'ont jamais su ce que c'était que le
-Droit : ils ne connaissent que des forces, des majorités, des blocs. On pouvait espérer que Jaurès,
+politiciens n'ont jamais ce que c'était que le
+Droit: ils ne connaissent que des forces, des majorités, des blocs. On pouvait espérer que Jaurès,
 Pressensé, qui jouèrent dans la tragique tourmente
 un rôle si grand et si noble, échapperaient à la
-contagion politicienne : ils approuvent sans ré-
+contagion politicienne: ils approuvent sans ré-
 serves. La lecture des journaux socialistes est
 édifiante. On y lit couramment que tel fonctionnaire
 ferait bien de ne pas mal parler d'un gouvernement
@@ -1117,11 +1117,11 @@ de marcher sur les grévistes, nous entendons réclamer toutes les rigueurs de l
 l'arbitraire gouvernemental contre des officiers
 coupables d'obéir à leur conscience de chrétiens!
 En tout cela, aucun sens de la justice, aucun souci
-de tolérance, aucun esprit de liberté; du pur sectarisme, du pur jacobinisme ! Vraiment la conscience
-socialiste, depuis quelques années, s'est singulièrement adultérée. Est-ce sous l'influence des intellectuels socialistes? On a pu constater un retour au
+de tolérance, aucun esprit de liberté; du pur sectarisme, du pur jacobinisme! Vraiment la conscience
+socialiste, depuis quelques années, s'est singulièrement adultérée. Est-ce sous l'influence des intellectuels socialistes? On a constater un retour au
 sentimentalisme trouble de 48; mais, comme le dit
 si finement Anatole France, le sentiment, c'est la
-musique de l'intérêt ; il n'est pas étonnant que
+musique de l'intérêt; il n'est pas étonnant que
 s'obscurcisse l'idée du Droit, à laquelle le sentiment,
 autant que l'intérèt, est irréductiblement étranger.
 Combien cependant était préférable, il y a dix ans
@@ -1136,15 +1136,15 @@ scolaires instituées par la municipalité collectiviste.
 Aujourd'hui, on l'accuserait sans doute d'être un
 affreux clérical, et les maires socialistes actuels,
 loin de faire montre d'une telle largeur d'esprit,
-n'oñt qu'un souci : gêner dans ses manifestations
+n'oñt qu'un souci: gêner dans ses manifestations
 légitimes l'exercice du culte catholique, sous pré-
 texte qu'elles portent atteinte à la liberté de con-
 
 seienee des autres religionnaires et des non-croyants.
 Conception ratatinée de la liberté, qui, d'une faculté
 positive, expansive, fait une prudence mondaine,
-attentive à ne choquer personne ! Comme si la
-liberté était si prude qu'elle ne saurait sans scandale supporter une liberté voisine !
+attentive à ne choquer personne! Comme si la
+liberté était si prude qu'elle ne saurait sans scandale supporter une liberté voisine!
 
 Ce n'est pas dans un esprit aussi mesquin et aussi
 étroit que nous devons penser à défendre la eivilisation moderne. La civilisation moderne repose sur
@@ -1155,32 +1155,32 @@ des périls évidents dont elle est menacée. Si nous
 limitons arbitrairement la liberté des autres pour
 accroître la nôtre, nous ne ferons, sans grand profit,
 que nous mentir à nous-mêmes; car, s'il est au
-moins étrange d'entendre les cléricaux crier : vive
+moins étrange d'entendre les cléricaux crier: vive
 
 la liberté, il ne l'est pas moins que des libéraux se
 réclament d'elle pour la ravir à leurs adversaires.
 Il ne faudrait pas justifier la spirituelle boutade de
-M. Faguet, faisant dire aux libéraux : (Nous vous
+M. Faguet, faisant dire aux libéraux: (Nous vous
 demandons la liberté quand vous êtes au pouvoir,
-parce que ce n'est pas votre principe ; et nous vous
+parce que ce n'est pas votre principe; et nous vous
 la refusons quand nous y sommes, parce que c'est
 le nôtre. » Sachons au contraire profiter des libertés
 conquises, sans enlever aux autres des droits que
 nous avons soustraits à leur tyrannie. Nous ne
-savons pas, dit-on, en user ; nous les laissons dépé-
-rir entre nos mains : il nous faut la tutelle de l'État.
+savons pas, dit-on, en user; nous les laissons dépé-
+rir entre nos mains: il nous faut la tutelle de l'État.
 Mais si vraiment nous avons besoin de tutelle, si
 nous sommes indignes de la liberté et avons soif
 de servitude, qu'importe alors la nature de cette
-servitude : autant l'Église que l'État! La meilleure
+servitude: autant l'Église que l'État! La meilleure
 manière de restreindre la liberté de ses antagonistes, c'est d'être plus actif, plus inventif qu'euxmêmes; c'est de démontrer par l'effet, pratiquement,
 la supériorité de son principe; c'est de se développer
 hardiment dans le sens de ses idées. A la civilisation moderne donc de faire éclater en des œuvres
 concrètes et vivantes la beauté supérieure et la
 valeur intrinsèque de son idéal. Trois mesures
-générales, à notre sens, s'imposeraient :
-1° Une mesure négative : la séparation de l'Église
-et de l'État; plus de budget des cultes; une législa- |
+générales, à notre sens, s'imposeraient:
+1° Une mesure négative: la séparation de l'Église
+et de l'État; plus de budget des cultes; une législa-
 
 tion précise et sévère sur la mainmorte territoriale
 et foncière; car, sans vouloir enlever à l'Église la
@@ -1192,17 +1192,17 @@ séparation dégagerait définitivement l'État civil de
 : tout caractère religieux; la religion deviendrait
 chose libre, cesserait d'être chose officielle; la
 situation respective de la société civile et de la
-société religieuse serait nette et franche. Actuelle- .
+société religieuse serait nette et franche. Actuelle-.
 ment, sous le régime concordataire, il y a entre
 Rome et le gouvernement français un système de
-| transactions en vertu duquel le Pape laisse au gou-
-| vernement français, s'il continue à protéger les
+transactions en vertu duquel le Pape laisse au gou-
+vernement français, s'il continue à protéger les
 missions catholiques étrangères, carte blanche dans
-sa lutte contre les congrégations : c'est ainsi que
+sa lutte contre les congrégations: c'est ainsi que
 l'on a la politique double d'un anticléricalisme
-intérieur et d'un cléricalisme extérieur.  Gette
+intérieur et d'un cléricalisme extérieur. Gette
 situation fausse cesserait; et, si un parti catholique
-pur se constituait, comme en Allemagne, les questions n'en seraient posées qu'avec plus de précision. (1) » Une mesure déjà plus positive : une large
+pur se constituait, comme en Allemagne, les questions n'en seraient posées qu'avec plus de précision. (1) » Une mesure déjà plus positive: une large
 (t) Voir à ce sujet ce que dit Sorel, Essai sur l'Église et l'Etat,
 pages 41-42 et suivantes.
 
@@ -1212,7 +1212,7 @@ française, assurerait un franc et large essor à toutes
 les libertés, et permettrait ainsi à la cité moderne
 de mieux se défendre contre les empiétements du
 clergé. Proudhon, dans son livre sur le Principe
-Jfédératif, a fort bien posé la question : « Je vous
+Jfédératif, a fort bien posé la question: « Je vous
 - en préviens, écrit-il, (1) pour peu que le clergé le
 veuille, pour peu qu'il lui plaise d'appuyer ses
 candidatures de quelques démonstrations de ré-
@@ -1222,12 +1222,12 @@ que la démocratie et le gouvernement réunis. Que
 dis-je? C'est lui-même qui deviendra l'organe de la
 démocratie... Jusqu'à présent le clergé n'a pas
 profité du droit qu'assure à tout ecclésiastique la
-législation de 89, mais pourquoi ? C'est que depuis
+législation de 89, mais pourquoi? C'est que depuis
 89 la situation de l'Église, ses rapports avec l'État,
 son influence sociale ont été réglés, d'une autre manière, par le Concordat. Mais supprimez le Concordat, abolissez le budget ecclésiastique, et comme
 saint Paul fabriquait des tentes pour vivre, le prêtre
 fera du commerce, de l'industrie, de l'enseignement, de la politique enfin, et de l'économie politique avec tous les citoyens et vous verrez bien
-() Du Principe fédératif, chapitre VII, pages 120-122-123.
+Du Principe fédératif, chapitre VII, pages 120-122-123.
 
 autre chose. Pour moi, si l'on me demande comment je pense sortir de cet effrayant cercle vicieux
 qui nous montre dans les éventualités de l'avenir,
@@ -1236,7 +1236,7 @@ mystique à force de matérialisme, un califat universel sortant d'un scrutin un
 dût-on me taxer de monomanie, que je n''aperçois
 d'échappatoire que dans la fédération... Supposons
 
-_ dans la confédération un développement extraordinaire du sentiment religieux, donnant lieu à des
+dans la confédération un développement extraordinaire du sentiment religieux, donnant lieu à des
 prétentions exagérées de la part du ministère ecclé-
 siastique et aboutissant à un conflit entre les deux
 ordres, temporel et spirituel. Possible alors que le
@@ -1268,31 +1268,31 @@ entière, révolutionnée dans son chef et forcée de
 marcher avec la liberté, et vous échappez à
 l'inconvénient de soulever contre vous l'univers
 3° Proudhon nous indique aussi la troisième mesure générale à prendre, mesure, celle-là, tout à fait
-positive et décisive : joindre à la fédération politique la fédération industrielle, pratiquer une politique hardiment sociale. De quoi, en effet, s'agit-il |
-en définitive ? D'arracher le peuple à la domination
-de l'Église. Après tout, quela bourgeoisie s'encapu- |
+positive et décisive: joindre à la fédération politique la fédération industrielle, pratiquer une politique hardiment sociale. De quoi, en effet, s'agit-il
+en définitive? D'arracher le peuple à la domination
+de l'Église. Après tout, quela bourgeoisie s'encapu-
 
 cine, c'est son affaire, il n'y a que demi-mal; l'essentiel, c'est de tirer le peuple ouvrier et paysan, qui
 forme l'immense majorité du pays. hors du joug
-clérical. Mais, en fait, le peuple est déjà, spirituellement, détaché de l'Église ; l'ouvrier, le paysan ne
+clérical. Mais, en fait, le peuple est déjà, spirituellement, détaché de l'Église; l'ouvrier, le paysan ne
 croient plus, et s'ils pratiquent encore, s'ils mettent
 encore leurs enfants à l'école congréganiste, c'est
 que la crainte du seigneur... Capital est pour eux
 
-L'Église a été très habile d'ailleurs ; elle a multiplié les œuvres sociales, elle essaie de toute façon
+L'Église a été très habile d'ailleurs; elle a multiplié les œuvres sociales, elle essaie de toute façon
 de demeurer une réalité rationnelle et pratique aux
 yeux du peuple. Prétant son appui au capitalisme,
 elle fonde des mutuelles, des coopératives, des
-syndicats catholiques. Elle a beau faire, cependant ;
+syndicats catholiques. Elle a beau faire, cependant;
 déjà épiphénomène, comme dit Sorel, elle ne rede-
 
-- viendra pas une réalité juridique essentielle ; elle a
+- viendra pas une réalité juridique essentielle; elle a
 contre elle l'instinct profond du peuple, qui répugne
 à la charité cléricale et veut la justice. Depuis 1789,
 l'État s'est, en partie, substitué à l'Église dans les
 œuvres essentielles de l'enseignement et de l'assistance, et déjà le peuple a touché, par là, des réalités collectivistes. Mais l'État, c'est encore, comme
 l'Église, quoique plus prochaine, une entité qui
-pour le prolétariat est transcendante ; la solidarité
+pour le prolétariat est transcendante; la solidarité
 oficielle et laïque, si elle est moins humiliante que
 la charité chrétienne, fait encore l'effet d'une au-
 
@@ -1300,7 +1300,7 @@ mône et le peuple. à l'hôpital comme à l'école,
 quoique laïcisés, ne se sent pas encore tout à fait
 chez lui. Ce qui donc serait tout à fait décisif, ce
 serait d'opérer un transfert plus profond et plus
-essentiel que celui de l'Église à l'État : Le transfert
+essentiel que celui de l'Église à l'État: Le transfert
 de l'État aux organismes ouvriers des fonctions sociales fondamentales, en donnant aux syndicats la
 haute main sur le service de l'enseignement et de
 l'assistance publique. Que la classe ouvrière, alliée
@@ -1309,7 +1309,7 @@ un faisceau compact d'institutions mutualistes et
 fédératives, — comme la fédération gantoise, par
 exemple, en offre un modèle admirable, — etl'Église
 deviendra pour elle, moins encore qu'un épiphénomène, un songe du passé. Pour cette œuvre, la
-classe ouvrière ne demande qu'une chose : la liberté;
+classe ouvrière ne demande qu'une chose: la liberté;
 qu'une législation libérale augmente sa capacité juridique, laisse les attributions de ses organismes
 s'étendre, et s'accroître les libertés générales, et cela
 lui suffit. On parle toujours de l'impossibilité pour
@@ -1320,8 +1320,8 @@ est trop faiblement organisée pour en assurer elle56
 
 même l'exacte application, sont, on le sait bien, la
 chose la plus vaine du monde. Rien ne saurait dispenser le prolétariat de défendre lui-même tous ses
-*_ droits, y compris sa liberté de conscience. Le paternalisme clérical d'un Schneider ou d'un Chagot
-} suppose une classe ouvrière encore inorganique.
+droits, y compris sa liberté de conscience. Le paternalisme clérical d'un Schneider ou d'un Chagot
+suppose une classe ouvrière encore inorganique.
 On craint le danger que fait courir au mouvement
 - syndical la multiplication, sous les auspices de
 l'Église et des patrons, des syndicats jaunes. Mais
@@ -1332,8 +1332,8 @@ légal à s'immiscer dans les affaires de leurs ouvriers?
 N'est-ce pas le ministère Waldeck-RousseauMillerand, qui, s'inspirant des idées démocratiques
 courantes, a créé les conseils du travail, cet essai
 de parlementarisme industriel, où la pointe révolutionnaire des revendications prolétariennes viendra s'émousser dans l'eau dormante des discussions
-académiques ? C'est un exemple saisissant du carac-
-”  tère équivoque de cette législation soi-disant sociale
+académiques? C'est un exemple saisissant du carac-
+tère équivoque de cette législation soi-disant sociale
 etouvrière où se plaisent les démocrates. On pré-
 tend créer la paix sociale, atténuer les conflits entre
 
@@ -1348,7 +1348,7 @@ ne leur disent rien qui vaille. Ce qu'ils demandent,
 dans leurs congrès, c'est la pleineliberté de réunion
 et d'association. Et de plus en plus, ils s'occupent
 de développer leurs œuvres de défense, de mutualité
-et d'enseignement; ils se créent par là un véritable
+et d'enseignement; ils se créent par un véritable
 monde nouveau, où, hors de l'Église comme de
 l'État, ils montent à un avenir de liberté et de justice. S'ils s'intéressent à la politique démocratique,
 c'est en tant qu'elle doit supprimer dans la société
@@ -1358,8 +1358,8 @@ le cléricalisme, c'est lutter contre l'esprit de domination. Dans l'affaire Dre
 contre la domination de la caste militaire; dans
 cette révolte tragique de toutes les consciences
 libres contre le plus odieux des jougs, ils ont été au
-premier rang. Ils veulent y être aussi dans la révolte |
-contre la domination de la caste ecclésiastique et |
+premier rang. Ils veulent y être aussi dans la révolte
+contre la domination de la caste ecclésiastique et
 sont prêts à s'associer à toute politique anticléricale.
 Mais ils pensent avec Proudhon que, pour s'opposer
 
@@ -1376,7 +1376,7 @@ la liberté prépondérante, l'ordre politique est une
 hiérarchie renversée dans laquelle la plus grande
 part de conseil, de richesse et de puissance reste
 aux mains de la multitude confédérée, sans pouvoir
-jamais passer à celles d'une autorité centrale », (1) et
+jamais passer à celles d'une autorité centrale (1) et
 qui, par conséquent, ajouterons-nous, constitue la
 décisive résorption dans le corps même de la société de ces deux oppresseurs de la conscience et de
 la liberté, l'Église et l'État.
@@ -1396,19 +1396,19 @@ Sixième cahier de la quatrième série, cahier de
 
 un cahier de 72 pages, un franc
 
-Le courrier que l'on va lire laisse une impression
+Le courrier que l'on lire laisse une impression
 
-pénible ; mais nous savons de longtemps que la misère
+pénible; mais nous savons de longtemps que la misère
 
 nest pas un exercice de vertu, qu'elle est laide.
 
-Notre correspondant est un instituteur ; non pas un
+Notre correspondant est un instituteur; non pas un
 
 de ces instituteurs que l'on a introduits du dehors pour
 
-mater la Bretagne, la franciser et la républicaniser ;
+mater la Bretagne, la franciser et la républicaniser;
 
-mais un instituteur breton, né breton, aimant et sachant
+mais un instituteur breton, breton, aimant et sachant
 
 la Bretagne.
 
@@ -1420,9 +1420,9 @@ Sorbonne, rez-de-chaussée, Paris, cinquième arrondis-
 
 A peine ai-je besoin d'avertir que nous n'avons main-
 
-commune ; écrasés entre la réaction des réactionnaires
+commune; écrasés entre la réaction des réactionnaires
 
-et la réaction des radicaux, entre la stupidité des foules }
+et la réaction des radicaux, entre la stupidité des foules
 
 nationalistes réactionnaires et la stupidité des foules
 
@@ -1432,20 +1432,20 @@ Tmpunément ce qu'ils savent de vérité; nos cahiers s'en
 
 aperçoivent; mais nous avons le droit et le devoir de
 
-compromettre, quand il est juste, la prospérité de nos |
+compromettre, quand il est juste, la prospérité de nos
 
 cahiers; nous n'avons pas le droit de jouer la vie d'un
 
 homme pauvre; nous laissons aux politiciens ce jeu
 
-Nous prions notre correspondant de vouloir bien nous |
+Nous prions notre correspondant de vouloir bien nous
 
 continuer ses courriers.
 
 C'est avec plaisir que je m'empresse de vous donner
 
 les renseignements que vous demandez sur la question
-à à l'ordre du jour dans la presse : la misère de nos
+à à l'ordre du jour dans la presse: la misère de nos
 pêcheurs sardiniers et des ouvriers de friterie.
 
 Comme vous l'avez deviné, il y a dans toutes les
@@ -1460,7 +1460,7 @@ moins en moins rémunératrice, par suite de la rareté
 du poisson.
 
 La campagne de 1902 a été particulièrement mauvaise. Aussi les bateaux sardiniers ont-ils pratiqué, en
-très grand nombre, d'autres pêches : congres, raies, et
+très grand nombre, d'autres pêches: congres, raies, et
 principalement celle des langoustes.
 
 Il n'est donc pas tout à fait exact de dire que la
@@ -1475,7 +1475,7 @@ dégâts aux engins des langoustiers, nasses ou casiers.
 De plus, la pêche se faisant sur une plus grande
 échelle, il est tout naturel que les profits soient
 
-Le manque de sardines a donc eu une répercussion
+Le manque de sardines a donc une répercussion
 malheureuse sur tout le littoral.
 
 Néanmoins, c'est pour l'industrie de la sardine exclusivement que M. Le Bail et quelques autres députés de
@@ -1483,7 +1483,7 @@ la région bretonne ont sollicité un secours de la Chambre. Leur initiative a i
 le clan réactionnaire. Calotins et cléricaux de toute
 marque ont vu, dans cette réclamation, un danger pour
 leur influence politique. Avec la décision qui caractérise
-tous leurs actes, ils ont eu vite fait d'organiser des
+tous leurs actes, ils ont vite fait d'organiser des
 souscriptions, dans leurs journaux et dans les sacristies.
 Ils sont arrivés des premiers à fournir des secours aux
 
@@ -1496,13 +1496,13 @@ secours ne cause plus d'ennuis de toutes sortes aux
 promoteurs de ce mouvement humanitaire qu'elle ne
 leur attirera de sympathies.
 
-Vous avez sans doute dû vous demander ce qu'il
+Vous avez sans doute vous demander ce qu'il
 pouvait y avoir de vrai dans les descriptions émouvantes
 de la misère de nos populations maritimes, descriptions faites de visu par les reporters des journaux
 
 Pour moi, je tiens pour certain que les auteurs de ces
 
-articles n'ont pu trouver partout la situation vraiment
+articles n'ont trouver partout la situation vraiment
 navrante qu'ils dépeignent.
 
 Les logis de nos marins sont certes bien pauvres,
@@ -1510,13 +1510,13 @@ mais ils ne sont pas tels qu'on nous le raconte.
 
 Si cela est, c'est que la plupart des maisons visitées
 
-* avaient été préparées d'avance (on me l'a dit) et que
+avaient été préparées d'avance (on me l'a dit) et que
 la leçon était faite préalablement aux habitants.
 
 Donc, il y a une certaine misère, mais pas la détresse
 absolue qu'on se plaît à répéter sur tous les tons. Et
 
-* les plus à plaindre ne sont pas surtout ceux qu'on
+les plus à plaindre ne sont pas surtout ceux qu'on
 
 Nous étions bien calmes, bien tranquilles au pays
 breton avant que cet état. de famine fût officiellement décrété. Il y avait, certes, dans nos ports et sur le
@@ -1531,7 +1531,7 @@ prochaine de la pêche aux maquereaux.
 Et voici que, tout à coup, l'on veut nous prouver que
 chez nous les petits enfants meurent faute d'une alimentation suffisante, que les grandes personnes sont
 anémiées et affaiblies par les privations, que le recrutement de la flotte de guerre est compromis par suite
-de l'anéantissement de nos jeunes gens, que sais-je !….
+de l'anéantissement de nos jeunes gens, que sais-je!….
 
 Encore une fois, tout cela est exagéré.
 
@@ -1545,20 +1545,20 @@ pendant le même temps (j'en connais qui se font 1.500
 et 1.500 francs par an); les femmes employées aux
 usines atteignent 200 ou 250 francs.
 
-Avec ces salaires, auxquels s'ajoutent, pour les !
+Avec ces salaires, auxquels s'ajoutent, pour les!
 pêcheurs, le produit de leurs autres pêches de l'année
 et la valeur du poisson et des crustacés, dont ils fournissent leur ménage; pour les soudeurs et les femmes,
 la rémunération des besognes accessoires pendant la
 morte saison, une famille pourrait vivre facilement
 toute l'année. Notez, d'ailleurs, que les Bretons, les
 gens du littoral surtout, sont très prolifiques et que la
-maisonnée est souvent nombreuse; que les enfants, :
+maisonnée est souvent nombreuse; que les enfants,:
 arrivés à l'âge de treize ou quatorze ans, apportent
 déjà à leurs parents leur part de gain.
 
 Malheureusement, et vous le savez peut-être, nos
 marins sont loin d'être des modèles de tempérance.
-Quand la pêche donne, leurs stations aux cabarets sont |
+Quand la pêche donne, leurs stations aux cabarets sont
 longues et fréquentes. L'alcoolisme est le fléau des
 
 D'autre part, sans vouloir calomnier les femmes de
@@ -1566,24 +1566,24 @@ D'autre part, sans vouloir calomnier les femmes de
 “pêcheurs, il faut avouer qu'elles ignorent ce que c'est
 que l'économie.
 
-Elles gaspillent l'argent que leurs maris ont tant de |
-peine à gagner : les pâtissiers, les crépières en savent
-quelque chose. Jamais ces derniers ne font faillite, |
+Elles gaspillent l'argent que leurs maris ont tant de
+peine à gagner: les pâtissiers, les crépières en savent
+quelque chose. Jamais ces derniers ne font faillite,
 tandis que les boulangers et les autres commerçants
-font, trop souvent, de mauvaises affaires. ;
+font, trop souvent, de mauvaises affaires.;
 
 Il faut voir, dans les ports de pêche, à Audierne et
-Douarnenez, le luxe des femmes et des jeunes filles de +
-pêcheurs et d'ouvriers. Vêtues plus richement que ne :
+Douarnenez, le luxe des femmes et des jeunes filles de
+pêcheurs et d'ouvriers. Vêtues plus richement que ne:
 le comporte leur condition et leur état de fortune,
-chaussées et gantées comme des personnes très riches, Fe
+chaussées et gantées comme des personnes très riches,
 on peut affirmer qu'elles prodiguent inutilement le petit
 
 pécule de la famille, sans souci de la misère qui les
-‘ attend pendant les mauvais jours.
+attend pendant les mauvais jours.
 
 Peut-on s'étonner, après cela, du dénûment qui règne
-chez les marins ?
+chez les marins?
 
 Pour en revenir aux questions que vous me posez
 
@@ -1595,10 +1595,10 @@ naturelle prime tout chez les pauvres diables; ils ne
 4 parlent que secours, argent, pain, etc.
 
 A ce sujét, lon me racontait que certains quémandeurs, à Douarnenez, à Audierne, refusent le pain
-qu'on leur offre ou les bons de viande qu'on leur distribue : « Donnez-nous de l'argent, disent-ils; cet argent
-nous appartient ! »
+qu'on leur offre ou les bons de viande qu'on leur distribue: « Donnez-nous de l'argent, disent-ils; cet argent
+nous appartient! »
 
-C'est là une réponse qui caractérise réellement la
+C'est une réponse qui caractérise réellement la
 détresse des marins bretons, tant prônée par la presse.
 La population maritime, en général, crie, non pas la
 misère, mais le manque de superfiu.
@@ -1620,7 +1620,7 @@ leur passage, soignaient les malades, etc.
 
 En somme, la question politique reparaît avec l'entrée en scène des robes noires et de leur chef.
 
-Que vous dirai-je encore? Ici, la question des ‘:
+Que vous dirai-je encore? Ici, la question des
 secours et de la misère fait l'objet de toutes les conversations. Les uns exultent, les autres récriminent. C'est
 certes un événement qui fera époque dans la vie des
 
@@ -1654,7 +1654,7 @@ France, publiés dans les trois premières séries des
 Sixième cahier de la quatrième série, cahier de
 courrier, inventaire des cahiers, en forme de catalogue,
 
-‘ un cahier de 72 pages, un franc
+un cahier de 72 pages, un franc
 
 Nous avons reçu de M. Urbain Gohier la circulaire
 
@@ -1666,21 +1666,20 @@ La seconde série commencera dès que vous le voudrez.
 encore disposé à se laisser couper la tête.
 B. GUINAUDEAU, qui a quitté l'Aurore en même
 temps et pour les mêmes raisons, prêtera au Vieux Cordelier ressuscité le concours de son talent et de sa probité.
-Le Vieux Cordelier n'aura ni commanditaires, ni action- ;
+Le Vieux Cordelier n'aura ni commanditaires, ni action-;
 naires. Il restera seul maître chez lui.
 Le Vieux Cordelier sera ce que les fripons appellent un
 Il dira ce qu'il jugera bon de dire en toute matière et sur « toute personne. Il dira particulièrement ce que les autres
 feuilles ne voudraient ou ne pourraient pas dire.
-__ Il criera les vérités que les « hommes d'ordre et de gouvernement » s'efforcent d'étouffer. £
-Les citoyens qui l'ont déjà vu à l'œuvre savent s'il est À
+Il criera les vérités que les « hommes d'ordre et de gouvernement » s'efforcent d'étouffer.
+Les citoyens qui l'ont déjà à l'œuvre savent s'il est À
 capable d'amnistier un crime, de pardonner un mensonge
 ou de reculer devant un coquin.
-Ils savent aussi combien de parasites politiciens ont ;
-gagné des places en exploitant ses idées, ou ramassé des ve
+Ils savent aussi combien de parasites politiciens ont;
+gagné des places en exploitant ses idées, ou ramassé des
 mandats en récitant ses écrits. On le pille, on le gruge, on
 l'excommunie, on l'insulte. Maïs il a quelquefois son
-Le Vieux Cordelier se moque des pharisiens et des tar- :
-70
+Le Vieux Cordelier se moque des pharisiens et des tar-:
 
 tufes. Il suit les avis de sa sensibilité, les élans de sa passion, plus sage que la sagesse des pleutres.
 
@@ -1713,41 +1712,41 @@ Prière d'adresser au soussigné soit un mandat-carte de
 reçu du premier numéro.
 
 Le Vieux Cordeiier ne peut espérer aucun secours des
-journaux ; il ne peut faire les frais d'un aflichage; sa résur-
+journaux; il ne peut faire les frais d'un aflichage; sa résur-
 
 . rection ou sa mort définitive dépend uniquement de la
-| réponse qu'il va recevoir.
+réponse qu'il recevoir.
 
 suelles ‘régulières et par des souscriptions extraordi-
-| naires; La souscription ne confère aucune autorité sur
-. la rédaction ni sur l'administration : ces fonctions ;
-a 4 _ des abonnements de souscription à cent francs;
+naires; La souscription ne confère aucune autorité sur
+. la rédaction ni sur l'administration: ces fonctions;
+a 4 des abonnements de souscription à cent francs;
 DE des abonnements ordinaires à vingt francs;
-LL et des abonnements de propagande à douze francs.
-_ service entre ces différents abonnements. Nous vouJ 1 lons seulement que nos cahiers soient accessibles à tout
+et des abonnements de propagande à douze francs.
+service entre ces différents abonnements. Nous vouJ 1 lons seulement que nos cahiers soient accessibles à tout
 4. le monde également.
-mr Le prix de nos abonnements ordinaires est à peu près
+Le prix de nos abonnements ordinaires est à peu près
 Le égal au prix de revient; le prix de nos abonnements de
 Der “propagande est donc sensiblement inférieur au prix
-_ de revient. Nous ne consentons des abonnements de
+de revient. Nous ne consentons des abonnements de
 propagande que pour la France.
 Nous acceptons que nos abonnés paient leur abonne-
-“ ment par mensualités de un ou deux francs.
+ment par mensualités de un ou deux francs.
 … Pour tout changement d'adresse envoyer soixante
-_ centimes, quatre timbres de quinze centimes.
-LA _ L'abonnement de propagande cesse de fonctionner
+centimes, quatre timbres de quinze centimes.
+LA L'abonnement de propagande cesse de fonctionner
 Are pour chaque série à l'achèvement de cette série; la
-…_ troisième série ayant fini fin juillet dernier, on pouvait
+troisième série ayant fini fin juillet dernier, on pouvait
 ii: jusqu'au 31 juillet inclus avoir au prix de propagande
 les vingt premiers cahiers de la troisième série.
-és - L'abonnement ordinaire cesse de fonctionner pour
-_ chaque série au plus tard le 31 décembre qui suit
-… l'achèvement de cette série ; ainsi du premier août au
-_ 31 décembre 1902 on pouvait encore avoir pour
+- L'abonnement ordinaire cesse de fonctionner pour
+chaque série au plus tard le 31 décembre qui suit
+… l'achèvement de cette série; ainsi du premier août au
+31 décembre 1902 on pouvait encore avoir pour
 . vingt francs les vingt et un cahiers de la troisième série.
 
-t A partir du premier janvier qui suit l'achèvement NAN:
-d'une série, le prix de cette série est porté au moins au . |
+A partir du premier janvier qui suit l'achèvement NAN:
+d'une série, le prix de cette série est porté au moins au.
 total des prix marqués; ainsi depuis le premier janvier 1903 la troisième série se vend trente-troïs francs.
 
 M. André Bourgeois, administrateur des cahiers,

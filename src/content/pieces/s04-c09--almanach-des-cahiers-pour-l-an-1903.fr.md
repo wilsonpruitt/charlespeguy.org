@@ -11,117 +11,115 @@ des Cahiers
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-} : Pour savoir ce que sont les Cahiers de la Quinzaine,
+: Pour savoir ce que sont les Cahiers de la Quinzaine,
 4 il suffit d'envoyer un mandat de trois francs cinquante
 11000 à M. André Bourgeois, administrateur des cahiers, À
-| 8, rue de la Sorbonne, Paris. On recevra en spécimens
+8, rue de la Sorbonne, Paris. On recevra en spécimens
 : six cahiers de la deuxième et de la troisième série. sa
-Nous mettons ce cahier dans le commerce; nous le :
+Nous mettons ce cahier dans le commerce; nous le:
 ( ê vendons un franc
 
 almanach des cahiers
 
 Le printemps commence le samedi 21 mars, à
-7 heures 24% minutes du soir ;
+7 heures 24% minutes du soir;
 
-l'été commence le lundi 22 juin, à 3 heures 14 minutes du soir ;
+l'été commence le lundi 22 juin, à 3 heures 14 minutes du soir;
 
 l'automne commence le jeudi 2% septembre, à
-5 heures 53 minutes du matin: ;
+5 heures 53 minutes du matin:;
 
 l'hiver commence le mercredi 23 décembre, à minuit
 
-Les jours croissent de 23 minutes SOLEIL | LUNE |
+Les jours croissent de 23 minutes SOLEIL LUNE
 
-15 heures 23 minutes de nuit. lever |coucher| lever | coucher |
-/ Premier quartier le 6, à 10 heures 6 minutes du soir. |
-se Pleine lune le 13, à 2 heures 26 minutes du soir. |
-”  ) Dernier quartier le 20, à 11 heures 58 minutes du matin.
+15 heures 23 minutes de nuit. lever |coucher| lever coucher
+Premier quartier le 6, à 10 heures 6 minutes du soir.
+se Pleine lune le 13, à 2 heures 26 minutes du soir.
+) Dernier quartier le 20, à 11 heures 58 minutes du matin.
 
-l Nouvelle lune le 28,:à 4 heures 48 minutes du soir.
+Nouvelle lune le 4 heures 48 minutes du soir.
 
-Érrae 55 minutes de nuit | lever |coucher| lever |coucher
+Érrae 55 minutes de nuit lever |coucher| lever |coucher
 
-/ Premier quartier le 5, à 10 heures 22 minutes du matin.
+Premier quartier le 5, à 10 heures 22 minutes du matin.
 
-Ë \ Pleine lune le 12, à 1 heure 7 minutes du matin.
+Pleine lune le 12, à 1 heure 7 minutes du matin.
 
-LUNE | Dernier quartier le 19, à 6 heures 32 minutes du matin.
+LUNE Dernier quartier le 19, à 6 heures 32 minutes du matin.
 
 Nouvelle lune Je 27, à 10 heures 29 minutes du matin.
 
-6
-
-12 heures 16 minutes de nuit. lever |coucher| lever | coucher
-{ Premier quartier le 6, à 7 heures 23 minutes du soir. |
-È \ Pleine lune le 13, à 0 heure 22 minutes du soir.
-Li ms Dernier quartier le 21, à 2 heures 17 minutes du matin.
-| | Nouvelle lune le 29, à 1 heure 35 minutes du matin.
+12 heures 16 minutes de nuit. lever |coucher| lever coucher
+Premier quartier le 6, à 7 heures 23 minutes du soir.
+È Pleine lune le 13, à 0 heure 22 minutes du soir.
+Dernier quartier le 21, à 2 heures 17 minutes du matin.
+Nouvelle lune le 29, à 1 heure 35 minutes du matin.
 
 Le 15, 13 heures 35 minutes de
-jour, 10 heures 25 minutes de nuit. lever |coucher | lever coucher |
-/ Premier quartier le 5, à 2 heures 1 minute du matin.
-Le \ Pleine lune le 12, à 0 heure 27 minutes du matin.
-LUXE / Dernier quartier le 19, à 9 heures 40 minutes du soir.
-\ Nouvelle lune le 27, à 1 heure 41 minutes du soir.
+jour, 10 heures 25 minutes de nuit. lever |coucher lever coucher
+Premier quartier le 5, à 2 heures 1 minute du matin.
+Le Pleine lune le 12, à 0 heure 27 minutes du matin.
+LUXE Dernier quartier le 19, à 9 heures 40 minutes du soir.
+Nouvelle lune le 27, à 1 heure 41 minutes du soir.
 
 8 heures 54 minutes de nuit. lever |coucher| lever coucher!
 Premier quartier le 4, à 7 heures 35 minutes du matin.
-+ 4 Pleine lune le 11, à 1 heure 27 minutes du soir.
-LUNE Dernier quartier le 19, à 3 heures 27 minutes du soir. |
-{ Nouvelle lune le 26, à 10 heures 59 minutes du soir.
+4 Pleine lune le 11, à 1 heure 27 minutes du soir.
+LUNE Dernier quartier le 19, à 3 heures 27 minutes du soir.
+Nouvelle lune le 26, à 10 heures 59 minutes du soir.
 
-Then etes de O7 || Meyerit cote helene een
-/ Premier quartier le 2, à 1 heure 33 minutes du soir.
-à \ Pleine lune le 10, à 3 heures 17 minutes du matin.
-UNE | Dernier quartier le 18, à 6 heures 53 minutes du matin.
+Then etes de Meyerit cote helene een
+Premier quartier le 2, à 1 heure 33 minutes du soir.
+à Pleine lune le 10, à 3 heures 17 minutes du matin.
+UNE Dernier quartier le 18, à 6 heures 53 minutes du matin.
 Nouvelle lune le %5, à 6 heures 20 minutes du matin.
 
 Le 15,45 heures 5 minutes de jour,
-8 heures 55 minutes de nuit. lever |coucher| lever | coucher
+8 heures 55 minutes de nuit. lever |coucher| lever coucher
 Premier quartier le premier, à 9 heures 11 minutes du soir.
-\ Pleine lune le 9, à 5 heures 52 minutes du soir. |
-Luxe < Dernier quartier le 17, à 7 heures 33 minutes du soir.
-| Nouvelle lune le 24, à 0 heure 55 minutes du soir. |
-Premier quartier le 31, à 7 heures 24 minutes du matin. |
+Pleine lune le 9, à 5 heures 52 minutes du soir.
+Luxe Dernier quartier le 17, à 7 heures 33 minutes du soir.
+Nouvelle lune le 24, à 0 heure 55 minutes du soir.
+Premier quartier le 31, à 7 heures 24 minutes du matin.
 
-jour, 9 heures 36 minutes de nuit, lever |coucher | lever |coucher
-/ Pleine lune le 8, à 9 heures 3 minutes du matin.
-\ Dernier quartier le 16, à 5 heures 32 minutes du matin.
-LUXE | Nouvelle lune le 22, à 8 heures 0 minute du soir.
+jour, 9 heures 36 minutes de nuit, lever |coucher lever |coucher
+Pleine lune le 8, à 9 heures 3 minutes du matin.
+Dernier quartier le 16, à 5 heures 32 minutes du matin.
+LUXE Nouvelle lune le 22, à 8 heures 0 minute du soir.
 . Premier quartier le 29, à 8 heures 43 minutes du soir.
 
-. Le 15,12 heures 38 minutes de ((
-jour, 41 heures 22 minutes de nuit. | lever |coucher| lever coucher |
-/ Pleine lune le 7, à 0 heure 29 minutes du matin.
-\ Dernier quartier le 14, à 1 heure 23 minutes du soir.
+. Le 15,12 heures 38 minutes de
+jour, 41 heures 22 minutes de nuit. lever |coucher| lever coucher
+Pleine lune le 7, à 0 heure 29 minutes du matin.
+Dernier quartier le 14, à 1 heure 23 minutes du soir.
 our Nouvelle lune le 21, à 4 heures 40 minutes du matin.
-Premier quartier le 28, à 1 heure 18 minutes du soir. |
+Premier quartier le 28, à 1 heure 18 minutes du soir.
 
 Premier octobre ou 24 octobre
-De 4 CR ent ji lever |coucher| lever |coucher
+De 4 ent lever |coucher| lever |coucher
 
-/ Pleine lune le 6, à 3 heures 33 minutes du soir,
-x \ Dernier quartier le 13, à 8 heures 6 minutes du soir.
-LUXE ! Nouvelle lune le 20, à 3 heures 39 minutes du soir,
-\ Premier quartier le 28, à 8 heures 42 minutes du matin.
+Pleine lune le 6, à 3 heures 33 minutes du soir,
+Dernier quartier le 13, à 8 heures 6 minutes du soir.
+LUXE! Nouvelle lune le 20, à 3 heures 39 minutes du soir,
+Premier quartier le 28, à 8 heures 42 minutes du matin.
 
-14 heures 50 minutes de nuit. lever |coucher| lever | coucher |
-/ Pleine lune le 5, à 5 heures 37 minutes du matin. |
-k \ Dernier quartier le 12, à 2 heures 55 minutes du matin.
+14 heures 50 minutes de nuit. lever |coucher| lever coucher
+Pleine lune le 5, à 5 heures 37 minutes du matin.
+Dernier quartier le 12, à 2 heures 55 minutes du matin.
 Luxe Nouvelle lune le 19, à 5 heures 19 minutes du matin.
-{ Premier quartier le 27, à 5 heures 46 minutes du matin.
+Premier quartier le 27, à 5 heures 46 minutes du matin.
 
 Le 45, Sheures 13 minutes de jour,
-45 heures 47 minutes de nuit. lever |coucher | lever |coucher
-/ Pleine lune le 4, à 6 heures 22 minutes du soir.
-| Re \ Dernier quartier le 11, à 11 heures 2 minutes du matin.
-QÈE / Nouvelle lune le 18, à 9 heures 35 minutes du soir.
-| | Premier quartier le 27, à 2 heures 32 minutes du matin.
+45 heures 47 minutes de nuit. lever |coucher lever |coucher
+Pleine lune le 4, à 6 heures 22 minutes du soir.
+Dernier quartier le 11, à 11 heures 2 minutes du matin.
+QÈE Nouvelle lune le 18, à 9 heures 35 minutes du soir.
+Premier quartier le 27, à 2 heures 32 minutes du matin.
 
 Le milieu de l'année est le jeudi 2 juillet à midi.
 
-Le jour le plus long de l'année : le lundi 22 juin,
+Le jour le plus long de l'année: le lundi 22 juin,
 le soleil se lève à 3 heures 58 minutes, et se couche
 à 8 heures 5; le crépuscule dure 44% minutes; le
 Jour solaire dure 16 heures 7, et la nuit solaire
@@ -140,7 +138,7 @@ courrier de Montfaucon
 
 L'an mil neuf cent deux, le dix-neuf décembre, à la
 requête de monsieur Colomb, président du Comité de
-l'Œuvre « les Journaux pour Tous », dont le siège est
+l'Œuvre « les Journaux pour Tous dont le siège est
 
 Élisant domicile en mon étude,
 
@@ -155,9 +153,9 @@ la Sorbonne, numéro 8, où étant et parlant à un employé à son service ains
 De, dans trois jours pour tout délai ou dans la première édition du journal Les Cahiers de la Quinzaine
 avoir — en réponse à un article paru dans le quatrième
 cahier de la quatrième série des dits Cahiers de la
-Georges Colomb », commençant par ces mots « Je
+Georges Colomb commençant par ces mots « Je
 n'établis pas seulement des questionnaires » et finissant
-par ceux-ci : « On ne s'ennuiera pas. Il y a un pape en
+par ceux-ci: « On ne s'ennuiera pas. Il y a un pape en
 couleurs près de qui le sous-lieutenant s'efface » — à
 insérer à la même place et en mêmes caractères que
 l'article incriminé, la réponse suivante en conformité
@@ -167,7 +165,7 @@ Dans l'article que vous avez bien voulu me consacrer (Cahiers de la Quinzaine, q
 quatrième série), comme dans l'article que vous consacrez à M. Émile Terquem, plusieurs erreurs relatives à
 l'œuvre des « Journaux pour Tous » se sont glissées.
 Vous prenez par exemple à täche d'opposer les
-« anciens Journaux pour Tous » aux « nouveaux »,
+« anciens Journaux pour Tous » aux « nouveaux
 comme si l'œuvre en question, en changeant de local et
 de secrétaire, avait modifié son orientation-politique.
 Il est du plus grand intérêt pour l'œuvre que pareille
@@ -214,21 +212,21 @@ vont être satisfaits, puisque mon rapport ne se compose
 guère que d'une succession de documents dont je possède et conserve précieusement les originaux.
 
 Voici ce rapport, ou tout au moins la première partie
-de ce rapport :
+de ce rapport:
 
 Je dois vous mettre au courant des incidents qui se
 sont produits pendant le déménagement que nous
 avons opéré du 8 de la rue de la Sorbonne, pour revenir à notre berceau, c'est-à-dire au 17 de la rue Cujas.
 
 Il y a deux affaires distinctes greffées l'une sur
-l'autre : Il y a l'affaire Péguy; il y a l'affaire Boivin. .
+l'autre: Il y a l'affaire Péguy; il y a l'affaire Boivin..
 Bien qu'intimement liées, ces deux affaires peuvent
 être exposées séparément. C'est ce que je vais essayer
 de faire, me réservant de vous faire connaître, en
 guise de conclusion, les liens qu'elles ont entre elles.
 Vous savez qu'en octobre 1901, à la suite de pourparlers dont l'histoire, trop longue pour être rappelée ici,
 serait cependant très instructive, nous avons quitté bien
-à regret le 17 de la rue Cujas où l'œuvre recevait, :
+à regret le 17 de la rue Cujas où l'œuvre recevait,:
 depuis avril 1899, une hospitalité gratuite. M. Charles
 Péguy, très rapidement informé de la nécessité où nous
 nous trouvions de chercher un domicile, s'était aussitôt
@@ -238,7 +236,7 @@ local qu'il louait, 8, rue de la Sorbonne, à la suite de
 son départ forcé de l'École des Hautes Études sociales.
 
 Comme nous n'avions, à cette époque, aucune raison
-de nous défier de M. Charles Péguy ; nous avions
+de nous défier de M. Charles Péguy; nous avions
 accepté son offre et je m'étais engagé à lui payer un
 loyer de cent cinquante francs par an.
 
@@ -250,7 +248,7 @@ dire. Toujours est-il que je n'ai appris cet accroisse23
 
 ment subit du prix de la location que quand il n'y avait
 plus moyen de reculer. Dispensez-moi, je vous prie,
-d'insister sur ce point : il est toujours pénible d'avouer
+d'insister sur ce point: il est toujours pénible d'avouer
 qu'on s'est laissé berner par trop de confiance.
 
 : Je ne vous rappellerai pas quelle fut la stupéfaction
@@ -270,7 +268,7 @@ l'établissement.
 Il est certain que dans ces conditions nos fiches, nos
 adresses, la plupart confidentielles, et notre correspondance ne se trouvaient plus en sûreté. Vous avez trouvé,
 messieurs, que cette installation n'était ni commode, ni
-digne ; que nos réunions devenaient impossibles, ainsi
+digne; que nos réunions devenaient impossibles, ainsi
 que le contrôle des opérations, et vous avez séance
 tenante décidé qu'il fallait immédiatement chercher un
 local plus convenable et plus sûr.
@@ -281,7 +279,7 @@ installés là! » Il a tenu parole, et M. Alfred Alexandre
 donna sa démission provisoire d'administrateur de
 
 l'œuvre. J'avais bien envie d'imiter l'exemple de
-M. Alexandre ; mais je considérai qu'ayant mis l'œuvre
+M. Alexandre; mais je considérai qu'ayant mis l'œuvre
 dans l'embarras, il était de mon devoir de l'en sortir. Je
 pris donc l'engagement de chercher à donner satisfaction aux légitimes observations du comité et je promis
 de me mettre en campagne et de chercher un nouveau
@@ -313,7 +311,7 @@ que je nourrissais encore contre l'École des Hautes
 l'écho dans une lettre que vous lirez tout à l'heure, pré-
 ventions qui, je suis heureux de le dire, se sont entière-
 
-ment dissipées lorsque j'ai eu l'occasion de prendre des
+ment dissipées lorsque j'ai l'occasion de prendre des
 informations plus complètes et de connaître les raisons
 très sérieuses qui avaient rendu obligatoire le départ
 de M. Péguy.
@@ -334,12 +332,12 @@ convoquer nos amis du Comité pour le 9 mai, à l'École
 des Hautes Études Sociales.
 
 Je reçus de M. Boivin, secrétaire de l'œuvre, la lettre
-suivante que je vous livre sans commentaires :
+suivante que je vous livre sans commentaires:
 
 Je ne puis convoquer nos amis — selon l'ordre que
 vous avez reçu de Mascart (1) — sans savoir exactement
 le motif de cette réunion. Ils ont tous, vous le savez, un
-temps trop précieux; ..... etc.
+temps trop précieux;..... etc.
 
 (1) Ces mots ne sont pas soulignés dans la lettre de Boivin.
 
@@ -354,12 +352,12 @@ je le priai de copier textuellement, au cyclostyle, cet
 ordre du jour pour l'expédier aux membres du Comité
 et leur demander de venir bien exactement à la réunion
 
-Je reçus cette réponse :
+Je reçus cette réponse:
 Je vous serais reconnaissant de me signer un chèque
 de trois cents francs (ci-joint le carnet) et, au paragraphe deux, je vous prie de recevoir l'annonce oflicielle
 de mon mariage, qui aura lieu samedi prochain. Je
 
-regrette d'être forcé de m'en tenir là et de ne pouvoir y
+regrette d'être forcé de m'en tenir et de ne pouvoir y
 joindre aucune invitation d'aucune sorte. Tout sera
 dans l'intimité absolue à cause de notre deuil.
 
@@ -399,16 +397,15 @@ serrées, les tempes battant à éclater, M. Charles Péguy
 auquel, je le répète, personne n'avait jamais songé, se
 répandit en invectives contre le Comité composé « de
 ses ennemis personnels » accusant le Comité d'avoir
-dirigé contre lui une cabale (la cabale du déménagement sans doute). Puis il me menaça, disant : « Vous
-voulez déménager? Eh bien! déménagez! Marchez !..….
+dirigé contre lui une cabale (la cabale du déménagement sans doute). Puis il me menaça, disant: « Vous
+voulez déménager? Eh bien! déménagez! Marchez!..….
 Je vous attends. »
 
 J'avais, au début, commencé par plaisanter, mais
 quand il devint évident que M. Péguy ne plaisantait pas
 et qu'il était sous le coup d'une apoplexie imminente,
-je cessai de rire : « Mais enfin, dis-je, faites-moi au
+je cessai de rire: « Mais enfin, dis-je, faites-moi au
 
-—————
 moins savoir pourquoi vous ne voulez pas que nous
 déménagions. Avez-vous des réclamations à formuler,
 des objections à élever? Voyons! Parlez! Nous ne
@@ -424,7 +421,7 @@ Mes moyens de défense sont là, dans MA poche. »
 
 Puis il sortit en saluant les deux personnes présentes.
 
-— « Au revoir », lui criai-je.
+— « Au revoir lui criai-je.
 
 — « Adieu! » répondit-il d'un air sec.
 
@@ -434,7 +431,7 @@ des Hautes Études Sociales, 16, rue de la Sorbonne.
 
 Sur la demande de l'un des témoins de l'algarade et
 aussi parce que je suis pour les moyens doux, j'écrivis
-quelques jours après à M. Péguy la lettre suivante :
+quelques jours après à M. Péguy la lettre suivante:
 
 En ma qualité de président des Journaux pour Tous, je
 vous rappelle que le Comité, trouvant très défectueuse
@@ -467,9 +464,9 @@ manifesté leur désir exprès que leurs noms ne sortent pas
 de nos bureaux.
 Veuillez croire, mon cher Péguy, à mes meilleurs sentiments.
 On ne dira pas, je pense, que cette lettre n'était pas
-La réponse m''arrivait le 9 juin. La voici :
+La réponse m''arrivait le 9 juin. La voici:
 Je ne sais pas, monsieur, Pourquoi vous m'écrivez
-celte lettre : de relations personnelles entre nous il ne
+celte lettre: de relations personnelles entre nous il ne
 peut être question et les relations administratives que
 Vous pouvez avoir avec les Cahiers ne se traitent pas
 avec moi; je ne suis pas locataire de la boutique située
@@ -486,7 +483,7 @@ J'attends donc que vous vouliez bien me dire à partir
 de quand, tout étant réglé, je pourrai entreprendre le
 transport du matériel.
 
-Croyez-moi votre tout dévoué. ;
+Croyez-moi votre tout dévoué.;
 
 Je dis à M. Boivin de déménager le plus vite possible,
 après avoir naturellement payé le terme jusqu'en
@@ -503,11 +500,11 @@ donné et qu'il ne l'ait accepté.
 Je vous renouvelle le désir exprimé l'autre jour de
 me tenir en dehors de ces négociations.
 
-Bien à vous. \
+Bien à vous.
 
 Une lettre de M. Boivin m'apprend que vous vous opposez à notre départ avant que vous n'ayez reçu un congé
 
-régulier; le voici :
+régulier; le voici:
 
 J'ai l'honneur de vous informer que les Journaux pour
 Tous ont l'intention de quitter le local qu'ils occupent au
@@ -530,10 +527,10 @@ Je prie M. Boivin de s'informer et de tâcher de connaître les motifs du mutism
 tâcher d'obtenir de lui cette réponse qu'il paraît vouloir
 ne pas me donner.
 
-Réponse de M. Boivin :
+Réponse de M. Boivin:
 
 Je n'ai rien à vous répondre; vous savez que je nai
-pas discuté (et pas songé un instant à le faire) la décision relative au déménagement : je me suis mis aussi
+pas discuté (et pas songé un instant à le faire) la décision relative au déménagement: je me suis mis aussi
 vite que possible à votre disposition pour le transport
 du matériel.
 
@@ -546,7 +543,7 @@ donc qu'à vous répéter que je suis tout prêt, et que je
 partirai dès que vous ou Bourgeois m'aurez dit que je
 puis le faire.
 
-J'ajoute que je n'ai plus suffisamment d'argent :
+J'ajoute que je n'ai plus suffisamment d'argent:
 Voulez-vous m'envoyer deux cents francs.
 
 Merci et bien à vous.
@@ -556,12 +553,12 @@ en passant combien les assertions de M. Péguy sont
 erronées. Il prétend dans le numéro où il me traite
 gentiment « d'escroc vulgaire » et de « mouchard » que
 M. Boivin dut, pendant trois mois, défendre son œuvre
-pied à pied contre les gens qui « la voulaient dérober ». :
-Or la lettre précédente prouve que le 18 juin les rapports n'étaient pas précisément tendus entre Les
+pied à pied contre les gens qui « la voulaient dérober ».:
+la lettre précédente prouve que le 18 juin les rapports n'étaient pas précisément tendus entre Les
 ouvriers, c'est-à-dire M. Boivin, et ses patrons, comme
 dit élégamment M. Péguy.
 
-Elle prouve aussi que pour un « escroc vulgaire », je
+Elle prouve aussi que pour un « escroc vulgaire je
 lâchais assez facilement l'argent « premièrement dé-
 robé ». Après tout, c'est peut-être précisément en cela
 que consiste la vulgarité de mon escroquerie.
@@ -570,14 +567,14 @@ Mais laissons ces balivernes et revenons à l'histoire
 plutôt singulière, sinon comique, de notre déménagement.
 
 M. Boivin, qui voulait rester bien avec tout le monde,
-n'ayant pas pu me renseigner sur les causes du silence
+n'ayant pas me renseigner sur les causes du silence
 de M. Bourgeois, j'écrivis à ce dernier une lettre recommandée.
 
 Monsieur l'administrateur,
 
 Je vous ai écrit le 12 de ce mois. Comme je ne reçois pas
 de réponse, je ne vois à ce silence qu'une explication
-possible : c'est que vous n'avez pas reçu ma lettre.
+possible: c'est que vous n'avez pas reçu ma lettre.
 
 Je crois donc nécessaire de vous répéter ce que je vous
 disais dans ma lettre qui s'est si malencontreusement
@@ -625,22 +622,22 @@ une imprudence en déposant votre lettre au 16 de la rue de
 la Sorbonne où je ne vais plus que par accident, l'établissement étant officiellement fermé. C'est donc un hasard si
 votre réponse ne m'est parvenue qu'avec deux jours de
 
-Maintenant, que signifient ces paroles : « Vous vous
+Maintenant, que signifient ces paroles: « Vous vous
 prions de bien vouloir nous faire savoir quelle est, selon
 vous, votre siluation juridique envers nous. » Vous avez,
-aux Cahiers de la Quinzaine, des pluriels bien singuliers ;
+aux Cahiers de la Quinzaine, des pluriels bien singuliers;
 mais passons.
 
-Excusez mon ignorance des termes de la chicane : je ne
+Excusez mon ignorance des termes de la chicane: je ne
 comprends pas ce que cela veut dire « situation juridique ».
-J'invoque les circonstances atténuantes, n'ayant jamais eu
+J'invoque les circonstances atténuantes, n'ayant jamais
 de démélés « juridiques » avec âme qui vive.
 
-I1 faut donc que vous preniez en pitié ma faible intelligence et que vous vous expliquiez plus clairement.
+faut donc que vous preniez en pitié ma faible intelligence et que vous vous expliquiez plus clairement.
 
 En tout cas, je vous prie d'abord de m''accuser réception
 du congé que je vous adresse, pour le mois d'octobre. C'est
-là une formalité que vous avez négligée dans votre réponse.
+une formalité que vous avez négligée dans votre réponse.
 Vous savez que les délais expirent le 30, à midi.
 
 Ensuite, vous seriez bien aimable de me dire pourquoi,
@@ -649,7 +646,7 @@ ces difficultés ne sont pas insurmontables et peuvent se
 
 Je fais encore une fois appel à vos bons sentiments.
 
-Pas de réponse !
+Pas de réponse!
 
 Remarquez je vous prie, messieurs, que nous sommes
 au 25 juin et que les premières démarches datent du
@@ -659,13 +656,13 @@ voulait aller trop vite et les Cahiers de la Quinsaine, ou
 plutôt nos propriétaires, qui ne marchaient pas du tout.
 
 Enfin le 30 juin, n'ayant toujours pas de nouvelle de nos
-propriétaires, j'écris, un peu énervé :
+propriétaires, j'écris, un peu énervé:
 Monsieur l'Administrateur,
 
 Il est temps que prenne fin cette situation ridicule que
 vous avez créée.
 
-C'est aujourd'hui le 30 juin. J'aurais pu vous signifier
+C'est aujourd'hui le 30 juin. J'aurais vous signifier
 congé par huissier. Je ne l'ai pas fait par égard pour vous
 et parce que je suis pour les moyens doux.
 
@@ -685,20 +682,20 @@ Ci-joint un timbre pour la réponse.
 22, avenue de l'Observatoire
 
 P.S.— Voudriez-vous, par la même occasion, nous dire
-quel est notre propriétaire ? Est-ce monsieur Péguy, est-ce
+quel est notre propriétaire? Est-ce monsieur Péguy, est-ce
 monsieur Bourgeois, ou est-ce quelque autre? car je l'ignore
 encore à l'heure qu'il est. J'avais cru que c'était monsieur
 Péguy; mais une lettre de ce dernier nva fait savoir qu'il
 n'était rien dans la boutique. Quel est le signataire du
 
 Enfin monsieur Bourgeois daignait utiliser les quinze
-centimes que je lui envoyais et m'écrire :
+centimes que je lui envoyais et m'écrire:
 
 Nous ne demandons qu'à entrer en pourparlers avec
 vous. Voici quelle est, selonnous, votresituation juridique
 
 En août dernier vous avez envoyé à M. Émile Boivin
-la lettre suivante :
+la lettre suivante:
 
 Dimanche — je ne sais pas combien — août, 1901,
 je crois.
@@ -708,20 +705,20 @@ des expulsions qui s'ouvre. Nous voilà comme de pauv's
 assomptionnistes, sans lendemain assuré, ne sachant
 plus où reposer notre tête chenue et sans même avoir
 le moindre petit million dans notre caisse. Pauvres de
-nous !
+nous!
 
 Vous comprenez bien qu'il n'y a pas à discuter. La
 nous la retire, que son saint nom soit béni! Il me
 semble que nous n'avons pas à juger les motifs qui font
 prendre cette décision à la Société. Elle a besoin de
-notre local. Ge local lui appartient. Nous devons le lui
+notre local. local lui appartient. Nous devons le lui
 restituer de bonne grâce en la remerciant de nous l'avoir
 abandonné gratis pendant deux ans. Voilà mon opinion.
 Cela ne nous empéchera pas de rester bons amis.
 
-Maintenant, la solution ! Voici : Péguy cherche un
+Maintenant, la solution! Voici: Péguy cherche un
 local. Il le trouvera si les Journaux pour Tous consentent
-à payer 150 francs par an. Or si les Journaux pour
+à payer 150 francs par an. si les Journaux pour
 tous sont incapables de trouver cette somme, il faut
 mettre les dits Journaux pour Tous en liquidation. Cette
 solution aurait l'avantage de nous faire cohabiter avec
@@ -738,10 +735,10 @@ le mouvement, il ne peut que résulter beaucoup de bien
 et beaucoup d'ardeur de cette fusion d'œuvres similaires
 
 et de cette friction continuelle de gens impavides se
-| sentant fortement les coudes.
+sentant fortement les coudes.
 
 Quant à aller frapper à la porte des H. ÆE. Sociales,
-Bonsoir ! vous remercierez bien M. Pérez de n'avoir
+Bonsoir! vous remercierez bien M. Pérez de n'avoir
 fait cette proposition; mais nous sommes trop compromettants pour cette parlote tricolore. Et si nous commettions cette imprudence d'y transporter nos pénates,
 on ne manquerait pas de nous faire Savoir que nous
 génons, le jour où il serait question d'une subvention
@@ -759,7 +756,7 @@ endroits où l'on sait étre une g'éne.
 
 J'ajoute que je suis personnellement ravi d'être conjoint à de bons b....f.... comme Péguy et Guieysse.
 
-Villa Maurice à Saint-Malo ou hôtel DuguayTrouin à Paramé. .
+Villa Maurice à Saint-Malo ou hôtel DuguayTrouin à Paramé..
 
 Cette lettre nous faisait une obligation de contracter
 pour les Journaux au même titre que pour nous. Nous
@@ -781,13 +778,13 @@ Le surlendemain vendredi, 4 juillet, vers quatre
 heures du soir, je me trouvais à l'École des Hautes
 Études Sociales, bureau du secrétaire, qfand M. Bourgeois entra.
 
-— Tiens! lui dis-je, bonjour ! J'allais justement vous
+— Tiens! lui dis-je, bonjour! J'allais justement vous
 
-— Bonjour Monsieur ! me répondit-il. Puis, prenant un
+— Bonjour Monsieur! me répondit-il. Puis, prenant un
 air sévère, il manifesta si clairement par son attitude,
 son désir de ne point avoir avec moi des rapports
 oraux que je jugeai prudent de ne pas pousser plus
-loin l'entretien; seulement, le soir mème, je lui écrivais :
+loin l'entretien; seulement, le soir mème, je lui écrivais:
 
 Puisque vous boudez, je me vois dans la nécessité de
 vous écrire ce que je vous aurais dit très volontiers aujourd'hui si vous maviez pas immédiatement pris à mon
@@ -802,31 +799,31 @@ votre résistance jusqu'ici incompréhensible pour mon
 Mais alors pourquoi ne point être venu tout bonnement
 à moi, sans phrasés, sans gestes de défi qui n'effrayaient
 personne, sans cris, sans sourcils froncés, ainsi que l'a
-fait M. Péguy. Il vous était bien facile de vous dire : « Ce
+fait M. Péguy. Il vous était bien facile de vous dire: « Ce
 M. Colomb-là est un honnête homme. Expliquons-nous et
-je suis sûr que nous finirons par nous entendre » : c'eût été
+je suis sûr que nous finirons par nous entendre »: c'eût été
 beaucoup plus honorable pour vous et surtout beaucoup
-plus pratique ; car votre façon menaçante de comprendre
+plus pratique; car votre façon menaçante de comprendre
 les discussions d'intérêt ne pouvait avoir pour résultat que
 de produire un effet diamétralement contraire à celui que
 
-/ vous en attendiez. Tenez-vous-le pour dit.
+vous en attendiez. Tenez-vous-le pour dit.
 
-Finissons-en ! Ma lettre ne m'engage pas, tout contrat
-dans le genre du nôtre est bilatéral : si les Journaux pour
+Finissons-en! Ma lettre ne m'engage pas, tout contrat
+dans le genre du nôtre est bilatéral: si les Journaux pour
 Tous consentaient à vous payer un loyer, c'était à la condition que vous leur fourniriez un local. Je suppose que
 vous ne décorez pas de ce nom le passage, aussi public
 qu'étroit, dans#equel avec un rare esprit d'altruisme, vous
 nous avez confinés et contre lequel nous avons protesté dès
 l'origine. Étant données ces protestations maintes fois
 répétées et notre intention clairement manifestée de ne pas
-demeurer dans ce couloir, votre devoir strict était :
+demeurer dans ce couloir, votre devoir strict était:
 
 1° De nous avertir que vous aviez fait un bail; — 2° Que
 ce bail était de un, trois, six, neuf; —3° De nous demander
 en temps utile, c'est-à-dire en mars dernier, si nous consentions au renouvellement.
 
-Avez-vous fait l'une de ces trois démarches ? Non! Car
+Avez-vous fait l'une de ces trois démarches? Non! Car
 Boivin lui-même vient d'apprendre tout dernièrement les
 conditions qui vous lient au propriétaire. Ces cachotteries
 sont-elles bien loyales? De sorte que s'il avait plu à
@@ -838,16 +835,16 @@ prémisse de votre raisonnement.
 Mais laissons cela. Que dit le passage intéressant de la
 lettre que j'ai écrite à Boivin le « je ne sais pas combien »
 
-août 1901 ? « Péguy cherche un local. Il le trouvera si les
+août 1901? « Péguy cherche un local. Il le trouvera si les
 Journaux pour Tous consentent à payer 150 francs par an.
-Or si les Journaux pour Tous sont incapables de trouver
+si les Journaux pour Tous sont incapables de trouver
 cette somme, il faut mettre les dits Journaux pour Tous en
 
 Je vous ferai d'abord observer que ma lettre parlant de
 150 francs, il eût été au moins poli de me demander si je
-consentais à en payer 250. Or je n'ai connu ce surcroît
+consentais à en payer 250. je n'ai connu ce surcroît
 imprévu de dépenses que par Boivin... après l'emménagement provisoire des Journaux pour Tous dans votre couloir. Cette façon d'agir et ce loyer plus élevé que le loyer
-consenti, n'ont pu que nous confirmer dans notre intention formellement exprimée déjà de filer le plus vite
+consenti, n'ont que nous confirmer dans notre intention formellement exprimée déjà de filer le plus vite
 
 Si nous ne l'avons pas fait plus tôt, c'est que j'avais
 encore à cette époque, contre l'École des Hautes Études
@@ -864,11 +861,11 @@ opposerez plus maintenant à ce que Boivin fasse ses
 paquets le plus rapidement possible et je termine en vous
 assurant de toute ma considération.
 
-P.S.— Un mot encore : je ne réclame pas l'original de
+P.S.— Un mot encore: je ne réclame pas l'original de
 la lettre très familière que j'écrivais à Boivin et de laquelle
 seul, le passage recopié dans celle-ci, vous intéresse. Je ne
 
-| ferai même pas à Boivin un reproche sur le manque de
+ferai même pas à Boivin un reproche sur le manque de
 tact dont il a fait preuve en vous communiquant une lettre
 
 regardés comme confidentiels. Cette abstention de ma part
@@ -878,20 +875,20 @@ lettre en question, vous m'avez prouvé que M. Boivin s'en
 était dessaisi en votre faveur. Cela pouvait compromettre
 Boivin aux yeux du Comité et lui causer des désagréments
 dont vous auriez été seuls responsables. Un autre que moi
-n'aurait peut-être pas eu ma patience et voilà comment les
+n'aurait peut-être pas ma patience et voilà comment les
 « patrons » des Journaux pour Tous comprennent « les
 coups de force » contre « leurs ouvriers » (au pluriel). Laissez-moi rire.
 
 Vous comprendrez, Messieurs, le sens de ce postscriptum, si je vous rappelle la note publiée par
 M. Charles Péguy dans les Cahiers de la Quinzaine
 (juin 1902) et où il était dit (je cite de mémoire, n'ayant
-pas le texte exact sous Les yeux) :
+pas le texte exact sous Les yeux):
 
 Nous apprenons que les patrons des Journaux pour Tous
 méditent un coup de force contre leurs ouvriers. Nous
 tiendrons le public au fait de cet incident.
 
-Le « coup de force », c'était le déménagement. Les
+Le « coup de force c'était le déménagement. Les
 « patrons » c'était nous et nos ouvriers (au pluriel),
 
 Je reprends mon historique.
@@ -901,7 +898,7 @@ qu'il la fit parvenir à M. Bourgeois, ne lui avait pas été
 remise par sa concierge. Je dus l'écrire de nouveau et
 c'est ce qui explique pourquoi, écrite le 4, elle n'est
 arrivée que le 11. Le lendemain, 12 juillet, je recevais
-la réponse que voici :
+la réponse que voici:
 
 Monsieur le Président,
 
@@ -918,13 +915,13 @@ Cependant, pour épuiser tous les moyens doux, je fis
 faire par M. Boivin une dernière démarche. M. Boïvin
 dont M. Péguy prenait si chaudement la défense qu'il
 nous accusait de vouloir opérer à son détriment un
-« coup de force », M. Boivin m'écrivait le 16 juillet,
+« coup de force M. Boivin m'écrivait le 16 juillet,
 c'est-à-dire plus de deux mois après le moment où
 M. Charles Péguy affirmait qu'il avait commencé contre
-nous une « lutte pied à pied » :
+nous une « lutte pied à pied »:
 
 Je viens d'apprendre que Bourgeois qui est absent ne
-rentrera pas de l'après-midi, mais qu'il sera là de
+rentrera pas de l'après-midi, mais qu'il sera de
 onze heures à midi. Vous m'avez si souvent dit que
 vous étiez opposé aux moyens violents que je vous
 avertis de cette absence qui, en fait, équivaut à une
@@ -933,7 +930,7 @@ que je dois faire.
 
 Bien à vous,
 
-Et le lendemain :
+Et le lendemain:
 
 Bourgeois m'a répondu à peu près textuellement que
 
@@ -941,7 +938,7 @@ sa réponse était la même qu'auparavant et que l'affaire
 
 en était au même point qu'avant que les pourparlers
 fussent engagés (je garantis le sens sinon les mots), que
-faut-il entendre ?
+faut-il entendre?
 Bien à vous,
 
 Tous les moyens non violents étant épuisés, il fallut
@@ -957,7 +954,7 @@ Monsieur le Juge de Paix,
 M. André Bourgeois, administrateur des Cahiers, est
 parti samedi soir à Dax, établissement thermal des
 Baignots où sa mère, madame Bourgeois, malade, est
-en traitement. De là il doit ramener madame Bourgeois,
+en traitement. De il doit ramener madame Bourgeois,
 sa mère, qui ne peut voyager seule, à Pithiviers, Loiret,
 3, rue des Bœufs, où elle demeure. M. André Bourgeois
 sera sans doute de retour à Paris au commencement
@@ -968,7 +965,7 @@ devant vous; nous vous prions de vouloir bien prononcer la remise de cette affai
 Vous m'en auriez voulu, Messieurs, si je ne vous
 avais pas mis sous les yeux cette lettre écrite par mon-
 
-sieur Charles Péguy à un juge de paix : elle se passe de
+sieur Charles Péguy à un juge de paix: elle se passe de
 commemtaires qui, d'ailleurs, seraient plutôt attristants.
 
 Je n'usai pas du permis de citer qui me fut délivré par
@@ -983,16 +980,16 @@ ferme, la quittance du terme d'octobre et notre libération.
 
 Je crois, Messieurs, que la modération et la patience
 ont été de notre côté comme y était le bon droit, puisque pour ménager d'anciens amis, nous avons mis plus
-de deux mois et demi, du g mai au 25 juillet, pour
+de deux mois et demi, du mai au 25 juillet, pour
 obtenir une autorisation que moralement et légalement
-on ne pouvait nous refuser puisque nous consentions à,
+on ne pouvait nous refuser puisque nous consentions
 en effet, payer les termes échus et le terme courant.
 
 Nous offrions même, par esprit de conciliation une
 indemnité de 300 francs dont nous ne devions pas le
 premier sou. De plus, vous pouvez remarquer que mal-
 
-e gré les affirmations contraires de monsieur Péguy, nos
+gré les affirmations contraires de monsieur Péguy, nos
 relations avec monsieur Boivin furent jusqu'au bout
 correctes et même cordiales, et que jamais monsieur
 Boivin ne fit la moindre objection au déménagement.
@@ -1012,7 +1009,7 @@ de votre part, quant aux injures qui sortent tout naturellement de votre encrier
 
 D'ailleurs, quand je vois quels sont ceux que vous
 insultez, quand je considère que de Henry Bérenger à
-de Pressensé, en passant par Téry, vos « victimes »,
+de Pressensé, en passant par Téry, vos « victimes
 sont les meilleurs serviteurs de la démocratie, je ne
 puis m'empêcher de sentir comme une bouffée d'orgueil
 me monter au cerveau à l'idée que vous m'avez jugé
@@ -1021,7 +1018,7 @@ digne d'être cloué au même pilori qu'eux.
 
 Certaines personnes me conseillaient de vous « payer
 de la même monnoie ». J'ai bec et ongles et je crois que
-ce n'était pas au-dessus de mes moyens ; mais, voyezvous, à mon âge, on ne se refait plus : bien que, selon
+ce n'était pas au-dessus de mes moyens; mais, voyezvous, à mon âge, on ne se refait plus: bien que, selon
 vous, je ne sois qu'un grossier pornographe, j'ai conservé cependant assez de dignité et de respect de moimême pour me croire plus honoré d'être parmi les
 insultés que parmi les insulteurs. C'est une habitude
 que j'ai prise pendant l'affaire Dreyfus; vous, Monsieur,
@@ -1031,29 +1028,29 @@ Et c'est pourquoi je vous prie d'agréer toutes mes
 
 Lui déclarant que faute de satisfaire à la présente
 sommation, le requérant se pourvoira ainsi que de
-droit pour l'y contraindre. Sous toutes réserves ;
+droit pour l'y contraindre. Sous toutes réserves;
 
 Et je lui ai étant et parlant comme dessus, laissé cette
 copie sous enveloppe fermée ne portant d'autre indication, d'un côté, que les nom et demeure de la partie et
 de l'autre, que le cachet de mon Étude apposé sur la
 
 à fermeture du pli le tout conformément à la loi.
-Copie : huit feuilles de papier spécial à 1 franc 20 et
-; une à 60 centimes : Total dix francs 20 centimes.
+Copie: huit feuilles de papier spécial à 1 franc 20 et
+; une à 60 centimes: Total dix francs 20 centimes.
 
 Maître Louis Maillard, huissier, successeur de
 
 Je rappelle, pour mémoire, que M. Bernard-Lasare,
 contrôle administratif de Œuvre du Livre pour tous,
-a, par lettre recommandée adressée à M. Georges
+par lettre recommandée adressée à M. Georges
 Colomb, président des nouveaux Journaux pour tous,
 à la Société nouvelle de librairie et d'édition, 17, rue
-Cujas, Paris, proposé de constituer des arbitres ; — et
+Cujas, Paris, proposé de constituer des arbitres; — et
 que j'ai demandé à être entendu en témoignage par
 ces arbitres sur toutes les parties du débat.
 
 Le Bulletin de l'Office du travail de novembre 1902 contient un compte rendu de la grève générale des mineurs. Je
-vous l'envoie par ce courrier. C'est du fait tout nu et moins
+vous l'envoie par ce courrier. C'est du fait tout et moins
 amusant qu'un feuilleton de Zévaco. Peut-être jugerez-vous
 cependant que ce fait intéresserait vos lecteurs puisque —
 selon la couleur de leur journal — ils n'ont entendu parler
@@ -1071,7 +1068,7 @@ mois de mars 1902, par le congrès d'Alais, puis ajournée à la suite d'un refe
 
 La convention signée à Arras, (1) le 31 octobre 1900,
 par les délégations ouvrières et patronales du Nord et
-du Pas-de-Calais, majorant de 10 °/, les salaires des
+du Pas-de-Calais, majorant de 10 les salaires des
 ouvriers mineurs, cessait d'avoir son effet le 31 mai 1902.
 Trois entrevues eurent lieu, le 15 et le 26 mai et le
 9 juin, entre délégués des ouvriers et représentants des
@@ -1086,22 +1083,22 @@ l'arbitrage survenus pendant l'année 1900, page 590 et suivantes.
 Bulletin de l'Office du trapail
 d'août par le congrès d'Alaiïs, avait été reculée au 24 septembre, les syndicats du Nord et du Pas-de-Calais résolurent d'attendre ce terme.
 
-Le 3r juillet 1902, la Compagnie des mines de la Loire,
+Le juillet 1902, la Compagnie des mines de la Loire,
 bientôt suivie par toutes les compagnies minières du
 bassin, fit placarder aux abords des puits un avis notifiant aux ouvriers qu'en présence de la baisse du prix
-de vente du charbon, la prime de 9 °/, sur les salaires,
+de vente du charbon, la prime de 9 sur les salaires,
 accordée par la sentence arbitrale rendue, le 6 janvier 1900, à la suite de la dernière grève, (1) et maintenue au delà de l'échéance fixée (30 juin 1901), serait
 abaissée à 3°,,, à partir du 16 août 1902. Le comité
 de la Fédération régionale des mineurs de la Loire se
 plaignit que les Compagnies n'eussent pas fait connaître
 leur résolution par un préavis de trois mois, la sentence
 n'ayant pas été dénoncée le 30 juin 1901. En effet, la sentence arbitrale rendue, en 1900, par MM. Gruner et
-Jaurès stipulait : « Les deux parties s'engagent réciproquement à n'apporter à cette convention aucune modification jusqu'au 30 juin 1901. A cette date et sur un
+Jaurès stipulait: « Les deux parties s'engagent réciproquement à n'apporter à cette convention aucune modification jusqu'au 30 juin 1901. A cette date et sur un
 préavis de trois mois donné au préfet de la Loire par
 l'une ou l'autre des parties, une procédure arbitrale,
 semblable à celle qui met fin au présent conflit, déter-
 
-_ minera si les conditions de l'industrie permettent le
+minera si les conditions de l'industrie permettent le
 maintien intégral ou partiel de cette augmentation. »
 Sur la demande du comité de la Fédération régionale,
 le préfet entama des négociations avec les Compagnies.
@@ -1113,7 +1110,7 @@ l'arbitrage survenus pendant l'année 1899, page 605 et suivantes.
 
 en 1900, la sentence était périmée depuis le 30 juin
 1901. La seule concession qu'ils pussent faire était de
-maintenir la prime à 3 °,, au lieu de la supprimer
+maintenir la prime à 3 au lieu de la supprimer
 
 Dès ce moment, une vive agitation en faveur de la
 grève se manifesta dans le bassin de la Loire. Le
@@ -1121,12 +1118,12 @@ grève se manifesta dans le bassin de la Loire. Le
 n'était pas avancée: Cette résolution, votée par quatre
 voix contre quatre, ne fut pas accueillie favorablement
 par les divers syndicats et la grève fut encore différée.
-Le congrès se réunit à Commentry le 24 septembre ;
+Le congrès se réunit à Commentry le 24 septembre;
 mais, dès le premier jour, il apprit par une dépêche que
 les mineurs de la compagnie de l'Escarpelle, à Dorignies
 (Nord), s'étaient mis en grève, au nombre de 500 environ, sans attendre sa décision. Les délégués de la
 région du Nord au congrès adressèrent en hâte à Dorignies une dépêche sommant les ouvriers de reprendre le
-travail. La réponse parvint à deux heures de l'aprèsmidi : les ouvriers refusaient de se remettre au travail
+travail. La réponse parvint à deux heures de l'aprèsmidi: les ouvriers refusaient de se remettre au travail
 et suppliaient le congrès de prendre une décision immé-
 diate sur la grève générale. Un membre du syndicat du
 Pas-de-Calais se rendit à Dorignies, le 25 septembre, et
@@ -1146,10 +1143,10 @@ sident du Conseil, il demandait au gouvernement de
 s'employer à faire aboutir les propositions ou projets
 de lois répondant aux revendications de la corporation
 (réduction de la journée de travail à 8 heures; retraite
-de 2 francs par jour à 5o ans d'âge, après 50 années de
-service; minimum de salaires ; modification des lois de
+de 2 francs par jour à ans d'âge, après 50 années de
+service; minimum de salaires; modification des lois de
 1890 [sur les délégués à la sécurité des mineurs] et de
-1898 [sur les accidents du travail] ; création de
+1898 [sur les accidents du travail]; création de
 
 Au Comité des houillères le comité national des mineurs
 
@@ -1195,12 +1192,12 @@ par 112 voix contre 17, de donner mandat au Comité de
 la fédération régionale pour négocier avec les Compagnies de la région. Le lendemain, M. Basly, député
 du Pas-de-Calais, adressa aux préfets du Nord et du
 Pas-de-Calais une lettre sollicitant leur intervention en
-vue d'amener les Compagnies à entamer des négociations avec les représentants des grévistes sur les questions suivantes : 1° relèvement des salaires ; 2° établissement d'un minimum de salaires ; 3° suppression du
-surmenage ; 4° engagement de n'exercer aucun renvoi
-pour fait de grève ; 5° contrôle des salaires. Les deux
+vue d'amener les Compagnies à entamer des négociations avec les représentants des grévistes sur les questions suivantes: 1° relèvement des salaires; 2° établissement d'un minimum de salaires; 3° suppression du
+surmenage; 4° engagement de n'exercer aucun renvoi
+pour fait de grève; 5° contrôle des salaires. Les deux
 préfets acceptèrent la mission et écrivirent le 13 et le
 
-14 octobre aux directeurs et agents généraux des Com55
+14 octobre aux directeurs et agents généraux des
 
 -
 Bulletin de l'Ofice du travail
@@ -1218,7 +1215,7 @@ répondre aux invitations des préfets du Nord et du
 Pas-de-Calais, les députés des centres miniers interpellèrent le président du Conseil, le 21 octobre. La Chambre, dans sa séance du 23, vota un ordre du jour invitant le Gouvernement à user de toute son influence pour
 faire accepter l'arbitrage par les parties en présence.
 
-La grève avait eu des conire-coups assez graves. Les
+La grève avait des conire-coups assez graves. Les
 ouvriers déchargeurs de charbon des ports, qui, dès le
 11 octobre, avaient proposé aux mineurs de déclarer la
 grève par solidarité, avaient cessé le travail, le 21 octobre, à Dunkerque et à Calais; le 23, à Marseille. Ils
@@ -1234,26 +1231,26 @@ Calais, le 24, et à Marseille, le 25, la grève s'était terminée sans inciden
 Sur l'invitation qui leur fut adressée télégraphiquement par le président du Conseil, les préfets des départements atteints par la grève convièrent les Compagnies à accepter l'arbitrage. Dans le Nord et dans le
 Pas-de-Calais, les Compagnies estimèrent que la proposition d'arbitrage était prématurée, mais consentirent à entamer des négociations. Des entrevues eurent
 lieu, entre les délégations ouvrières et patronales, pour
-le Pas-de-Calais, à Arras, le 31 octobre; pour le Nord, .
+le Pas-de-Calais, à Arras, le 31 octobre; pour le Nord,.
 à Lille, le 2 novembre. Sur les diverses questions, les
-solutions de ces deux entrevues furent à peu près identiques : les Compagnies s'engagèrent à « examiner avec
+solutions de ces deux entrevues furent à peu près identiques: les Compagnies s'engagèrent à « examiner avec
 une grande bienveillance les circonstances atténuantes »
-pour la réintégration des grévistes ; sur la suppression
+pour la réintégration des grévistes; sur la suppression
 du surmenage, on convint que les longues coupes
 seraient facultatives et annoncées au plus tard la veille
-par voie d'afliches ; en ce qui concerne le contrôle des
+par voie d'afliches; en ce qui concerne le contrôle des
 salaires, on résolut de demander à l'Administration des
 mines de communiquer périodiquement des renseignements statistiques permettant d'établir ce contrôle;
 enfin les Compagnies ofifrirent une majoration des
 retraites, Mais l'entente ne put se faire sur la question
 des salaires, qui fut laissée à la décision d'arbitres dont
 la sentence serait souveraine. Les arbitres choisis se
-réunirent au Ministère des Travaux publics, le 3 novembre, pour le Pas-de-Calais ; le 7, pour le Nord. Les
+réunirent au Ministère des Travaux publics, le 3 novembre, pour le Pas-de-Calais; le 7, pour le Nord. Les
 ouvriers des deux départements avaient choisi le même
 arbitre, M. Delafond, inspecteur général des mines: les
 Compagnies du Pas-de-Calais avaient désigné M. Bros-
 
-+ Bulletin de l'Office du travail
+Bulletin de l'Office du travail
 selin, inspecteur général des ponts et chaussées; celles
 du Nord, M. Heurteau, ingénieur des mines, directeur
 de la Compagnie des chemins de fer d'Orléans. Les
@@ -1264,7 +1261,7 @@ baisse du prix de vente du charbon) de relever les
 
 Cette sentence causa une vive déception dans les
 centres miniers du Nord et du Pas-de-Calais. Un congrès, tenu à Lens le 8 novembre, décida de continuer
-la lutte et nomma une délégation nouvelle chargée |
+la lutte et nomma une délégation nouvelle chargée
 d'entrer en pourparlers avec les Compagnies. Mais
 celles-ci, estimant que l'arbitrage avait mis fin au conflit, repoussèrent les offres de discussion. Un second
 congrès, assemblé à Lens le 13 novembre, a voté la
@@ -1277,21 +1274,21 @@ Le travail a repris dans l'Aveyron le 25 octobre, et
 dans le Gard, le 30, les ouvriers ayant abandonné leurs
 
 Dans le Cantal, la grève a pris fin, sans conditions, le
-21 octobre. Dans le Puy-de-Dôme, des entrevues, provoquées par le sous-préfet d'Issoire, ont eu lieu le 6 novembre. L'accord s'est établi sur les revendications
-secondaires ; la question des salaires a été réservée. Le
+21 octobre. Dans le Puy-de-Dôme, des entrevues, provoquées par le sous-préfet d'Issoire, ont lieu le 6 novembre. L'accord s'est établi sur les revendications
+secondaires; la question des salaires a été réservée. Le
 15 novembre, les Compagnies r'avaient pas encore
-accepté l'arbitrage. Dans la Haute-Loire, les négociations sont sur le point d'aboutir à une entrevue. $
+accepté l'arbitrage. Dans la Haute-Loire, les négociations sont sur le point d'aboutir à une entrevue.
 
 Dans la Loire, on décida de recourir à un arbitrage
 pour régler la question des primes. Les ouvriers
 demandèrent et obtinrent la nomination d'un tiers
-arbitre, mais l'entente n'a pu s'établir sur le choix de
+arbitre, mais l'entente n'a s'établir sur le choix de
 cet arbitre. Les pourparlers sont suspendus.
 
-Dans le Tarn, une entrevue a eu lieu, le 8 novembre,
+Dans le Tarn, une entrevue a lieu, le 8 novembre,
 entre le directeur de la Compagnie des mines d'Albi et
 la délégation ouvrière, assistée de M. Viviani, ancien
-député. L'entente n'a pu s'établir; sur la proposition
+député. L'entente n'a s'établir; sur la proposition
 d'arbitrage, le directeur a réservé sa décision, afin de
 consulter le conseil d'administration. A Carmaux, la
 
@@ -1300,32 +1297,32 @@ Compagnie a refusé d'admettre aux pourparlers le
 
 Le Bulletin de l'Office du travail de décembre 1902
 
-publiait la suite et fin de cet article :
+publiait la suite et fin de cet article:
 
-ge année. — No 12 Prix du numéro : 20 centimes Décembre 1902
+année. — 12 Prix du numéro: 20 centimes Décembre 1902
 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
-Revue du travail en novembre. . 41853
-Conciliation et arbitrage en novembre . . . . . .
-La grève générale des mineurs. (Suite et fin.) . . . .
+Revue du travail en novembre.. 41853
+Conciliation et arbitrage en novembre......
+La grève générale des mineurs. (Suite et fin.)....
 Expériences comparatives de peintures au blanc de
-Le congrès à Cologne de l'Association internationale |
-pour la protection légale des travailleurs . . . . .
-Cinquième congrès de l'Alliance coopérative internationale 10e EURE ENTREE
-Syndicats ; droit d'ester en justice. — Loi du 2 novembre :892; cumul des contraventions identiques en |
+Le congrès à Cologne de l'Association internationale
+pour la protection légale des travailleurs.....
+Cinquième congrès de l'Alliance coopérative internationale EURE ENTREE
+Syndicats; droit d'ester en justice. — Loi du 2 novembre:892; cumul des contraventions identiques en
 matière d'inspection du travail. — Loi du 9 avril 1898;
 accidents du travail, COINS
 Mouvement social à l'étranger à
-Allemagne : Revue du travail. — Placement. — Grèves.
-— Durée du travail dans les maisons de commerce |
-sans magasins de vente publics, — La Bourse du |
-travail de Berlin. — L'ivresse et les accidents du |
-États-Unis : Grève générale des mineurs de Pensylvanie. — L'assurance-accidents dans le Maryland. .
-Grande-Bretagne : Revué du travail. — Grèves. — Le
+Allemagne: Revue du travail. — Placement. — Grèves.
+— Durée du travail dans les maisons de commerce
+sans magasins de vente publics, — La Bourse du
+travail de Berlin. — L'ivresse et les accidents du
+États-Unis: Grève générale des mineurs de Pensylvanie. — L'assurance-accidents dans le Maryland..
+Grande-Bretagne: Revué du travail. — Grèves. — Le
 congrès des Trades-Unions. — Réparation des acci-
 
 À dents du travail (1901). — Les sociétés coopératives
-| de consommation et de production. . , . . . . . .
-Nouvelle-Zélande : L'inspection des fabriques (r901Suisse : Application de la loi fédérale sur les fabriques.
+de consommation et de production..,......
+Nouvelle-Zélande: L'inspection des fabriques (r901Suisse: Application de la loi fédérale sur les fabriques.
 — Loi du 26 juin 1902 sur le paiement des salaires et
 Actes et documents officiels
 Décret du 21 novembre 1902 interdisant le « pompage »
@@ -1335,11 +1332,11 @@ conditions des avances aux banques coopératives
 ouvrières. — Lettre du Sous-Secrétaire d'État des
 Postes et Télégraphes, en date du 11 août 1902, sur
 Etat des travaux législatifs (novembre-décembre 1902). gog
-Analyse, par département, des renseignements fournis :
-1° par les associations patronales, etc. ; 2' par les
+Analyse, par département, des renseignements fournis:
+1° par les associations patronales, etc.; 2' par les
 Analyse, par département, des renseignements fournis
 Prix au détail de certaines denrées (4° trimestre 1901)
-faillites ; autorisations de bâtir ; adjudications. . ,
+faillites; autorisations de bâtir; adjudications..,
 5, rue des Beaux-Arts (6° arr') 5, rue de Mézières (6° arr')
 Le Bulletin de l'Office du travail paraît tous les mois. On
 le trouve chez tous les libraires. On s'abonne également
@@ -1347,10 +1344,10 @@ dans tous les bureaux de poste et à l'Imprimerie nationale.
 Les abonnements ne sont pas requs au Ministère du Commerce
 
 À la date du 15 novembre, la grève persiste dans les
-départements de la Loire, de la Haute-Loire, du Puyde-Dôme et du Tarn. |
+départements de la Loire, de la Haute-Loire, du Puyde-Dôme et du Tarn.
 
 Dans la Loire, les pourparlers engagés en vue du
-choix d'un tiers-arbitre aboutirent à la désignation de |
+choix d'un tiers-arbitre aboutirent à la désignation de
 M. Ballot-Beaupré, premier président de la cour de
 cassation. La convention fixant les conditions de la
 reprise du travail, soumise par le préfet aux délégués
@@ -1363,25 +1360,25 @@ de Saint-Étienne, pour les Compagnies, et M. Briand,
 député, pour les grévistes, « la mission exclusive de
 trancher le différend qui s'est élevé sur le point de
 savoir s'il y a lieu de supprimer, réduire, maintenir
-ou augmenter la prime des salaires », pour une période
+ou augmenter la prime des salaires pour une période
 ne devant pas s'étendre au delà du 30 juin 1904.
 
 Le 22 novembre les arbitres commencèrent leurs
-travaux. Le 24, n'ayant pu aboutir à une entente, ils
+travaux. Le 24, n'ayant aboutir à une entente, ils
 firent appel au tiers-arbitre. Celui-ci, après avoir procédé, conformément à la sentence arbitrale du 6 janvier 1900, à une étude attentive des « conditions de
-l'industrie minière », rendit, le 28 novembre, une sentence
-comportant les trois clauses suivantes :
+l'industrie minière rendit, le 28 novembre, une sentence
+comportant les trois clauses suivantes:
 
-1° La prime des salaires, réduite de 9 à 3 ‘ depuis le
+1° La prime des salaires, réduite de 9 à 3 depuis le
 salaire de chaque ouvrier, sans pouvoir être, ni inférieure
 
 à 20 centimes, ni supérieure à 35 centimes par journée de
 
-Elle sera de 4 °/, pour le deuxième semestre de 1903
+Elle sera de 4 pour le deuxième semestre de 1903
 
 avec un minimum de 15 centimes et un maximum de
 
-Elle sera de 3 ‘°/, pour le premier semestre de 1904
+Elle sera de 3 pour le premier semestre de 1904
 avec un minimum de 10 centimes et un maximum de
 
 Cette sentence fut acceptée par les deux parties, Le
@@ -1400,10 +1397,10 @@ de Commentry-Fourchambault-Decazeville.
 Dans le Puy-de-Dôme, l'accord s'était fait, dès le
 10 novembre, sur les revendications secondaires. Pour
 régler la question des salaires, les patrons avaient
-proposé et les ouvriers avaient accepté : 1° qu'un expert
+proposé et les ouvriers avaient accepté: 1° qu'un expert
 désigné par le président du Conseil déterminerait si les
 prix de vente actuels étaient supérieurs ou inférieurs à
-ceux du premier trimestre 1901 ; 2° que dans le second
+ceux du premier trimestre 1901; 2° que dans le second
 cas les salaires actuels seraient maintenus et que dans
 le premier cas des arbitres détermineraient la hausse à
 faire subir au salaire.
@@ -1412,7 +1409,7 @@ faire subir au salaire.
 Travail au Ministère du Commerce, se rendit à Messeix
 le 26 novembre et ne put que constater la baisse des
 
-Bulletin de l'Office du travail |
+Bulletin de l'Office du travail
 cours. Les ouvriers obtinrent cependant des mesures
 leur permettant de contrôler l'exécution de l'engagement
 de la Compagnie relatif au maintien des salaires actuels,
@@ -1426,19 +1423,19 @@ Dans le Tarn, à Albi, l'entente s'établit, le 17novembre,
 entre la Compagnie de Cagnac et le représentant des
 
 1° Le contrat du 6 juin 1902, qui devait tomber en cas
-de nouvelle grève, est maintenu dans son intégralité ;
+de nouvelle grève, est maintenu dans son intégralité;
 
-2° La prime de 5 ‘,, qui devait tomber le 31 mars 1903,
+2° La prime de 5 qui devait tomber le 31 mars 1903,
 est prolongée jusqu'au premier juillet 1903
 
 3° Elle ne sera supprimée que si la Compagnie s'y voit
 réduite et après discussion contradictoire entre elle et les
 ouvriers sous forme d'un arbitrage qui ne portera que sur
-cette unique question ;
+cette unique question;
 
 La Compagnie fera tous ses efforts pour hâter le
 fonçage des puits de la Gare pour la mettre en exploitation
-et accélérer la descente et la remonte des ouvriers ;
+et accélérer la descente et la remonte des ouvriers;
 
 , 5° Comme conséquence, les ouvriers reprendront le
 
@@ -1449,9 +1446,9 @@ ouvriers. La sentence fut rendue le 3 décembre, elle
 
 aux revendications présentées dans leurs lettres des 6 et
 
-b) La Compagnie renonce à se prévaloir du cas de rupture
+La Compagnie renonce à se prévaloir du cas de rupture
 
-du contrat qu'elle croyait pouvoir invoquer ;
+du contrat qu'elle croyait pouvoir invoquer;
 
 c)] La sentence arbitrale du 20 mars 1892, reste, dans ces
 conditions, la loi des parties.
@@ -1459,7 +1456,7 @@ conditions, la loi des parties.
 ARTICLE 2. — La Compagnie payera aux ouvriers, du
 premier janvier 1903 au premier janvier 1904, dans les
 formes et sous les conditions adoptées en 1901, une prime
-de 5 ‘,, calculée sur les salaires types de la sentence arbitrale de 1892; quinze jours au moins avant le premier janvier 1904, la Compagnie fera connaître aux mineurs ses
+de 5 calculée sur les salaires types de la sentence arbitrale de 1892; quinze jours au moins avant le premier janvier 1904, la Compagnie fera connaître aux mineurs ses
 intentions en ce qui concerne la prime.
 
 ARTICLE 3. — La reprise du travail commencera à la date
@@ -1490,7 +1487,7 @@ traitent les indigènes. D'un paquet de journaux tonkinois récemment reçus, je
 Le premier découvre assez bien quels sentiments ont
 pour les Annamites les colons français.
 
-Indépendance Tonkinoise du 10 août 1902 : Chronique
+Indépendance Tonkinoise du 10 août 1902: Chronique
 
 Vendredi soir, vers deux heures, des cris de douleur, des
 hurlements déchirants partaient d'une maison sise à l'angle
@@ -1503,28 +1500,28 @@ la poste, paraît-il, étendu à terre et subissant le terrible et
 si appréhendé châtiment du rotin. Pourquoi? Pour avoir
 distrait une somme de cinquante cents au préjudice de son
 
-* patron indigène! Les lambeaux de chair voltigeaient en
+patron indigène! Les lambeaux de chair voltigeaient en
 
 l'air sous chaque coup de la cadouille, et le chef de la rue
 qui assistait à cette horrible scène paraissait très satisfait
 du spectacle.
 
-Quel châtiment croyez-vous que l'on va infliger aux
-brutes annamites du boulevard Henri d'Orléans ? Aucun,
+Quel châtiment croyez-vous que l'on infliger aux
+brutes annamites du boulevard Henri d'Orléans? Aucun,
 soyez-en persuadé; mais alors puisque les autorités reconnaissent l'effet bienfaisant des peines corporelles sur l'indigène, pourquoi ne pas nous permettre d'en user au même
-titre que messieurs les Annamites eux-mêmes ? -
+titre que messieurs les Annamites eux-mêmes? -
 
-La conclusion de l'article en explique le titre :
-« Mieux vaut tard que jamais ». — C'est-à-dire : Mieux
+La conclusion de l'article en explique le titre:
+« Mieux vaut tard que jamais ». — C'est-à-dire: Mieux
 vaut reconnaître tard que jamais l'effet bienfaisant des
 peines corporelles infligées à l'indigène.
 
 Ceux qui ne connaissent l'Indo-Chine que par les
 renseignements officiels et mensongers de notre presse
 et de nos grandes revues s'étonneront qu'un civilisé,
-qu'un Français, puisse regretter de ne pouvoir légalement battre l'Annamite à la « cadouille », — « faire
+qu'un Français, puisse regretter de ne pouvoir légalement battre l'Annamite à la « cadouille — « faire
 voltiger en l'air à coups de rotin les lambeaux de la
-chair » de l'indigène. Mais ceux qui ont visité l'IndoChine, et qui y ont vu le Français maltraiter systématiquement l'Annamite, retrouveront dans l'article cité
+chair » de l'indigène. Mais ceux qui ont visité l'IndoChine, et qui y ont le Français maltraiter systématiquement l'Annamite, retrouveront dans l'article cité
 l'expression brutale et naïve du sentiment presque
 général des colons. On devine par quelles violences,
 par quelles cruautés se manifeste un pareil état d'esprit.
@@ -1537,9 +1534,9 @@ Autre correspondance, se rapportant, celle-là, à la
 Mission. (Je l'emprunte à un journal tonkinois plutôt
 
 ? favorable au catholicisme et qui d'ordinaire défend
-\ énergiquement la Mission.)
+énergiquement la Mission.)
 
-Indépendance Tonkinoise du 29 juin 1902 : Correspondance de Nam Dinh :
+Indépendance Tonkinoise du 29 juin 1902: Correspondance de Nam Dinh:
 
 On dirait franchement que l'on tient en haut lieu à
 rendre plus vifs les incidents survenant à chaque instant
@@ -1567,28 +1564,27 @@ rendu contre les délinquants.
 La leçon eùt porté et ces incidents ne se seraient pas
 reproduits, au moins pendant quelque temps.
 
-Je ne sais pas qui a pu donner de pareils ordres; mais
+Je ne sais pas qui a donner de pareils ordres; mais
 
-| celui qui l'a fait assume une grande responsabilité et
+celui qui l'a fait assume une grande responsabilité et
 commet une faute énorme.
 
 Ils vont s'en payer les catholiques puisqu'ils peuvent
 
-ñ voler, frapper, insulter, sans être punis!
+voler, frapper, insulter, sans être punis!
 A peine relâchés et revenus dans leur village, ils se sont
 . mis à insulter ceux qui avaient porté plainte contre eux,
 leur promettant une vengeance plus éclatante encore, et se
 vantant d'avoir de puissants protecteurs à Hanoï!
 Ont-ils tort”? Non, puisque les faits prouvent le contraire,
-6
 
-Leurs victimes vont être obligées de quitter le village, |
+Leurs victimes vont être obligées de quitter le village,
 chassées par eux, et ne pouvant plus habiter à côté de gens
-qui les frappent, les volent et semblent soutenus par |
+qui les frappent, les volent et semblent soutenus par
 l'autorité.
 
-Je vous tiendrai au courant de ce qui va se passer à
-Và Ban, car les incidents ne vont pas tarder à se produire
+Je vous tiendrai au courant de ce qui se passer à
+Ban, car les incidents ne vont pas tarder à se produire
 plus graves que la première fois.
 
 Des faits analogues à ceux que signale cette correspondance de Nam Dinh se passent fréquemment dans

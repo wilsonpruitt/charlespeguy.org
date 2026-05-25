@@ -119,7 +119,7 @@ primaires. Je parlerai ce soir sur Le prince de Bismarck. Je me suis servi du li
 pour préparer ma conférence. Aux enfants de
 l'école, aux adultes anciens élèves, aux parents, je
 conterai comment le chancelier de fer s'est ébréché
-“ sur la social-démocratie allemande. Mes loisirs
+sur la social-démocratie allemande. Mes loisirs
 seront diminués d'autant. Je crois qu'un très grand
 nombre d'hommes ont aussi peu de loisir que moi.
 Je crois qu'à Paris même il y a beaucoup d'hommes
@@ -147,7 +147,7 @@ Nous aimons ce que nous faisons, nous sommes
 heureux de ce que nous faisons, mais nous voulons
 savoir ce que l'on en fait après nous.
 
-. Or nous ne le savons pas, nous n'avons pas le
+. nous ne le savons pas, nous n'avons pas le
 temps de le savoir. Sans être aussi affairés que ce
 guesdiste qui n'avait le temps de rien lire du tout,
 parce qu'il fondait des groupes, il est certain que
@@ -162,12 +162,12 @@ Enfin, dans les journaux que nous lisons réguliè-
 rement, nous ne recevons pas la vérité même. Cela
 devient évident. Tu sais quel respect, quelle amitié,
 quelle estime j'ai pour la robustesse et la droiture
-de Jaurès ; tu sais quel assentiment cordial et profond je donnais aux lumineuses démonstrations
+de Jaurès; tu sais quel assentiment cordial et profond je donnais aux lumineuses démonstrations
 qu'il nous a produites au cours de l'affaire. Ce n'est
 donc pas sans étonnement et sans tristesse que je
 lis sous sa signature dans la Petite République du
 jeudi 16 novembre des phrases comme celles-ci
-« Zévaès a eu raison de rappeler les principes essentiels de notre Parti. Il a eu raison d'opposer à l'ensemble de la classe capitaliste, que divisent des rivalités secondaires, mais qui est unie par un même
+« Zévaès a raison de rappeler les principes essentiels de notre Parti. Il a raison d'opposer à l'ensemble de la classe capitaliste, que divisent des rivalités secondaires, mais qui est unie par un même
 intérêt essentiel, la revendication du prolétariat. ».…
 « Et d'autre part ni Zévaès, ni ses amis, ne sont
 prêts à faire le jeu des nationalistes et de la réaction. »... « Et Zévaëès, si élevé que soit son point de
@@ -175,19 +175,19 @@ vue, » Je ne veux pas me donner le ridicule de
 poursuivre M. Zévaès; mais enfin nous l'avons
 connu, et quand on nous parle de son point de vue
 élevé, si élevé, nous sentons venir la vérité d'État.
-Or nous avons passé vingt mois et plus à distinguer
+nous avons passé vingt mois et plus à distinguer
 et à faire distinguer la vérité d'État de la vérité. —
 Vous avez célébré à Paris Le Triomphe de la Répu-
 blique. Dans la Petite République du lendemain je
-trouve une manchette vraiment grandiose : Une
+trouve une manchette vraiment grandiose: Une
 
 ment le socialisme. Et dans l'Aurore je trouve une
-manchette plus modeste : Le Triomphe de la Ré-
+manchette plus modeste: Le Triomphe de la Ré-
 publique. — Une Grande Journée. - Défilé de
 250,000 Citoyens. Cela fait mauvais effet sur les
 simples d'esprit. Ne pourrons-nous pas, victorieux,
 imiter au moins la véracité des généraux anglais
-battus ? Allons-nous avoir une vérité officielle, une
+battus? Allons-nous avoir une vérité officielle, une
 
 vérité d'État, une vérité de parti. Je le crains quand
 
@@ -206,7 +206,7 @@ J'admets le premier de ces quatre paragraphes.
 
 Quand je dis que je l'admets, je ne veux pas dire
 que je m'arroge un droit de contrôle, une autorité
-sur les décisions du Congrès : je veux dire, en gros,
+sur les décisions du Congrès: je veux dire, en gros,
 
 Le second paragraphe présente quelque difficulté.
 Les obligations définies dont on parle ici, et qui
@@ -220,7 +220,7 @@ l'obligation de dire la vérité.
 
 Dire la vérité, toute la vérité, rien que la vérité,
 dire bêtement la vérité bête, ennuyeusement la
-vérité ennuyeuse, tristement la vérité triste : voilà
+vérité ennuyeuse, tristement la vérité triste: voilà
 ce que nous nous sommes proposé depuis plus de
 vingt mois, et non pas seulement pour les questions
 
@@ -228,17 +228,17 @@ de doctrine et de méthode, mais aussi, mais surtout
 pour l'action. Nous y avons à peu près réussi.
 Faut-il que nous y renoncions? Qui distinguera
 de l'action la doctrine et la méthode? Qu'est-ce que
-la doctrine, sinon l'intelligence de l'action ? Qu'estce que la méthode, sinon la pragmatique de l'action ? Comment la doctrine et comment la méthode
+la doctrine, sinon l'intelligence de l'action? Qu'estce que la méthode, sinon la pragmatique de l'action? Comment la doctrine et comment la méthode
 
 peuvent-elles demeurer libres, si l'action doit se
 conformer strictement aux décisions du Congres,
 interprétées par un Comité général. Qui travaille
-5 / pour un serf n'est pas libre. Et même, à y regarder
+5 pour un serf n'est pas libre. Et même, à y regarder
 de près, ce n'est pas la doctrine et la méthode qui
-sont libres : c'est la discussion qui est entièrement
+sont libres: c'est la discussion qui est entièrement
 libre pour toutes les questions de doctrine et de
 méthode. Qu'est-ce qu'une liberté de discussion qui
-n'emporte pas avec elle une liberté de décision ?
+n'emporte pas avec elle une liberté de décision?
 
 Et le paragraphe quatrième nous présente justement un exemplaire de ces décisions de Congrès
 devant lesquelles, avant toute interprétation de
@@ -274,22 +274,22 @@ proposition au cours de la récente campagne. Aux
 bons bourgeois, et aussi aux camarades qui voulaient se réfugier commodément dans le silence
 n'avons-nous pas coupé bien souvent la retraite en
 leur disant brutalement, — car en ce temps-là nous
-finissions tous par avoir un langage brutal, —:
+finissions tous par avoir un langage brutal,
 « Qui ne gueule pas la vérité, quand il sait la vérité,
-se fait le complice des menteurs et des faussaires ! »
+se fait le complice des menteurs et des faussaires! »
 Voilà ce que nous proclamions alors. Voilà ce que
 nous proclamions au commencement de cet hiver:
-Cette proposition est-elle annuelle, ou bisannuelle ?
+Cette proposition est-elle annuelle, ou bisannuelle?
 Fond-elle avec la gelée? Et voilà ce que nous décla-
 
 rons encore aujourd'hui contre les antisémites.
-Cette proposition est-elle, aussi, locale ? Non. Elle
+Cette proposition est-elle, aussi, locale? Non. Elle
 est universelle et éternelle, disons-le sans fausse
 honte. Nous demandons simplement qu'on dise la
-Cela peut mener loin, ces blessures faites ou censées faites aux organisations. 1l est évident que cette
+Cela peut mener loin, ces blessures faites ou censées faites aux organisations. est évident que cette
 résolution a été proposée au Congrès par sa commission plus particulièrement pour protéger contre
 la critique certaines organisations. Ces organisations sont justement celles qui ont des chefs et de
-jeunes ambitieux : seront-elles blessées quand on
+jeunes ambitieux: seront-elles blessées quand on
 blessera quelqu'un de leurs chéfs? Alors la sanction
 sera terrible, et vague, et presque religieuse:
 « Si le Comité général estime que tel journal viole
@@ -299,8 +299,8 @@ publie, qu'il demandera contre eux ou un blâme ou
 l'exclusion du Parti ou la mise en interdit du
 journal lui-même. »
 Irons-nous soufller sur des flammes de cierge au
-seuil des interdits ?
-La sérénité parfaite avec laquelle ce Congrès a,
+seuil des interdits?
+La sérénité parfaite avec laquelle ce Congrès
 pour le service intérieur du Parti socialiste, supprimé la liberté de la presse, m'a laissé stupide. Je
 
 sais bien que le Congrès était souverain. Mais
@@ -313,7 +313,7 @@ partis n'aient des droits surhumains, allons-nous
 marcher contre les axiomes? Cela porte malheur
 à la raison.
 
-Quel chef d'accusation vague : un préjudice causé
+Quel chef d'accusation vague: un préjudice causé
 au prolétariat, et quelle tentation présentée aux avocats généraux de la démagogie! Mais plus que le
 vague religieux de l'inculpation, des poursuites et
 du procès, la précision économique de la sanction
@@ -333,17 +333,17 @@ Je n'ai jamais, depuis le commencement de l'affaire,
 senti une impression de défaite aussi lourde que le
 jour où Vaughan nous annonça dans l'Aurore que
 le journal publierait, comme tout le monde, un bul-
- letin financier, une chronique financière. Le journal s'envole donc, emportant la parole d'affranchissement et l'annonce d'asservissement, le génie ou
+letin financier, une chronique financière. Le journal s'envole donc, emportant la parole d'affranchissement et l'annonce d'asservissement, le génie ou
 le talent révolutionnaire avec l'absinthe réactionnaire, les tuyaux des courses, les théâtres immondes. Le journal emporte le mal et le bien. Le hasard
 fera la balance, bonne ou mauvaise. Quelle angoisse
 pour l'écrivain, pour l'homme d'action, pour l'orateur génial, de savoir et de voir que sa prose couche
 avec ces prospectus indicateurs! Cette angoisse
 n'a-t-elle pas une résonance profonde au cœur même
-de son œuvre, n'y introduit-elle pas des empêchements, des impuissances ? Comme le talent des uns
+de son œuvre, n'y introduit-elle pas des empêchements, des impuissances? Comme le talent des uns
 et comme le génie du grand orateur se déploierait
 joyeusement, clairement, purement dans la santé
 d'un journal enfin libre! Or, en admettant que le
-génie et le talent soient moralement négligeables en ,
+génie et le talent soient moralement négligeables en,
 eux-mêmes, ils sont considérables quand ils servent
 à préparer la Révolution sociale. Nousespérions donc
 passionnément que le Congrès essaierait au moins
@@ -371,10 +371,10 @@ sommes servis de la vérité. Nous l'avons utilisée.
 Nous avons détourné la vérité, qui est de la connaissance, aux fins de l'action. Il s'agit à présent
 de savoir si nous avons commis une malversation.
 Car la vérité que nous avons utilisée n'était pas la
-facile vérité des partis et des polémiques ; elle était
+facile vérité des partis et des polémiques; elle était
 la vérité scientifique, historique, la vérité même, la
 vérité. Nous l'avons assez dit. Et c'était vrai. Nous
-avons prétendu, — et c'était vrai, — que nous 0p-
+avons prétendu, — et c'était vrai, — que nous
 
 posions aux scélératesses et aux imbécillités antisé-
 mitiques exactement l'histoire authentique et scientifique du présent et d'un récent passé. Nous nous
@@ -411,7 +411,7 @@ et fréquentes. C'est justement parce que l'on néglige
 pendant dix ans la lente infiltration des mensonges:
 familiers et des politesses que brusquement il faut
 qu'un révolutionnaire crève l'abcès. Pourrons-nous
-trouver toujours un révolutionnaire comme Zola ?
+trouver toujours un révolutionnaire comme Zola?
 Il y a beaucoup de chances pour qu'un Comité
 général commette moins délibérément qu'un homme
 une de ces terribles imprudences qu'on nomme
@@ -432,7 +432,7 @@ perdu quelques relations mondaines ou quelques
 amitiés politiques. Cela n'est rien. Mais j'ai
 traité comme des forbans, comme des bandits,
 
-ae comme des voyous, des jeunes gens honnêtes,
+comme des voyous, des jeunes gens honnêtes,
 perdus dans leur province, qui s'étaient laissé fourvoyer par les infamies plus menues d'Alphonse
 Humbert ou par les infamies bestialement laides de
 . Drumont. Cette amputation était nécessaire alors.
@@ -444,22 +444,22 @@ n'accepterons pas qu'on nous force à la lâcher pour
 ménager les susceptibilités, les amours-propres, les
 épidermes de quelques individus. — Car au fond
 c'est cela.
-f Pour ces raisons je te prie de m'envoyer toutes
+Pour ces raisons je te prie de m'envoyer toutes
 les quinzaïines un cahier de renseignements.
 
 Tu demeures auprès de Paris; tu peux assister
-certaines cérémonies, scènes et solennités ; tu m'en « feras le compte rendu fidèle. Tu peux assister à certains actes. Tu me diras ce que tu verras et ce que
+certaines cérémonies, scènes et solennités; tu m'en « feras le compte rendu fidèle. Tu peux assister à certains actes. Tu me diras ce que tu verras et ce que
 tu sauras des hommes et des événements, en parti-
 
 culier ce qui ne sera pas dans les journaux. Non pas
-que je veuille avoir les derniers tuyaux ; non pas
+que je veuille avoir les derniers tuyaux; non pas
 que j'attache une importance qu'elles n'ont pas aux
 grandes nouvelles, vraies et fausses, qui cheminent
 aux salles de rédaction. Je ne veux pas t'envoyeren
 
 ces endroits, où tu n'es pas accoutumé d'aller. Je ne
 
-veux pas savoir les secrets des cours. Je consens à fe
+veux pas savoir les secrets des cours. Je consens à
 ne savoir jamais pourquoi ni comment M. Cle-
 
 menceau a quitté l'Aurore. Je ne te prie pas
@@ -482,7 +482,7 @@ m'intéresse de près ou de loin à tout ce qui touche
 la Révolution sociale. Je me réabonnerai à mes
 trois journaux. Je me réabonnerai surtout au
 Mouvement Socialiste. La Revue Socialiste est une
-grande revue : elle a sa place marquée dans tous
+grande revue: elle a sa place marquée dans tous
 les groupes et cercles d'études et de propagande.
 Le Mouvement, plus court, plus portatif, nourri,
 amical, très largement international, ne quitte
@@ -513,21 +513,21 @@ Jete prie de me donner tous les documents et
 tous les renseignements que tu pourras, même
 longs, même ennuyeux. Nous devons à la même
 affaire la publication exacte, historique, de procèsverbaux, de comptes rendus sténographiques, de
-documents, de papiers, de pièces. Nous avons eu le
+documents, de papiers, de pièces. Nous avons le
 
 Procès Zola, la Revision de l'Affaire Dreyfus,
 Enquête et Débats de la Cour de Cassation, les
 publications du Figaro. L'Éclair donne le compte
 rendu sténographique des débats qui se poursuivent si ennuyeusement devant la Haute Cour. Ici
 reconnaissons l'hommage que le vice rend à la
-vertu. J'ai lu avec plaisir sur la quatrième page de
+vertu. J'ai avec plaisir sur la quatrième page de
 
 la couverture du Mouvement que la Société nouvelle de librairie et d'édition allait nous donner le
 
 « Compte rendu sténographique ofliciel du Congrès
 général des Organisations Socialistes Françaises
 tenu à Paris en Décembre 1899 ». C'estlà de bon style
-ofliciel. Voilà de bonne publication. Nous aurons là
+ofliciel. Voilà de bonne publication. Nous aurons
 même les paroles inutiles prononcées dans le grand
 gymnase pendant que la commission travaillait.
 Nous aurons les basses démagogies de Ebers aussi
@@ -536,7 +536,7 @@ est même intéressant que le Congrès, dans sa
 deuxième journée, ait résolu que l'on procéderait
 cette publication. Il donnait ainsi le bon exemple.
 
-On va publier, sur l'invitation formelle du Congrès,
+On publier, sur l'invitation formelle du Congrès,
 
 sous le contrôle d'une commission spéciale, des
 discours blessants pour telle ou telle organisation.
@@ -563,5 +563,3 @@ du monde par quinzaine, ou une chronologie du
 monde par quinzaine. Je te prie de m'envoyer des
 cahiers de renseignement, sans esprit de parti, sur
 ce qui m'intéresse.
-
----

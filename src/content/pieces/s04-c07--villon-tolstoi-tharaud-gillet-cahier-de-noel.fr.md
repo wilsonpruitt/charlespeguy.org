@@ -11,7 +11,7 @@ de Noël
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-‘4 Cahier de Noël va
+Cahier de Noël
 
 Dame des cieulx, regente terrienne,
 Emperiere des infernaux paluz,
@@ -20,10 +20,10 @@ Ce non obstant qu'oncques rien ne valuz.
 Les biens de vous, ma dame et ma maistresse,
 Sont trop plus grans que ne suis pecheresse,
 Sans lesquelz biens ame ne peut merir
-N'auoir les cieulx, ie n'en suis iungleresse.
-En ceste foy ie vueil viure et mourir.
-A vostre Filz dictes que ie suis sienne;
-De luy soyent mes pechiez aboluz :
+N'auoir les cieulx, n'en suis iungleresse.
+En ceste foy vueil viure et mourir.
+A vostre Filz dictes que suis sienne;
+De luy soyent mes pechiez aboluz:
 Pardonne moy comme à l'Egipcienne,
 Ou comme il feist au clere Théophilus,
 Lequel par vous fut quitte et absoluz,
@@ -33,17 +33,17 @@ Ballade que Villon feit à la requeste de sa mère
 Preseruez moy, que ne face iamais ce,
 Vierge portant, sans rompure encourir,
 Le sacrement qu'on celebre à la messe.
-En ceste foy ie vueil viure et mourir.
+En ceste foy vueil viure et mourir.
 
-Femme ie suis pourette et ancienne,
+Femme suis pourette et ancienne,
 Qui riens ne sçay: oncques lettre ne leuz;
 Paradis paint, où sont harpes et luz,
-Et ung enfer où dampnez sont boulluz :
+Et ung enfer où dampnez sont boulluz:
 L'ung me fait paour, l'autre ioye et liesse.
 La ioye auoir me fay, haulte Deesse,
 À qui pecheurs doiuent tous recourir,
 Comblez de foy, sans fainte ne paresse.
-En ceste foy ie vueil viure et mourir.
+En ceste foy vueil viure et mourir.
 
 Vous portastes, digne Vierge, princesse,
 Jesus regnant, qui n'a ne fin ne cesse.
@@ -51,10 +51,10 @@ Le Tout-Puissant, prenant nostre foiblesse,
 Laissa les cieulx et nous vint secourir,
 Offrit à mort sa tres chiere ieunesse.
 Nostre Seigneur tel est, tel le confesse,
-En ceste foy ie vueil viure et mourir.
+En ceste foy vueil viure et mourir.
 
 Ces lettres ont été publiées dans V'Athenaeum du
-{ octobre 1902, avec la permission de M. Aylmer
+octobre 1902, avec la permission de M. Aylmer
 
 La première, écrite en anglais, est adressée à John
 Bellows, président du Comité des Amis des Doukhobors,
@@ -68,10 +68,10 @@ Traduction établie pour les cahiers par les soins de
 
 Cher ami, j'ai reçu votre lettre et je voulais y
 répondre, mais j'ai été si faible depuis deux mois
-que je n'ai pu le faire. Ainsi, il faut excuser mon
+que je n'ai le faire. Ainsi, il faut excuser mon
 
-J'ai lu deux fois votre lettre et j'ai considéré la
-chose aussi bien que j'ai pu mais je n'ai pas réussi
+J'ai deux fois votre lettre et j'ai considéré la
+chose aussi bien que j'ai mais je n'ai pas réussi
 à résoudre la question d'une manière définitive. Il
 est possible que vous ayez raison, mais pas pour
 tous ceux qui liront le livre. Il est possible que
@@ -81,7 +81,7 @@ sens. Mais il peut aussi, comme ç'a été mon intention, avoir l'influence tout
 
 Tout ce que je puis dire pour ma défense, c'est
 que, quand je lis un livre, ce qui m'intéresse
-surtout, c'est la Weliausschauung des Autors : ce
+surtout, c'est la Weliausschauung des Autors: ce
 qu'il aime et ce qu'il hait. Et j'espère que quiconque
 
 lira mon livre avec cette idée, verra ce que l'auteur
@@ -122,16 +122,16 @@ de mes vues sur la question des sexes, aussi raisonnable que le résumé de la R
 J'ai été très heureux d'avoir une sérieuse conver-
 
 sation avec I... sur l'éducation des enfants. Lui et
-moi, nous sommes tombés tout à fait d'accord sur un |
-point qui est seulement négatif, c'est que les enfants |
+moi, nous sommes tombés tout à fait d'accord sur un
+point qui est seulement négatif, c'est que les enfants
 doivent apprendre le moins possible. Il n'est pas à
-beaucoup près aussi mauvais pour des enfants de |
+beaucoup près aussi mauvais pour des enfants de
 grandir sans avoir appris certaines choses, que
-d'avoir une indigestion d'éducation et d'en venir |
-à la détester : — ce qui arrive à presque tous,
+d'avoir une indigestion d'éducation et d'en venir
+à la détester: — ce qui arrive à presque tous,
 surtout à ceux dont l'éducation est dirigée par
 des mères qui ne connaissent pas les sujets appris
-par leurs enfants. Un enfant ou un homme peut |
+par leurs enfants. Un enfant ou un homme peut
 
 apprendre quand il a de l'appétit pour ce qu'il
 
@@ -140,7 +140,7 @@ apprendre quand il a de l'appétit pour ce qu'il
 mal terrible qui rend les gens mentalement infirmes. Pour l'amour du ciel, chère S..., si vous n'êtes À
 
 pas tout à fait de mon avis, soyez sûre que je ne
-vous écrirais pas à ce sujet, si ce n'était pas une :
+vous écrirais pas à ce sujet, si ce n'était pas une:
 
 - affaire d'une aussi énorme importance. Surtout,
 croyez votre mari qui voit les choses tout à fait
@@ -153,10 +153,10 @@ de vie de propriétaire, cette réplique a quelque
 raison d'être. Mais est-il vraiment nécessaire d'habituer les enfants à ce genre de vie et de leur faire
 sentir que toutes leurs exigences seront toujours
 satisfaites par quelqu'un, sans qu'ils aient à prendre
-aucune part au travail ? Je pense que la première
+aucune part au travail? Je pense que la première
 condition d'une bonne éducation est que l'enfant
 sache que tout ce dont il se sert ne tombe pas du
-ciel tout fait, mais est produit par le labeur d'autres .
+ciel tout fait, mais est produit par le labeur d'autres.
 gens. Comprendre que tout ce qui le faitvivre vient
 du travail d'autres gens qui ne le connaissent ni ne
 l'aiment, c'est trop pour un enfant, — Dieu veuille
@@ -168,7 +168,7 @@ toujours propres sont nettoyés non par amour
 pour lui, mais pour quelque autre raison tout à
 fait inintelligible, c'est quelque chose qu'il peut et
 
-doit comprendre, et dont il doit être honteux. |
+doit comprendre, et dont il doit être honteux.
 S'il n'est pas honteux et s'il continue de s'en
 servir, voilà le pire commencement d'éducation
 possible et qui laissera les traces les plus profondes
@@ -181,16 +181,16 @@ leurs brocs, lavent et arrangent leur chambre,
 nettoient leurs souliers et leurs habits, mettent le
 Croyez-moi, ces choses, bien qu'elles puissent
 paraître sans importance, sont cent fois plus importantes pour le bonheur de vos enfants que la connaissance du français ou de l'histoire, etc. Il est vrai
-qu'ici la principale difliculté se présente : les
-enfants ne font volontiers que ce que font leurs |
-parents ; je vous en prie donc, faites ces choses. |
-Cela servira à deux fins : il sera possible d'appren- |
-dre moins, puisque la journée sera remplie de la |
+qu'ici la principale difliculté se présente: les
+enfants ne font volontiers que ce que font leurs
+parents; je vous en prie donc, faites ces choses.
+Cela servira à deux fins: il sera possible d'appren-
+dre moins, puisque la journée sera remplie de la
 façon la plus utile et la plus naturelle, et les enfants
 s'habitueront ainsi à la simplicité, au travail, à se
 suflire à eux-mêmes.
-S'il vous plaît, faites-le. Vous en serez satisfaite |
-dès le premier mois, et les enfants encore plus. |
+S'il vous plaît, faites-le. Vous en serez satisfaite
+dès le premier mois, et les enfants encore plus.
 
 Si vous pouvez ajouter à ceci le travail de la
 terre, quand ce ne serait qu'un jardin potager, ce
@@ -209,10 +209,10 @@ famille, puisse se libérer d'occupations qui l'empè-
 chent de consacrer tout son temps à un travail profitable. Mais comment un enfant, non encore mis à
 l'épreuve, et encore incapable de rien faire, peut-il
 s'expliquer que d'autres fassent pour lui ce qu'il
-devrait naturellement faire pour lui-même ?
+devrait naturellement faire pour lui-même?
 
 Pour lui, la seule explication, c'est que les gens
-se divisent en deux classes : les maîtres et les
+se divisent en deux classes: les maîtres et les
 esclaves; et quoi que vous puissiez lui dire sur
 l'égalité et la fraternité des hommes, toute sa
 façon de vivre, depuis son lever jusqu'au repas
@@ -221,10 +221,10 @@ il cesse de croire à ce que lui disent ses aînés sur
 
 la moralité, mais au fond de son âme, il voit que
 tous ces enseignements sont mensongers, et il cesse
-de croire ses parents, ses maîtres, il cesse même de |
+de croire ses parents, ses maîtres, il cesse même de
 croire à la nécessité de toute espèce de moralité.
 Encore une autre considération. S'il n'est pas
-possible de faire tout ce que j'ai indiqué, du moins |
+possible de faire tout ce que j'ai indiqué, du moins
 il faut habituer les enfants à faire les choses dont
 ils sentiraient la privation si elles n'étaient pas
 faites. Par exemple si les habits et les souliers pour
@@ -234,7 +234,7 @@ lavé la vaisselle, on n'aura rien à boire. Surtout
 dans cette affaire, ne craignez pas le ridicule. Les
 neuf dixièmes de toutes les choses mauvaises dans
 le monde sont faites parce que ne pasles faire serait
-tenu pour ridicule. |
+tenu pour ridicule.
 
 M. Joseph Bédier avait indiqué à Tharaud ces contes
 de la Vierge. Tharaud les a lus, et nous les donne
@@ -246,8 +246,8 @@ exacte, le conte. On peut comme artiste, comme historien, conter le conte à son
 
 Il y aurait bien une troisième méthode, qui serait
 d'obtenir la coincidence parfaite de la méthode de
-science et de la méthode d'art ; c'est cette troisième mé- à
-thode que M. Bédier a pu tenir dans sa restitution de
+science et de la méthode d'art; c'est cette troisième mé- à
+thode que M. Bédier a tenir dans sa restitution de
 Tristan et Iseut. À défaut de cette troisième méthode,
 les Tharaud ont opté pour la deuxième. Ils n'ont pas
 altéré la légende ancienne. Mais ils se sont réservé le
@@ -257,18 +257,18 @@ l'avaient faite, la faisaient et la refaisaient sans cesse.
 Les Tharaud ne sont que deux conteurs de plus, après
 et parmi tant de conteurs.
 
-Les cinq contes que l'on va lire sont les premiers
+Les cinq contes que l'on lire sont les premiers
 d'une série qui sera intitulée la légende de la Vierge.
 
-Un jeune moine chantait :
+Un jeune moine chantait:
 
 Marie est un doux mot dans la bouche;
-Marie est un doux chant à l'oreille ;
-Marie est une chanson du cœur ;
+Marie est un doux chant à l'oreille;
+Marie est une chanson du cœur;
 
-Marie est l'unique merveille ;
+Marie est l'unique merveille;
 
-Marie est douceur de Harpe ;
+Marie est douceur de Harpe;
 
 tandis qu'il peignait sur le vélin d'un livre
 d'heures le nom de Notre Dame en lettres d'or,
@@ -301,10 +301,10 @@ les années exaltaient sans le satisfaire, il peignit
 sur les parchemins les plus précieux des images de
 celle qu'il n'avait jamais vue et qui emplissait son
 
-Aucune de ces peintures n'était pareille : car ses
+Aucune de ces peintures n'était pareille: car ses
 visions de la Reine d'amour étaient changeantes
 comme le ciel. Même il s'était essayé à ne pas repré-
-senter Notre Dame sous une forme et une apparence de femme : les perles, les sources, les fleurs
+senter Notre Dame sous une forme et une apparence de femme: les perles, les sources, les fleurs
 devinrent sous son pinceau les figures de Celle qui
 éclaire toutes les belles choses du monde d'un reflet
 de sa beauté.
@@ -316,7 +316,7 @@ délicieuse. Son pinceau lui tomba des doigts et son
 
 corps s'alanguit dans les bras de sa chaise. Par la
 fenêtre ouverte entraient dans la cellule les derniers rayons du jour. La Vierge qu'il venait de
-peindre sur le vélin ouvrit les lèvres et lui dit :
+peindre sur le vélin ouvrit les lèvres et lui dit:
 
 — Bel ami cher, vis sans inquiétude. Ton âme
 sera recueillie dans la troupe des bienheureux.
@@ -324,25 +324,25 @@ Parce que tu as peint mon image et écrit mon nom
 le plus bellement que tu pouvais, ton nom sera
 écrit au livre de vie.
 
-Le moine tomba à genoux :
+Le moine tomba à genoux:
 
 — Douce dame du Paradis, merveilleuse est
-cette promesse et de tout mon cœur vous en crie :
-merci ! Mais, dites, emportez-moi tout de suite au
-royaume de votre fils ; que je meure sur l'heure et
+cette promesse et de tout mon cœur vous en crie:
+merci! Mais, dites, emportez-moi tout de suite au
+royaume de votre fils; que je meure sur l'heure et
 vous voie non plus sous les traits de cette image
 imparfaite, mais telle que vous êtes en vérité.
 
 — Beau fils, répondit l'image, tes jours ne sont
-Pas à moi : ils appartiennent à mon fils. Je n'annonce
+Pas à moi: ils appartiennent à mon fils. Je n'annonce
 l'heure de mourir à personne. Mais si tu tiens tant
 à me voir, tu me verras. Apprends seulement que
 nul homme vivant ne m'a vue sans devenir aveugle.
 
 Le moine se mit à trembler de tout son corps, de
-joie et d'espoir :
+joie et d'espoir:
 
-— Qui ne consentirait pour vous voir, Impératrice des Anges, à perdre la lumière de ses yeux ?
+— Qui ne consentirait pour vous voir, Impératrice des Anges, à perdre la lumière de ses yeux?
 
 Mais vivement le moine couvrit de sa main son
 autre œil, et d'un seul regarda. Ce fut une éblouis-
@@ -352,7 +352,7 @@ la légende de la Vierge
 sante vision d'or, d'azur et de blanc, de vermillon
 
 et de safran, où il distingua, au milieu d'archanges
-‘ flamboyants, d'anges et de vierges musiciennes,
+flamboyants, d'anges et de vierges musiciennes,
 
 la reine de gloire vêtue d'une robe couleur de nuit
 
@@ -366,7 +366,7 @@ La Vierge et son cortège passèrent devant l'œil
 
 : du moine ébloui comme une silencieuse tempête,
 laissant dans son âme un tel regret qu'il fondit en
-larmes et s'écria :
+larmes et s'écria:
 
 — Reine de beauté, ayez pitié de votre serviteur. Celui qui vous a vue une fois peut-il ne pas
 désirer vous voir toujours? Au nom de votre fils,
@@ -413,7 +413,7 @@ flotta par la cellule, où le peintre pieux distinguait
 dans la pénombre grandissante avec la tombée du
 soir, toutes choses demeurées en leur place, le
 pupitre, l'Image, les couleurs, avec la lumière de
-ses yeux. \
+ses yeux.
 
 — Reine de bonté, s'écria-til, vous n'avez pas
 voulu me rendre aveugle. Vous m'avez pris un de
@@ -424,34 +424,34 @@ volontiers j'aurais consenti à ne plus rien voir de
 ma vie et garder dans la nuit le souvenir de votre
 
 A nul clerc de son moutier le moine dit qu'il
-avait vu Notre Dame, et de ce jour ne toucha plus
+avait Notre Dame, et de ce jour ne toucha plus
 un pinceau.
 
-Au prieur qui s'en étonnait répondit :
+Au prieur qui s'en étonnait répondit:
 
 — Pauvres sont les lignes, pauvres les couleurs, pauvre notre art, pour exprimer la douleur
 et la gloire.
 
-to fils , NA
+fils,
 
 Pour honorer et servir l'émeraude, la gemme,
 
 la fleur de lys et d'églantier si pure, si précieuse
 
-| que Dieu en fit sa mère, Notre Dame, une princesse,
+que Dieu en fit sa mère, Notre Dame, une princesse,
 abandonnant son palais et sa cour, se retira loin de
 la ville, dans un ermitage qu'elle avait bâti.
 
 Elle oublia le monde, donna à Dieu son corps et
 son cœur. Nonne devint. De ses doigts ouverts
 coulaient les aumônes comme l'eau des pluies
-s'égoutte des branches : les chemins qui menaient
+s'égoutte des branches: les chemins qui menaient
 à sa retraite étaient semés de gens'à besace qui
 venaient implorer d'elle le pain du corps sans doute,
 — mais surtout la grâce de voir son visage de
 bonté. Des marchands, des clercs, des hommes
 riches et de haut parage attirés par la renommée
-de sa vertu cheminaient avec les mendiants :
+de sa vertu cheminaient avec les mendiants:
 mendiants eux-mêmes de conseils pour leurs âmes
 pécheresses, lasses. Un soir d'hiver, la pieuse dame
 ouvrit la porte à un pauvre clerc morfondu. Quand
@@ -459,28 +459,28 @@ il eut séché devant la flamme sa robe lourde de
 
 la légende de la Vierge
 neige et quand d'une écuelle profonde de soupe,
-il eut réchauffé son cœur :
+il eut réchauffé son cœur:
 
-__ Est-ce indiscrétion, beau sire, de vous demander où vous allez ? dit la nonne. Votre bâton, vos
+Est-ce indiscrétion, beau sire, de vous demander où vous allez? dit la nonne. Votre bâton, vos
 coquilles et votre gourde annoncent un pèlerin.
 
 — Et pèlerin suis en vérité, répondit bumblement
 le clerc.
 
-_— Pèlerin de quel saint, de quel tombeau
+Pèlerin de quel saint, de quel tombeau
 
-__ Pèlerin suis du roi de gloire, du Saint Sépulcre
+Pèlerin suis du roi de gloire, du Saint Sépulcre
 en la cité de Jérusalem.
 
-__ Miséricorde ! s'écria la dame, qui n'avait
-encore vu de sa vie voyageur en route pour le
+Miséricorde! s'écria la dame, qui n'avait
+encore de sa vie voyageur en route pour le
 saint tombeau. Longue est la route.
 
-_— Plus longue encore sera la grâce, dit le
-passant. Qui a vu le Saint Sépulcre peut mourir :
+Plus longue encore sera la grâce, dit le
+passant. Qui a le Saint Sépulcre peut mourir:
 son âme monte droit en Paradis.
 
-__ Je vous suivrais — ah! quel désir et quel
+Je vous suivrais — ah! quel désir et quel
 regret! — si je n'étais déjà vieille, faible et presque
 aveugle. Mais pour Dieu, pour Dieu, beau sire,
 quand vous serez en la cité où la mère du juge de
@@ -498,10 +498,10 @@ pourra m'empêcher de repasser par ici et de me
 souvenir de la prière que vous me faites si
 
 Le lendemain, quand il partit, son hôtesse lui
-rappela sa promesse :
+rappela sa promesse:
 
 — N'oubliez mon image, beau très doux sire, et
-que saint Jacques vous garde !
+que saint Jacques vous garde!
 
 Le pèlerin après des mois arriva joyeux en la
 cité de Jérusalem. Quand il eut visité le Saint
@@ -513,54 +513,54 @@ le regret de son pays.
 Au bout d'une semaine il songeait déjà au retour.
 reprit dans sa main le bâton de voyage et se remit
 en marche, heureux d'être venu, plus heureux
-encore de partir : il s'arrêta, sous un arbre, au
+encore de partir: il s'arrêta, sous un arbre, au
 point où la route tourne et d'où pour la dernière
-fois le pèlerin qui s'en va peut voir les murs de la
+fois le pèlerin qui s'en peut voir les murs de la
 cité de Jérusalem. Le clerc regardait la ville qu'il
 pensait ne revoir jamais plus, pour en retenir un
 clair souvenir et pouvoir dire, dans son pays, à
 
-ceux qui lui demanderaient :
+ceux qui lui demanderaient:
 — Dis-nous comment est la cité de Jérusalem?
 
 la légende de la Vierge
 
-__ Elle est ainsi et ainsi. Là est la maison de
-Pilate, là le saint tombeau, Et
+Elle est ainsi et ainsi. est la maison de
+Pilate, le saint tombeau, Et
 
-AÀ ce moment, tout près de lui, il entendit une
+ce moment, tout près de lui, il entendit une
 voix à la fois très impérieuse et très douce qui
 
 — Vite, retourne sur tes pas, clerc oublieux...
 
-Le pèlerin regarde autour de lui : personne. Des
+Le pèlerin regarde autour de lui: personne. Des
 champs désolés dont les cailloux brillent sous le
 soleil comme autant de pierres précieuses. Impossible de deviner d'où vient cette voix.
 
-__ Clerc oublieux, que diras-tu à la bonne dame
+Clerc oublieux, que diras-tu à la bonne dame
 qui t'a reçu dans son ermitage, quand tu passeras
 devant sa porte? Elle te demandera cette image que
 
-\ Le clerc, à genoux, écoule, le front sur les cailloux,
-cette voix d'un ange invisible ; il se frappe mainte
+Le clerc, à genoux, écoule, le front sur les cailloux,
+cette voix d'un ange invisible; il se frappe mainte
 fois la poitrine, se signe, s''émerveille et pleure puis
 se relève, l'âme très triste, revient en la cité de
 Jérusalem, où étant eniré, droit à la rue aux
 images il s'en va, une rue bordée d'échoppes
 étincelantes d'or, d'argent, de sinople et d'azur.
 
-Le clerc est ébloui par la profusion des images ;
+Le clerc est ébloui par la profusion des images;
 
-il y en a de peintes et de sculptées ; les unes grandes
+il y en a de peintes et de sculptées; les unes grandes
 
 comme un porche d'église, les autres petites comme
 
 le creux de la main; toutes œuvres patientes et
 loyales de bons artistes.
 
-C'est la nuit : sculpteurs et peintres ont allumé
+C'est la nuit: sculpteurs et peintres ont allumé
 
-dans leurs boutiques des lanternes. Le clerc va et
+dans leurs boutiques des lanternes. Le clerc et
 vient dans la rue étroite, sous l'œil des Saintes et
 des Saints, de la Vierge et de son fils.
 
@@ -578,18 +578,18 @@ tient en laisse une étrange bête mi-tigre mi-serpent.
 Mais le clerc ne se laisse enjôler ni par les saints
 couleur d'aurote ni par les saintes couleur de ciel.
 Il n'a d'yeux que pour les portraits de Notre Dame.
-Il voudrait les acheter tous : mais il a peu d'écus
+Il voudrait les acheter tous: mais il a peu d'écus
 dans sa poche et tant d'images seraient lourdes à
 ses épaules. Entre une statuette et une petite image
-peinte sur un panneau de bois il hésita longtemps :
+peinte sur un panneau de bois il hésita longtemps:
 la statuette était de pierre toute blanche avec un
-peu d'or aux fleurons de la couronne ; la vierge
+peu d'or aux fleurons de la couronne; la vierge
 
 ‘tenait dans ses bras son divin fils. L'imagette
 représentait sur un fond rouge de soleil qui se
 couche dans une gloire, la douce mère de Dieu, les
 yeux clos, au pied d'un gibet. Le elere contemplait
-les deux images tour à tour : il finit par se décider
+les deux images tour à tour: il finit par se décider
 pour l'imagette plus petite, et moins fragile.
 
 la légende de la Vierge
@@ -617,10 +617,10 @@ moine à une tant précieuse image.
 
 Quand il passa devant la porte, la nonnaïn était
 sur le seuil. Le pèlerin continua son chemin, les
-yeux baissés comme s'il n'avait pas vu. \
+yeux baissés comme s'il n'avait pas vu.
 
-— Vous n'entrez pas vous reposer dans ma mai- \
-son, beau très doux sire ?
+— Vous n'entrez pas vous reposer dans ma mai-
+son, beau très doux sire?
 
 Le clerc releva la tête, fit mine de s'étonner,
 s'approcha de la dame et pénétra dans l'ermitage.
@@ -633,33 +633,33 @@ robe de bure aux mains de la nonnain. La dame
 allait et venait autour de lui, jetant des bûches dans
 le feu, posant du pain blanc et du vin sur la
 table. Le clerc boit et mange à sa faim. La nonnaïin
-lui fait conter son voyage ; elle ne se lasse pas de
-l'entendre : comment est le Saint Tombeau, comment la maison de Pilate, comment le beau mont
-des Oliviers ? Comment les clous, comment la couronne d'épines, enfoncée sur la tête du roi de
-gloire ? mais elle n'ose toujours lui demander son
+lui fait conter son voyage; elle ne se lasse pas de
+l'entendre: comment est le Saint Tombeau, comment la maison de Pilate, comment le beau mont
+des Oliviers? Comment les clous, comment la couronne d'épines, enfoncée sur la tête du roi de
+gloire? mais elle n'ose toujours lui demander son
 image. Et tandis qu'il répond à ses questions, le
 moine pense qu'il ne lui donnera pas la belle
 
 — Beau très doux sire, se décide enfin à dire la
 nonne, n'avez-vous en une poche de votre robe une
 Figure de la mère de Dieu? Donnez-la moi si
-l'avez. En mon oratoire la mettrai : il me semble
+l'avez. En mon oratoire la mettrai: il me semble
 qu'une bonne étoile luirait sur ma vie si je pouvais
 m'agenouiller devant le portrait de la belle Reine
 des cieux.
 
-— Ah ! bonne dame, fait le clere en se frappant la
+— Ah! bonne dame, fait le clere en se frappant la
 poitrine, seulement à cette minute, je me souviens
 de la promesse que je vous fis. Hélas! que n'en
 
 la légende de la Vierge
-ai-je eu plus tôt souvenance ! Pardonnez-moi,
+ai-je plus tôt souvenance! Pardonnez-moi,
 bonne dame, le cœur est sûr mais la mémoire est
 
 La nonne s'attriste en son âme; peu s'en faut
 qu'elle ne pleure. Elle ne fit rien paraître de son
 
-Le lendemain, au petit jour, le clerc s'habille :
+Le lendemain, au petit jour, le clerc s'habille:
 l'image est bien cachée sous sa robe. Il lui tarde
 d'être sur la route. Il descend l'escalier, sans bruit.
 Dans le couloir il voit la porte de l'oratoire entrebâillée. Doucement, du doigt il la pousse: Personne. Il avance jusqu'à l'autel, s'agenouille et
@@ -669,18 +669,18 @@ mande pardon de son péché, se frappe la poitrine
 à grands coups, se signe maïinte et mainte fois,
 mais il n'a pas le courage de réparer sa faute par
 une bonne franchise. En lui-même une voix lui
-! crie : Va, laisse sur cet autel l'image de la mère de
+! crie: Va, laisse sur cet autel l'image de la mère de
 Dieu. A son réveil la nonnaïin la trouvera. Elle en
 
 sera très joyeuse et très ébahie.
 
 Le clerc ne veut pas entendre cette voix: Non,
-jamais. Il se hâte vers la porte : il la cherche, elle a |
+jamais. Il se hâte vers la porte: il la cherche, elle a
 disparu. Il fait le tour de l'oratoire en glissant ses
-doigts sur le mur : le mur est lisse, comme une
+doigts sur le mur: le mur est lisse, comme une
 paroi de tombeau. Une sueur froide perle aux
-tempes du pèlerin : il recommence une fois, deux
-fois, trois fois sa promenade autour de la chapelle. |
+tempes du pèlerin: il recommence une fois, deux
+fois, trois fois sa promenade autour de la chapelle.
 
 Sous ses ongles la pierre grince. Il frappe du poing
 fortement la muraille qui ne répond pas. S'il était
@@ -688,8 +688,8 @@ enterré vivant! il saute en avant, en arrière, à
 droite, à gauche. Partout il se heurte à la pierre.
 Sa tête s'égare, il pousse un grand cri.
 Une grande lumière jaillit soudain de la porte
-ouverte ; la nonnaïin paraît sur le seuil effrayée :
-— Beau sire, qu'avez-vous? Votre visage ruisselle de sueur et de sang ?
+ouverte; la nonnaïin paraît sur le seuil effrayée:
+— Beau sire, qu'avez-vous? Votre visage ruisselle de sueur et de sang?
 Avec effort, avec regret, de dessous sa robe, sans
 une parole, le clerc lui tend l'image de la mère de
 La nonnain entre ses doigts, vivement, la
@@ -697,7 +697,7 @@ prend et contemple ravie le visage douloureux de
 la reine de pitié.
 — Merci, beau sire, de votre présent, je savais
 bien que n'aviez oublié votre promesse. Tant mon
-cœur est ému que je ne trouve rien à dire : que la
+cœur est ému que je ne trouve rien à dire: que la
 mère de Dieu vous bénisse pour la joie que m'apportez, beau doux ami.
 
 Amour voulut que dans le grand bois qui entoure
@@ -711,7 +711,7 @@ son épaule. Beowulfe arrêta son cheval et lui demanda son chemin. Apollonie re
 chevalier connut que la nonnaïn était belle.
 
 — Vous vous moquez d'une pauvre fille, noble
-sire, de querir d'elle votre chemin. Ne vous connaissez-vous pas mieux qu'elle en ce bois ?
+sire, de querir d'elle votre chemin. Ne vous connaissez-vous pas mieux qu'elle en ce bois?
 
 Mais le chevalier répondit qu'il était récemment
 arrivé dans le pays et que c'était, dans cette forêt,
@@ -725,7 +725,7 @@ la légende de la Vierge
 
 La route était longue, jusqu'au château. Pourtant
 elle parut brève au chevalier; il crut s'éveiller d'un
-rêve quand la nonnain lui dit :
+rêve quand la nonnain lui dit:
 
 — Voici, noble sire, le château. Vous entrez par
 la cour d'honneur. Je dois aller aux cuisines.
@@ -736,10 +736,10 @@ marchait à côté du chevalier, le visage voilé par un
 pan de sa cornette. Beowulfe ne pouvait détacher
 ses yeux de la nuque blanche et délicate où jouait
 l'ombre des cheveux fous rebelles à l'emprisonnement du béguin. D'un pas égal et souple elle foulait
-l'herbe ; des gouttes de rosée perlaïent sur ses pieds
+l'herbe; des gouttes de rosée perlaïent sur ses pieds
 nus chaussés de sandales de bois.
 
-Beowulfe aurait accompagné la nonnaïn à Jérusalem ! Et déjà il fallait se séparer ! Avant qu'il fût
+Beowulfe aurait accompagné la nonnaïn à Jérusalem! Et déjà il fallait se séparer! Avant qu'il fût
 revenu de son trouble, la nonnaïn lui avait fait une
 grande révérence, et déjà elle s'en allait de son pas
 rapide et menu, sous les arbres, dans l'allée qui
@@ -748,13 +748,13 @@ stropiats, bossus, bancals et bistournés. Il la suivit
 des yeux tant qu'il put la voir. Auprès d'un jeune
 tremble l'allée tournait. La nonnain disparut.
 Beowulfe resta longtemps à la croisée des deux
-chemins, plongé dans une rêverie délicieuse ; l'en
+chemins, plongé dans une rêverie délicieuse; l'en
 tirèrent des sons de trompes, un bruit de rires et de
 voix encore lointaines. Beowulfe se jeta dans le
 
-fourré ; c'était la chasse de son seigneur qui revenait ; il laissa passer les cavaliers. Quand le dernier
+fourré; c'était la chasse de son seigneur qui revenait; il laissa passer les cavaliers. Quand le dernier
 homme eut franchi la poterne, la nuit déjà était
-presque venue ; le chevalier s'étonnait que la nonnain ne fût pas encore de retour. Il commençait à
+presque venue; le chevalier s'étonnait que la nonnain ne fût pas encore de retour. Il commençait à
 douter qu'elle fût revenue au couvent par un autre
 chemin, et il désespérait déjà de la revoir en ce
 jour, lorsqu'il la vit paraître derrière le tremble, à
@@ -766,7 +766,7 @@ regard qui s'étonnait de le trouver encore là.
 
 Il offrit de l'accompagner, — la nuit était noire,
 — et de prendre la charge sur ses épaules, — le sac
-était lourd. La nonnain lui dit en souriant :
+était lourd. La nonnain lui dit en souriant:
 
 Elle était accoutumée à aller par les chemins, la
 nuit comme le jour, et à porter des fardeaux.
@@ -789,27 +789,27 @@ la légende de la Vierge
 d'un couvent bâti sur la falaise d'une île de granit.
 Beowulfe s'arrêta à la limite des arbres sur la lisière
 du pré: il entendit la voix légère de la nonnaïn qui
-appelait le passeur :
+appelait le passeur:
 
-Trois fois elle fit le même cri : personne dans
+Trois fois elle fit le même cri: personne dans
 l'ile n'y répondit. Le passeur était sans doute
 
 La nonnain s'assit sur une pierre et elle aurait
-passé là toute la nuit, près de la lourde barque qui
+passé toute la nuit, près de la lourde barque qui
 servait à passer les bœufs du couvent et dont ses
 bras trop faibles ne pouvaient manœuvrer la
 perche, si le chevalier n'était descendu vers elle, à
 travers le pré.
 
-_ Elle fut surprise de le voir et parut mécontente
+Elle fut surprise de le voir et parut mécontente
 qu'il l'eût suivie. Il était mal en vérité à un chevalier de courir la nuit après les nonnains. Quand
 elle disait cela, la lune entre deux nuages éclairait
 le léger sourire de ses lèvres. Elle était si sûre
 d'elle-même, qu'elle pouvait railler le gentil sei- À
-gneur ! Beowulfe, embarrassé, cherchait des raisons
+gneur! Beowulfe, embarrassé, cherchait des raisons
 de l'avoir ainsi escortée. La nonnain s'amusait de
 sa confusion et de la rougeur répandue sur son
-visage ; elle dit:
+visage; elle dit:
 
 — Notre passeur, le vieux Jacob, s'est endormi
 là-bas près du puits.
@@ -821,34 +821,34 @@ La nonnain s'assit à l'avant, son sac posé devant
 elle. Le lac était très profond. Beowulfe poussait la
 ‘barque, à l'arrière, avec la gaffe faite d'un long,
 d'un lisse tronc de sapin. L'eau ruisselait sous le
-bateau avec un bruit joyeux de métal :
+bateau avec un bruit joyeux de métal:
 
 — Croirait-on pas entendre, dit en riant la
 nonnain, un avare qui laisse égoutter des pièces
-d'or entre ses doigts ?
+d'or entre ses doigts?
 
-Lumineuse était devenue la nuit ; un sentiment
+Lumineuse était devenue la nuit; un sentiment
 d'allégresse inconnue pénétrait l'âme du chevalier
 et de la nonnaïn. Ils frissonnèrent quand la barque
 pénétra dans l'ombre du couvent.
 
-Ils se regardèrent avec une tristesse pensive quand :
+Ils se regardèrent avec une tristesse pensive quand:
 la barque atterrit l'étroite rive d'où montait vers la
 porte du monastère un escalier taillé dans le granit.
 
 Beowulfe aida la nonnaïin à remettre son bissac
 sur son épaule. Hasard ou poussé par le désir? —
-ses doigts frôlèrent la nuque d'Apollonie : il sentit
+ses doigts frôlèrent la nuque d'Apollonie: il sentit
 sous sa main la caresse des cheveux légers. La nonnain rougit et se hâta de sauter hors de la barque.
 Le chevalier la regarda monter entre des genévriers
 qui tiraient du roc ingrat leur vie misérable. Une
-cloche tinta. Une porte rouillée grince là haut...
-Beowulfe repoussa la rive du pied : il ramenait
+cloche tinta. Une porte rouillée grince haut...
+Beowulfe repoussa la rive du pied: il ramenait
 distraitement la barque sur l'autre rive, les yeux
 
 la légende de la Vierge
 fixés sur le couvent. Une des nombreuses fenêtres
-qui trouaient la haute muraille s'éclaira : Beowulfe
+qui trouaient la haute muraille s'éclaira: Beowulfe
 vit se mouvoir une forme dans la clarté; il ne douta
 point que la cellule éclairée ne fût celle d'Apollonie,
 et que la femme qu'on y voyait aller et venir ne fût
@@ -856,18 +856,18 @@ la nonnaiïn. La lumière s'éteignit. Beowulfe, pensif,
 revint au château de son seigneur.
 La nuit suivante il traversa la forêt de sapins, la
 forêt de hêtres, la forêt de pins, de toute la vitesse
-de son cheval ; dans l'ombre des arbres qui entouraient le lac, il entendit tinter les cloches d'un office
-nocturne ; les cellules s'éclairèrent quelques minutes. Puis lentement, les unes après les autres,
+de son cheval; dans l'ombre des arbres qui entouraient le lac, il entendit tinter les cloches d'un office
+nocturne; les cellules s'éclairèrent quelques minutes. Puis lentement, les unes après les autres,
 elles s'éteignirent. Seule une cellule, — la cinquième
 à compter de l'angle droit du monastère, —demeura
 éclairée la dernière.
-Beowulfe la reconnut : c'était celle d'Apollonie.
+Beowulfe la reconnut: c'était celle d'Apollonie.
 La nonnaïin s'était appuyée au bord de l'étroite
 fenêtre et elle s'attardait là, à regarder vers le pré,
 malgré la fraîcheur du soir. Cela était une faute
-contre la règle. Mais elle n'y songeait guère : elle |
-était retenue là devant sa fenêtre par une espérance |
-qu'elle n'avait pas l'audace de s'avouer. |
+contre la règle. Mais elle n'y songeait guère: elle
+était retenue devant sa fenêtre par une espérance
+qu'elle n'avait pas l'audace de s'avouer.
 Beowulfe, poussé par la passion et attiré par
 cette lumière, se dépouilla de ses vêtements, entra
 dans l'eau et se mit à nager vers la haute muraille
@@ -880,29 +880,29 @@ d'argent. Elle eut une grande joie et une grande
 terreur quand elle vit que ce qu'elle espérait dans
 le secret de son cœur était arrivé. Toute la nuit et
 tout le jour son esprit avait été obsédé du souvenir
-du chevalier. Elle désirait le revoir : et maintenant
-qu'il était là tout près d'elle, prise d'effroi, elle
+du chevalier. Elle désirait le revoir: et maintenant
+qu'il était tout près d'elle, prise d'effroi, elle
 aurait souhaité ne l'avoir jamais rencontré.
 
 Beowulfe, s'aidant des aspérités du roc, montait
 vers la cellule de la nonnain, tout ruisselant.
-Apollonie voulut fermer les volets de sa cellule :
+Apollonie voulut fermer les volets de sa cellule:
 elle n'en eut pas la force. Elle se tenait penchée au
 bord de sa fenêtre, tremblante, regardant le chevalier monter. La paroi de la falaise était presque
-lisse : l'escalade était périlleuse. Si le chevalier
+lisse: l'escalade était périlleuse. Si le chevalier
 lâchait prise, son corps allait se briser en bas, sur
 les rochers. Un moment vint où dans la muraille le
 chevalier ne trouva plus ni trou pour engager la
-pointe de ses pieds, ni pierre où crisper ses doigts :
+pointe de ses pieds, ni pierre où crisper ses doigts:
 il se tenait contre la muraille, la face levée vers
 son amie, toutes les veines de son visage gonflées
-dans un terrible effort. Apollonie lui dit à miVoix :
+dans un terrible effort. Apollonie lui dit à miVoix:
 
 — Pour l'amour de Dieu, redescendez. Vous êtes
 
 la légende de la Vierge
 
-Mais lui secoua la tête et répondit :
+Mais lui secoua la tête et répondit:
 
 — J'aime mieux mourir que de vous perdre.
 
@@ -915,7 +915,7 @@ elle était amoureuse.
 
 Ainsi pendant longtemps, chaque soir, le chevalier vint retrouver son amie. Quand la nuit était
 noire, Apollonie plaçait une chandelle allumée sur
-l'appui de sa fenêtre : le chevalier se guidaït sur la
+l'appui de sa fenêtre: le chevalier se guidaït sur la
 
 Or, une nuit qu'il nageaït ainsi dans l'eau paisible, tout d'un coup un vent furieux s'éleva qui
 éteignit le cierge de la nonnain. La nuit devint si
@@ -925,7 +925,7 @@ vagues se jouaient de son misérable corps comme
 d'une paille.
 
 En vain il jetait des regards désespérés autour de
-lui : nulle lueur, nulle roche, nulle apparence de |
+lui: nulle lueur, nulle roche, nulle apparence de
 rive. Il sentit qu'il était perdu et recommanda son
 âme pécheresse à la Vierge. Certes il regrettait
 en ce moment son coupable amour et il en avait
@@ -938,11 +938,11 @@ devient plus sauvage, la nuit plus noire, les vagues
 plus furieuses.
 
 Apollonie dans sa cellule allume désespérément
-la chandelle : le vent chaque fois la souffle et
+la chandelle: le vent chaque fois la souffle et
 l'éteint. Quand même la nonnain réussirait à tenir
 la lumière sur sa fenêtre allumée, dans ces ténèbres
 son ami ne la verrait pas. Elle sent que son heure
-est venue, qu'il va périr, elle se jette à genoux
+est venue, qu'il périr, elle se jette à genoux
 devant une image de Notre Dame et supplie la
 reine de miséricorde qu'elle aït pitié d'elle et de lui.
 Et le chevalier, las de lutter contre les vagues
@@ -951,7 +951,7 @@ Notre Dame Sainte Marie, dit trois fois Ave Maria
 et se laisse couler dans l'eau noire.
 
 La tempête aussitôt, comme par enchantement,
-s'apaise : les étoiles brillent au ciel, le lac redevient
+s'apaise: les étoiles brillent au ciel, le lac redevient
 lisse comme un miroir. Apollonie, penchée à sa
 fenêtre, regarde. et voit le beau corps de son ami
 que le flot pousse doucement contre les rochers,
@@ -969,7 +969,7 @@ L'abbé qui avait la direction du couvent refusa
 d'enterrer en terre sainte un homme mort en état
 de péché mortel. Apollonie supplia vainement
 l'abbesse de fléchir une résolution si dure. L'abbé
-fut inflexible. Beowulfe fut enterré, sans messe, .
+fut inflexible. Beowulfe fut enterré, sans messe,.
 sans bénédiction, sans prières, comme un païen,
 hors la terre bénie, au crépuscule.
 
@@ -979,15 +979,15 @@ quart de lieue une odeur divine. Un paysan qui
 passait vit de loin cet arbre merveilleux. Il courut
 avertir l'abbesse, qui avertit l'abbé. Celui-ci vint
 aussitôt constater le miracle et donna l'ordre, sur le
-champ, d'exhumer le chevalier. Le corps était lisse |
-et coloré comme s'il eût été vivant : une telle paix |
+champ, d'exhumer le chevalier. Le corps était lisse
+et coloré comme s'il eût été vivant: une telle paix
 était sur le visage du mort qu'il semblait seulement
 endormi; de sa bouche sortaient trois roses et
-chaque pétale était marqué du sceau de Marie : |
+chaque pétale était marqué du sceau de Marie:
 
 Le chevalier fut enterré en terre bénie.
 
-Roc Amadour est un pèlerinage très ancien : on
+Roc Amadour est un pèlerinage très ancien: on
 dit que saint Amadour n'était rien d'autre que ce
 petit homme nommé Zachée qui grimpa sur un
 figuier pour voir Notre Seigneur quand il entrait à
@@ -1005,17 +1005,17 @@ fortifiées qui défendent l'entrée de l'unique rue de
 la ville, il fut arrêté par une charrette de foin que
 des paysans déchargeaient dans une grange. La rue
 était si étroite que le jongleur riant dut passer
-entre les roues. La chaleur était très lourde ; il
+entre les roues. La chaleur était très lourde; il
 était couvert de poussière, il avait faim, il avait
 
 la légende de la Vierge
 soif. Les auberges nombreuses pendaïent au-dessus
-de sa tête leurs alléchantes enseignes : il y avait Le
+de sa tête leurs alléchantes enseignes: il y avait Le
 Cerf qui boit, le Cœur en peine, l'Écu d'argent, la
 Harpe d'or. Pierre de Syglar passe devant, les yeux
-. baïssés, pour éviter la tentation : Ilest venu faire
+. baïssés, pour éviter la tentation: Ilest venu faire
 sa dévotion à Notre Dame, la vraie Hôtesse de la
-ville ; malappris qui n'irait pas, d'abord, s'agenouiller devant Sa Seigneurie.
+ville; malappris qui n'irait pas, d'abord, s'agenouiller devant Sa Seigneurie.
 
 Quand le jongleur entra dans l'église, il eut
 peine à se frayer un passage dans la multitude des
@@ -1024,18 +1024,18 @@ yeux levés vers la haute statue de la Vierge, qui,
 son divin fils entre les bras, dans sa robe brochée
 d'or, étincelle au fond de la nef, sur l'aute!, au
 milieu d'une forêt lumineuse de cierges. Pierre de
-Syglar, humblement, comme les autres, se mit à |
+Syglar, humblement, comme les autres, se mit à
 genoux et fit oraison. Quand il eut fini sa prière,
 l'église commençait à être déserte. La grande foule
-s'était écoulée et Le soleil à son déclin envoyait par |
-l'étroite porte ses rayons obliques sur l'image de |
-Notre Dame, faisait pâlir la lumière des cierges et ;
-sourire ses lèvres de bonté. |
+s'était écoulée et Le soleil à son déclin envoyait par
+l'étroite porte ses rayons obliques sur l'image de
+Notre Dame, faisait pâlir la lumière des cierges et;
+sourire ses lèvres de bonté.
 
 Le ménestrel sortit sa viole de la gaine de cuir,
 il se mit à vieller doucement, tandis qu'il chantait à
 mi-voix une chanson en l'honneur de Notre Dame.
-Si pure était la voix, si belle la chanson, si déli- |
+Si pure était la voix, si belle la chanson, si déli-
 cieux le son de la viole, que des pèlerins qui déjà
 
 passaient la porte revenaient vers l'autel discrè-
@@ -1053,7 +1053,7 @@ de l'autel, l'oreille appuyée contre la hampe de sa
 viole, il écoutait résonner les cordes sous la caresse
 légère de l'archet qu'il mouvait du bout de ses
 doigts fins. Sa voix semblait réveiller dans l'église
-des prières endormies : on eût dit que toutes les
+des prières endormies: on eût dit que toutes les
 prières exhalées de l'âme des pèlerins en ce jour,
 s'unissaient pour monter vers Notre Dame dans sa
 musique et dans sa chanson.
@@ -1063,35 +1063,35 @@ d'amour. Un enfant qui s'était approché de Pierre
 de Syglar, laissa tomber sa tête sur l'épaule du
 ménestrel, dans un mouvement exquis d'enfant qui
 veut dormir. Une femme embrassa un pan de son
-manteau ; des clercs, confondus dans la foule,
+manteau; des clercs, confondus dans la foule,
 admirèrent qu'un archet promené sur trois cordes et
 la plus simple des chansons, eussent plus de puissance sur les âmes que parole la plus éloquente
 
-la légende de la Vierge ;
+la légende de la Vierge;
 d'homme d'église. Le ménestrel se grise lui-même
-de sa musique et de son chant : à peine s'il voit la
+de sa musique et de son chant: à peine s'il voit la
 foule des pèlerins qui tendent l'oreille et ferment
-les yeux pour le mieux entendre ; il est hors de ce
-monde terrestre envolé ; et quand il lève les yeux
+les yeux pour le mieux entendre; il est hors de ce
+monde terrestre envolé; et quand il lève les yeux
 vers l'autel, la Vierge qu'il voit n'est pas de
 marbre, son diadème n'est pas d'or, ses yeux ne
-sont pas deux saphirs, sa robe n'est pas de vair, |
+sont pas deux saphirs, sa robe n'est pas de vair,
 d'hermine et de soie, — c'est la vraie mère de
 Dieu qui tout créa, la dame de toute courtoisie, la
 dame sans pareille et sans égale, Notre Dame
-Sainte Marie en personne qui lui sourit de ses yeux |
-! clairs, sous son diadème d'étoiles serties de rayons |
-de soleil, en sa robe ouvrée dans la douce clarté des |
-nuits, là haut, emmi la moisson tremblante des |
+Sainte Marie en personne qui lui sourit de ses yeux
+! clairs, sous son diadème d'étoiles serties de rayons
+de soleil, en sa robe ouvrée dans la douce clarté des
+nuits, haut, emmi la moisson tremblante des
 
-Insensiblement, légère comme la respiration de |
-l'enfant qui sur son épaule s'était endormi, s'acheva |
-la chanson du jongleur. Les pèlerins ouvrirent les |
+Insensiblement, légère comme la respiration de
+l'enfant qui sur son épaule s'était endormi, s'acheva
+la chanson du jongleur. Les pèlerins ouvrirent les
 yeux, étonnés d'être dans cette crypte, tous ayant
 eu, quelques minutes, l'éblouissement du Paradis.
 Pierre de Syglar, s'étant mis debout, montait les À
 degrés de l'autel, et s'inclinant humblement trois
-fois devant Notre Dame, il dit à haute voix :
+fois devant Notre Dame, il dit à haute voix:
 
 — Hé! mère du roi qui tout créa, si tu as
 témoignage de ta grâce, pour m'éclairer dans mon
@@ -1113,7 +1113,7 @@ courut la foule des pèlerins; ils crièrent d'une
 Mais un laid petit homme noir, sacristain de
 l'église et qui tirait son profit des débris de cierges
 qu'il vendait, sortit des rangs des pèlerins en se
-démenant fort et criant :
+démenant fort et criant:
 
 .— A la porte! A la porte! Boutons-le hors la
 porte. Ce gueux est un sorcier, un magicien, un
@@ -1121,8 +1121,8 @@ porte. Ce gueux est un sorcier, un magicien, un
 En même temps il prend le cierge sur la viole
 du ménestrel, hausse ses jambes torses sur un escabeau et plante le cierge dans son chandelier. La
 foule, retournée par les paroles du nain, se prend à
-douter : si le sacristain disait vrai, si ce jongleur
-n'était qu'un traître de magicien ?
+douter: si le sacristain disait vrai, si ce jongleur
+n'était qu'un traître de magicien?
 
 Des murmures hostiles circulent maintenant dans
 les rangs des pèlerins qui s'écartent de Pierre
@@ -1130,32 +1130,32 @@ les rangs des pèlerins qui s'écartent de Pierre
 la légende de la Vierge
 de Syglar avec des mouvements d'hostilité craintive.
 Pierre de Syglar sourit d'un énigmatique sourire.
-Que lui font les paroles de ce naïn ? Que lui importent les murmures? Il n'a souci de leur admiration ni de leur haine : une joie surhumaine emplit
-son cœur : Notre Dame l'a entendu, Notre Dame
+Que lui font les paroles de ce naïn? Que lui importent les murmures? Il n'a souci de leur admiration ni de leur haine: une joie surhumaine emplit
+son cœur: Notre Dame l'a entendu, Notre Dame
 lui a souri, Notre Dame lui a donné le présent
 qu'il a demandé. Des pleurs de tendresse coulent lentement sur ses joues. En son âme il prie
 Notre Dame et de sa courtoisie dévotement la
-remercie. Puis de nouveau il prend sa viole, lève |
-la tête vers Notre Dame et se met à chanter, non |
-plus une chanson de gaieté, de tendresse et d'amour, |
-mais une humble chanson de simple et de vieille |
-femme, douce et basse de ton, la chanson de l'âme |
-exaucée qui rend grâce. Et, sous l'influence du }
+remercie. Puis de nouveau il prend sa viole, lève
+la tête vers Notre Dame et se met à chanter, non
+plus une chanson de gaieté, de tendresse et d'amour,
+mais une humble chanson de simple et de vieille
+femme, douce et basse de ton, la chanson de l'âme
+exaucée qui rend grâce. Et, sous l'influence du
 chant, une émotion religieuse étreint la gorge des
-pèlerins qui disent entre eux : Cet homme qui si ;
-bien vielle, se peut-il faire qu'il soit un enchanteur ? Jamais n'avons entendu séquence ni kyrielle
+pèlerins qui disent entre eux: Cet homme qui si;
+bien vielle, se peut-il faire qu'il soit un enchanteur? Jamais n'avons entendu séquence ni kyrielle
 qui fût belle tant.
 Le cierge répond à leur inquiétude. Tout droit,
 tout éclatant comme une épée dont la pointe serait
-une flamme, le cierge s'élève au-dessus de la moisson |
-des cierges et redescend se poser sur les cordes ;
+une flamme, le cierge s'élève au-dessus de la moisson
+des cierges et redescend se poser sur les cordes;
 encore frémissantes de la viole de Pierre de Syglar.
-| .
+.
 
-Le sacristain forcené bondit et saisit le cierge :
+Le sacristain forcené bondit et saisit le cierge:
 
 — Non, jamais, s'écrie-t-il de sa voix aigre,
-on n'a vu tel sortilège. A mort! A mort, l'enchanteur!
+on n'a tel sortilège. A mort! A mort, l'enchanteur!
 
 La foule s'indigne et gronde contre ce laïd petit
 homme qui est remonté sur son escabeau et qui
@@ -1166,25 +1166,25 @@ et, s'adressant à Pierre, toujours à genoux, il lui
 
 — Sache bien que Symon Magus, le prince des
 enchanteurs, n'était rien auprès de toi si tu fais
-redescendre ce cierge !
+redescendre ce cierge!
 
 Par métier le jongleur est un homme sage et ami
-du rire. Et Pierre de Syglar, dans sa vie, avait eu
+du rire. Et Pierre de Syglar, dans sa vie, avait
 tant et tant d'aventures, que pareille histoire ne
 pouvait pas l'émouvoir. Il se mit à rire tranquillement de la fureur du petit homme, dont la colère
 
-— Tu peux rire, magicien du diable ! nous verrons
+— Tu peux rire, magicien du diable! nous verrons
 si ton maître t'écoutera encore une fois.
 
 Pierre de Syglar se remit à vieller et à chanter
 — pour la tierce fois, une gaie chanson d'aube et
-de printemps : et les pèlerins, dans l'église devenue
+de printemps: et les pèlerins, dans l'église devenue
 toute noire, pensaient être dans la campagne, un
 matin d'avril, quand les hirondelles montent en
 
 la légende de la Vierge
 chantant vers le soleil. Le ménestrel disait de sa
-voix jeune et sonore :
+voix jeune et sonore:
 
 — Marie, étoile de la mer, joie des cieux, espé-
 rance du monde, clarté de l'aube, nef de salut,
@@ -1205,35 +1205,35 @@ pleure, qui rit, et qui prie. Jamais, jamais, les pèlerins n'ont oui pareille m
 
 Ce n'est plus une viole qu'ils entendent, c'est le
 
-cœur du jongleur qui chante et vielle si haut, si fort, |
-\ que sa musique monte à Dieu. Et pour la troisième
-fois, flamboyant comme l'épée de l'ange Gabriel, le |
+cœur du jongleur qui chante et vielle si haut, si fort,
+que sa musique monte à Dieu. Et pour la troisième
+fois, flamboyant comme l'épée de l'ange Gabriel, le
 cierge descend et se pose sur la viole de Pierre de
 
 Il y avait à Rome un jeune clerc patricien, de à
 famille sénatoriale, nommé Césaire, dont l'âme fort
 pieuse était aux prises avec un tempérament très
-charnel : une dure lutte où le malin finissait toujours de
+charnel: une dure lutte où le malin finissait toujours de
 par triompher.
 Il n'y avait guère de Romaine élégante ou belle
 qu'il n'eût aimée. Et maintenant il avait entrepris
-de séduire la femme de son frère : l'austère Domitilla.
-Longtemps elle résista : mais il usa près d'elle
+de séduire la femme de son frère: l'austère Domitilla.
+Longtemps elle résista: mais il usa près d'elle
 des ruses que lui suggéraient ses expériences
-d'amour : tant qu'elle devint folle de lui et que
+d'amour: tant qu'elle devint folle de lui et que
 tous les deux commencèrent de vivre, en secret,
-une vie criminelle : elle, abandonnée sans remords,
+une vie criminelle: elle, abandonnée sans remords,
 sans regret à sa passion, lui impuissant à étoufler
 la voix de son âme. Souvent il fut tenté de fuir,
 de mettre entre sa maîtresse et lui des fleuves et
-des montagnes : jamais il n'eut la force de passer
+des montagnes: jamais il n'eut la force de passer
 seulement la porte de la ville. Toutes les femmes
 
 la légende de la Vierge
 
 qu'il avait possédées, il les avait aimées un temps
 très court, et puis quittées gaiement pour d'auires.
-Or il se sentait lié à la femme de son frère par un
+il se sentait lié à la femme de son frère par un
 sentiment nouveau, qui faisait que nulle autre
 femme n'attirait ses yeux et qu'il était triste à
 mourir quand il n'était pas auprès d'elle.
@@ -1247,109 +1247,109 @@ longtemps, parut sourde à sa voix.
 
 Sa maîtresse, en qui l'amour avait éteint toute
 
-| piété, le raillait de ses prières :
+piété, le raillait de ses prières:
 
-— Aime-moi, aimons-nous, lui disait-elle. Pourquoi toujours te lamenter ? Ce qui est arrivé,
+— Aime-moi, aimons-nous, lui disait-elle. Pourquoi toujours te lamenter? Ce qui est arrivé,
 n'est-ce donc pas toi qui l'as voulu?
 
-Césaire ne répondait rien : sa maîtresse disait
+Césaire ne répondait rien: sa maîtresse disait
 vrai. Il l'avait décidée, et maintenant il se sentait
 lié à elle par des liens que nulle force humaine ne
 
-Un matin qu'il s'était endormi sur un banc de |
-pierre, dans l'atrium, torturé par la jalousie, le |
+Un matin qu'il s'était endormi sur un banc de
+pierre, dans l'atrium, torturé par la jalousie, le
 remords, le désir et la haine, après une nuit de veille
 devant la chambre nuptiale de Domitilla et de son
 frère, il vit dans un nimbe couleur d'outre-mer, la À
-forme céleste de Notre Dame qui lui dit :
+forme céleste de Notre Dame qui lui dit:
 
 — Maintes fois tu m'as honorée et mainte fois tu
 
 ta chair. Il sera fait comme tu le veux, car tu as de
 la franchise. Tu seras chaste. A dater de ce jour tu
 ne connaîtras plus la tristesse de la volupté. Même
-je veux t'élever à un rang merveilleux : je ferai
+je veux t'élever à un rang merveilleux: je ferai
 de toi un apôtre.
 
 Puis la douce mère de Notre Seigneur quitta
-Césaire. À ce moment, Domitilla ouvrit sa porte ;
+Césaire. À ce moment, Domitilla ouvrit sa porte;
 elle parut sur le seuil. Césaire s'étonna de la voir
-sans la désirer ; il ne se sentait plus pour elle
+sans la désirer; il ne se sentait plus pour elle
 d'amour, mais seulement une tendresse fraternelle
 et beaucoup de pitié. Des larmes coulèrent de ses
-joues. Elle s''approcha de lui et lui demanda :
+joues. Elle s''approcha de lui et lui demanda:
 
-— Pourquoi pleurez-vous ?
+— Pourquoi pleurez-vous?
 
 — Je pleure sur vous et sur moi, répondit-il,
 parce que nous avons vécu dans le péché.
 
-Elle dit avec un sourire amer :
+Elle dit avec un sourire amer:
 
 — Ce n'est pas encore le temps de pleurer. Nous
 aurons l'éternité pour cela.
 
 Elle voulut passer ses bras autour du cou de son
-amant : mais celui-ci la repoussa doucement, se
+amant: mais celui-ci la repoussa doucement, se
 leva, lui dit adieu, et se dirigea vers la porte.
 Elle le suivit toute tremblante et tenta de le retenir.
 Penchée sur lui, elle lui disait d'une voix basse,
 
-— Où t'en vas-tu ? Je ne te cherchais pas. C'est
-toi qui m'as ensorcelée !
+— Où t'en vas-tu? Je ne te cherchais pas. C'est
+toi qui m'as ensorcelée!
 
 la légende de la Vierge
 
 Le frère de Césaire parut dans l'atrium. Domitilla
 essuya vivement ses yeux. Quand son frère fut
 près de lui, Césaire se mit à ses genoux et lui baisa
-les pieds. Le mari de Domitilla étonné lui de- |
+les pieds. Le mari de Domitilla étonné lui de-
 
-— Ne voyez-vous pas qu'il est fou. |
+— Ne voyez-vous pas qu'il est fou.
 
-Un mendiant était à la porte de la maison : |
+Un mendiant était à la porte de la maison:
 Césaire échangea ses habits contre les guenilles.
 
 Il sortit de Rome et marcha droit devant lui, trois
 jours et trois nuits dans la campagne déserte.
 
-Une nuit, mourant de faim et de froid, il fut attiré |
-sur le sommet d'une montagne, vers un monastère, |
+Une nuit, mourant de faim et de froid, il fut attiré
+sur le sommet d'une montagne, vers un monastère,
 par le tintement d'une cloche.
 
 Le prieur accueillit bienveillamment le pèlerin,
 qui lui fit confession de ses péchés. Césaire resta
 dans le couvent et devint moine.
 
-répandue au loin, plusieurs papes, dans des affaires ;
+répandue au loin, plusieurs papes, dans des affaires;
 difficiles, lui avaient envoyé des messagers pour
-lui demander conseil. Dans un temps où la discipline ecclésiastique se relâchait, il fut désigné par \
-le pape Pie II comme étant le plus digne d'être son
+lui demander conseil. Dans un temps où la discipline ecclésiastique se relâchait, il fut désigné par
+le pape Pie comme étant le plus digne d'être son
 successeur dans la chaire de saint Pierre.
 
-Césaire apprit avec tristesse la nouvelle que le ?
+Césaire apprit avec tristesse la nouvelle que le?
 conclave avait ratifié les vœux du pape défunt.
 
 Quand il dut quitter son couvent, le cœur lui
-défaillit ; il avait été si heureux dans cette haute et
+défaillit; il avait été si heureux dans cette haute et
 solitaire maison. Maintenant il lui fallait rentrer
 .. dans Rome, dans cette cité qu'il avait scandalisée
 par sa vie.
 
-Qu'était devenue Domitilla et son frère : il ne le
+Qu'était devenue Domitilla et son frère: il ne le
 savait pas. Jamais il ne s'était informé d'eux. Eux,
 ne s'étaient jamais informés de lui. A mesure qu'il
 approchaït de la ville éternelle, le souvenir de son
 ancien péché revenait plus clair à sa mémoire.
-Que serait-il devenu sans le secours de la Vierge ?
+Que serait-il devenu sans le secours de la Vierge?
 Sans doute il se serait enfoncé toujours plus avant
-dans le péché ! Peut-être il aurait perdu jusqu'au
+dans le péché! Peut-être il aurait perdu jusqu'au
 sentiment de son ignominie.
 
-Domitilla avait-elle fait pénitence ? Il avait tant
-prié pour elle ! A moins peut-être... La pensée que
+Domitilla avait-elle fait pénitence? Il avait tant
+prié pour elle! A moins peut-être... La pensée que
 Domitilla pouvait être morte se présenta à son
-esprit : il ne s'aperçut pas qu'il écartait vivement
+esprit: il ne s'aperçut pas qu'il écartait vivement
 de lui cette pensée.
 
 Le chemin suivi par sa mule était le même que
@@ -1363,35 +1363,35 @@ Alors la passion encore mal éteinte brüûlait son
 luxure, l'amour et la terreur de la pénitence.
 
 la légende de la Vierge
-Maintenant la paix était en lui : sans regrets, sans
+Maintenant la paix était en lui: sans regrets, sans
 désir, sans tristesse, sans joie. Il s'abandonnaït à
 Dieu comme un bâton dans la main du voyageur.
 
 La plaine désolée qui entoure Rome, avec ses
 herbes desséchées et roussies par le soleil, étincelait
 comme un étang doré. L'air vibraït silencieusement
-autour de la caravane qui escortait Césaire. Au |
+autour de la caravane qui escortait Césaire. Au
 loin des bœufs, par un effet de mirage, semblaient
 des bêtes apocalyptiques qui menaçaient de leurs
-cornes démesurées les hautes murailles de Latran. |
+cornes démesurées les hautes murailles de Latran.
 
-Césaire fut reçu dans Rome avec le cérémonial |
+Césaire fut reçu dans Rome avec le cérémonial
 accoutumé. Devenu le pape Léon VIL il continua
 
-| sur le siège de saint Pierre sa vie d'austérité et de |
-prières, mettant tout son cœur à aimer et servir la |
-reine du Paradis. Mais le diable, qui est tant subtil, |
-qui par la femme a induit au péché Adam, David |
-et Salomon, n'avait pas renoncé à damner son âme. |
+sur le siège de saint Pierre sa vie d'austérité et de
+prières, mettant tout son cœur à aimer et servir la
+reine du Paradis. Mais le diable, qui est tant subtil,
+qui par la femme a induit au péché Adam, David
+et Salomon, n'avait pas renoncé à damner son âme.
 
-Le saint jour de l''Assomption, notre Seigneur le |
-pape Léon célébrait l'office divin ; il donnaït la |
+Le saint jour de l''Assomption, notre Seigneur le
+pape Léon célébrait l'office divin; il donnaït la
 communion aux fidèles qui, penchés sür la Sainte
-Table, ne relevaient la tête que pour recevoir l'hostie. Soudain le pape Léon se troubla : dans le visage qui se levait vers lui, il reconnut Domitille,
+Table, ne relevaient la tête que pour recevoir l'hostie. Soudain le pape Léon se troubla: dans le visage qui se levait vers lui, il reconnut Domitille,
 dont les yeux brülaient d'une flamme pécheresse.
 
-Au moment où le pape posait l'hostie dans sa bouche, elle baisa de ses lèvres, jadis tant aimées, le ;
-bout de ses doigts. Ce baiser ralluma l'ardeur de ;
+Au moment où le pape posait l'hostie dans sa bouche, elle baisa de ses lèvres, jadis tant aimées, le;
+bout de ses doigts. Ce baiser ralluma l'ardeur de;
 
 l'ancien amour, le pape sentit couler du feu dans ses
 veines, le souvenir de toutes les jouissances d'autrefois passa dans son esprit!
@@ -1399,23 +1399,23 @@ veines, le souvenir de toutes les jouissances d'autrefois passa dans son esprit!
 Tout étourdi, il remonta vers l'autel appuyé sur
 ses cardinaux.
 Domitille n'avait pas vieilli. Elle avait conservé,
-par miracle, sa beauté et une merveilleuse jeunesse :
-_ même elle était plus belle, maintenant que tant
+par miracle, sa beauté et une merveilleuse jeunesse:
+même elle était plus belle, maintenant que tant
 d'années avaient glissé sur elle. Ses traits étaient
-devenus plus nerveux et plus fins ; ses yeux plus
-profonds ; ses lèvres plus ardentes ; ses cheveux où
+devenus plus nerveux et plus fins; ses yeux plus
+profonds; ses lèvres plus ardentes; ses cheveux où
 il avait noyé sa tête roulaient sur sa nuque leurs
 ondes noires, où l'âge n'avait pas filtré un rayon
 blanc. Les yeux fermés, immobile devant l'autel,
 Césaire revoyait Domitille, telle qu'il l'avait quittée, telle qu'il la retrouvait: il n'avaït ni la force, ni
 le désir d'écarter l'obsession de sa beauté. Le parfum de son corps l'enveloppait comme une fumée
-d'encens ; il sentait sur sa nuque, sur son front,
-dans ses cheveux, la caresse de ses doigts fins ;
+d'encens; il sentait sur sa nuque, sur son front,
+dans ses cheveux, la caresse de ses doigts fins;
 sur sa main la brûlure de son baiser. Une envie
 de se retourner, d'aller à Domitille, de la prendre
 dans ses bras, l'envahissait, irrésistible comme
-le sommeil... Il ouvrit lentement les yeux : audessus de l'autel, devant les cierges, une reine
-passait de blanc vêtue ; un diadème de saphirs
+le sommeil... Il ouvrit lentement les yeux: audessus de l'autel, devant les cierges, une reine
+passait de blanc vêtue; un diadème de saphirs
 posé sur ses cheveux d'or fin. Elle passait si diaFE
 
 la légende de la Vierge
@@ -1431,7 +1431,7 @@ il eut grande douleur de son péché et il se mit à
 
 Quand la Vierge vit qu'il pleurait, elle repassa
 lentement devant lui; arrêtant sur lui ses yeux
-clairs ; son regard disait au pape: courage! aïe
+clairs; son regard disait au pape: courage! aïe
 
 confiance en ma miséricorde.
 
@@ -1439,18 +1439,18 @@ Notre Seigneur le pape Léon acheva l'office divin
 comme il put. Puis il revint dans son palais, commanda à ses cardinaux de le laisser seul et fit venir
 un de ses gardes les plus dévoués. Quand le soldat
 fut entré, le pape posa sa main sur le coin d'une
-table de bois et dit :
+table de bois et dit:
 
 — Sors ton épée et coupe-moi le poing.
 
-Le soldat recula épouvanté :
+Le soldat recula épouvanté:
 
-— Seigneur, dit-il, que m'ordonnez-vous ?
+— Seigneur, dit-il, que m'ordonnez-vous?
 
-— Coupe-moi le poing, répéta impérieusement le |
+— Coupe-moi le poing, répéta impérieusement le
 
-Alors le garde tira son épée et d'un seul coup, |
-il trancha le poing. La main tomba. |
+Alors le garde tira son épée et d'un seul coup,
+il trancha le poing. La main tomba.
 
 Si ta main te scandalise, coupe-la.
 
@@ -1458,9 +1458,9 @@ Le pape Léon, ayant fait oindre son bras de
 
 baume et de myrrhe, fit savoir par la ville qu'il ne
 pouvait se lever, étant malade. Les nobles romains
-venaient souvent le visiter et lui apporter du réconfort. La plaie s'était cicatrisée ; le pape reprit bonne
+venaient souvent le visiter et lui apporter du réconfort. La plaie s'était cicatrisée; le pape reprit bonne
 mine. Mais il restait au lit étendu. Les Romains le
-suppliaient de se lever pour célébrer l'office divin. |
+suppliaient de se lever pour célébrer l'office divin.
 Mais le pape ne voulait rien entendre. Quand on
 sut dans Rome que le pape ne voulait plus chanter
 la messe, une rumeur menaçante courut la ville.
@@ -1471,46 +1471,46 @@ pour être le chef de son Église, jamais scandale
 pareil ne s'était vu. Tout bas on murmurait le mot:
 
 Les nobles de Rome se décidèrent à se réunir.
-L'un d'eux se leva et dit :
+L'un d'eux se leva et dit:
 
 — Notre Seigneur le Pape Léon, nous ne voulons
-pas l'accuser ; mais nous nous étonnons grandement que tu ne daignes oflicier. Et nous te demandons humblement pourquoi.
+pas l'accuser; mais nous nous étonnons grandement que tu ne daignes oflicier. Et nous te demandons humblement pourquoi.
 
-Le pape ne sait que répondre ; il est triste en son
+Le pape ne sait que répondre; il est triste en son
 cœur. À voix basse il implore l'aide de la douce
-vierge Marie. Au ciel, la reine de miséricorde entend sa prière ; elle descend jusqu'au lit dans un
+vierge Marie. Au ciel, la reine de miséricorde entend sa prière; elle descend jusqu'au lit dans un
 rayon de soleil. Elle passe au-dessus des Romains
 
 la légende de la Vierge
 Le Pape tremblant la voit qui vient à lui. Elle
-s'approche de son oreille et lui dit :
+s'approche de son oreille et lui dit:
 — Parce que tu n'as cessé de me servir et de
 m'honorer; parce que tu as ta chasteté bien gardée;
 parce que tu te fis couper le poing droit exécutant
-ainsi l'ordre de mon fils avec simplicité ; parce que
+ainsi l'ordre de mon fils avec simplicité; parce que
 tu as perdu ta main charnelle je te donnerai la
 main de ton corps céleste.
 Le pape alors sortit de son manteau son bras qu'il
-y tenait caché, vit qu'une main avait repoussé à |
-son poignet mutilé, et il connut que cette main était |
-I se leva, étendit des deux doigts sur le Concile |
-un geste paisible de bénédiction ; et sans un mot
+y tenait caché, vit qu'une main avait repoussé à
+son poignet mutilé, et il connut que cette main était
+se leva, étendit des deux doigts sur le Concile
+un geste paisible de bénédiction; et sans un mot
 se rendit à l'église de Latran célébrer l'office divin.
 
 Le poème suivant n'est que la traduction d'une
-gwerz en breton de Cornouaïilles ; ou plutôt, comme
-je ne sais pas le breton, c'en est une traduction en \
+gwerz en breton de Cornouaïilles; ou plutôt, comme
+je ne sais pas le breton, c'en est une traduction en
 prose que j'ai tournée en vers. Je l'ai fait aussi exacte- À
-ment que j'ai pu : j'ai observé le rythme ét le nombre
-des strophes de mon texte, jusque là que j'ai respecté
-les deux dernières, que j'eusse retranchées sans doute :
+ment que j'ai: j'ai observé le rythme le nombre
+des strophes de mon texte, jusque que j'ai respecté
+les deux dernières, que j'eusse retranchées sans doute:
 si j'avais écrit d'invention; j'en ai rendu de mon mieux
-le mouvement rude et sauvage, et conservé, de ses |
-idiotismes, tout ce que j'en ai pu distinguer dans la |
+le mouvement rude et sauvage, et conservé, de ses
+idiotismes, tout ce que j'en ai distinguer dans la
 version française. Je ne me suis permis qu'un seul changement dars l'ordre des vers, au cinquième morceau,
-dont voici la première sirophe : |
+dont voici la première sirophe:
 « Qu'as-tu vu, marin, sur la mer?
-« — Une barque sans rames et sans voiles; et sur ;
+« — Une barque sans rames et sans voiles; et sur;
 l'arrière, pour pilote, un ange debout les ailes
 J'ai cru mieux faire de réserver les vers 3 et 4 pour à
 le dernier trait.
@@ -1519,13 +1519,13 @@ d'un leng séjour en Bretagne, je crus avoir affaire à
 une œuvre populaire. Je l'ai trouvée à la suite de la
 -légende de saint Budoc, publiée par Albert Le Grand,
 de Morlaix, en 1640, dans la nouvelle édition que les
-chanoïnes de Quimper ont donnée de son grand ouvrage .
-(La vie des Saints de la Bretagne Armorique, in
+chanoïnes de Quimper ont donnée de son grand ouvrage.
+(La vie des Saints de la Bretagne Armorique,
 
-quarlo, cinquième édition, 1901, page 645). Is l'y donnent pour l « œuvre d'un poète anonyme », et l'ont
+quarlo, cinquième édition, 1901, page 645). l'y donnent pour « œuvre d'un poète anonyme et l'ont
 extraite du Barzaz-Breiz, où elle se lit en effet (neuvième édition, page 490). J'ignorais alors tout le travail
 de critique qui s'est fait depuis trente ans sur le
-« macphersonnage » de Hersart de la Villemarqué : on
+« macphersonnage » de Hersart de la Villemarqué: on
 peut lire sur la composition de ces pastiches ce qu'en
 page 284), et le petit travail qu'il a consacré au BarzazBreiz (Bouillon, éditeur).
 
@@ -1533,11 +1533,11 @@ Je ne saurais toutefois déterminer dans quelle mesure
 mon original breton est un faux, et jusqu'à quel point
 la Villemarqué a remanié ou fabriqué de toutes pièces
 son document. Mais tout ceci suflit pour la conscience
-scientifique : car le poème ne laisse pas d'être beau, et
+scientifique: car le poème ne laisse pas d'être beau, et
 le plus diligent des bretonnants d'aujourd'hui, M. Anatole Le Braz, m'a dit toute l'estime qu'il en fait.
 
 Il ne me reste qu'à m'excuser des libertés que j'ai
-prises dans mes vers avec la prosodie : elles se réduisent à la négligence de la fameuse règle « que le singulier ne doit pas rimer avec le pluriel ». C'est une règle
+prises dans mes vers avec la prosodie: elles se réduisent à la négligence de la fameuse règle « que le singulier ne doit pas rimer avec le pluriel ». C'est une règle
 absurde, surannée, et dont l'énoncé même est faux,
 puisque matois rime fort bien avec toits qui est pluriel,
 et non avec foi qui est singulier, Brutus avec vertus
@@ -1548,7 +1548,7 @@ vers moins bons pour manquer à cette règle, je ne travaille de tout mon cœur 
 — Pécheurs si ces vagues décombres
 Furent bien Armor, nul de vous
 N'a-t-il vu, vers l'heure des ombres,
-— Monsieur nous l'avons vue : où penche
+— Monsieur nous l'avons vue: où penche
 Ce mur noir fouetté par le grain.
 Front pale, et l'air pourtant serein.
 Un jour d'août arrive une troupe
@@ -1557,125 +1557,125 @@ On voit des housses sur la croupe
 Des chevaux gris harnachés d'or.
 
 cahier de Noël
-Descend l'homme de l'échauguette : es
-— Sire ils sont là de manteaux bleus à
-Une douzaine, dit la guette ;
-Faut-il ouvrir? — Ouvre parbleu !
+Descend l'homme de l'échauguette: es
+— Sire ils sont de manteaux bleus à
+Une douzaine, dit la guette;
+Faut-il ouvrir? — Ouvre parbleu!
 Faïs dresser dans ma salle haute
 Une table pour eux et moi.
-C'est de Dieu que viennent les hôtes :
-Quiconque est roi reçoive en roi! : VA
-— Seigneur notre roi nous envoie |
-Vous demander un cher trésor : |
+C'est de Dieu que viennent les hôtes:
+Quiconque est roi reçoive en roi!:
+— Seigneur notre roi nous envoie
+Vous demander un cher trésor:
 Pour son fils ravir votre joie,
 Votre fille dame Azénor.
 — Ab! Messieurs de tout mon cœur. Elle, à
-Elle est le regard de mes yeux. ;
+Elle est le regard de mes yeux.;
 On le dit beau, ma fille est belle
-Un vrai couple de rois, messieurs | !
+Un vrai couple de rois, messieurs!
 La noce dura deux semaines, À
-Officiait l'évêque d'Ys ;
-Quinze jours la danse se mène :
+Officiait l'évêque d'Ys;
+Quinze jours la danse se mène:
 Des harpes, comme en Paradis.
 
 — Maintenant veux-tu, ma mignonne,
-Veux-tu nous en venir chez nous ?
-— Seigneur, que mon seigneur ordonne :
+Veux-tu nous en venir chez nous?
+— Seigneur, que mon seigneur ordonne:
 Où vit mon roi, vivre m'est doux.
 Quand elle vit la belle fille,
 La belle-mère en étrangla.
-— C'est fini ! Toute la famille
-| Va choyer ce béjaune-là.
-Tout nouveau tout beau. Bah qu'y faire ?
-Ces jeunesses... Malheur aux vieux !
+— C'est fini! Toute la famille
+choyer ce béjaune-là.
+Tout nouveau tout beau. Bah qu'y faire?
+Ces jeunesses... Malheur aux vieux!
 Les clefs neuves on les préfère.
 Pourtant les vieilles ouvrent mieux.
-Huit mois d'amour ! à temps jaloux ! —
-La vieille dit : C'est bon, Bretagne,
-De garder la lune du loup ?
-Nigaud, n'auras-tu pas d'oreilles <
-Si tu n'as pas d'yeux ? Casse-cou,
-Sot ! Le renard pille tes treilles,
+Huit mois d'amour! à temps jaloux! —
+La vieille dit: C'est bon, Bretagne,
+De garder la lune du loup?
+Nigaud, n'auras-tu pas d'oreilles
+Si tu n'as pas d'yeux? Casse-cou,
+Sot! Le renard pille tes treilles,
 Et ton nid loge le coucou.
 
 cahier de Noël
-— Merci madame. Ah ! fini d'elle.
-La perfide ! Gueuse en prison !
+— Merci madame. Ah! fini d'elle.
+La perfide! Gueuse en prison!
 Seules les mères sont fidèles.
-Dans trois jours au feu ce poison !
+Dans trois jours au feu ce poison!
 Quand le vieux roi sut la nouvelle,
-Il pleura, — pleura ! pauvre roi :
-— Vieil imprudent ! fou sans cervelle !
-Malheur à moi ! malheur à moi!
-A l'heure où rentre la flottille |
-Des pêcheurs par les soirs sereins :
-Ou vit-elle encore, marins ?
+Il pleura, — pleura! pauvre roi:
+— Vieil imprudent! fou sans cervelle!
+Malheur à moi! malheur à moi!
+A l'heure où rentre la flottille
+Des pêcheurs par les soirs sereins:
+Ou vit-elle encore, marins?
 — Elle n'est pas brûlée encore,
 Seigneur, on la brûle demain.
 Dans sa tour, captive sonore,
 Nous l'entendimes en chemin.
 Elle chantait sur la presqu'île,
 Dans l'ombre, oiseau mélodieux.
-Elle chantait un air tranquille :
-— Pitié pour eux ! pitié mon Dieu!
+Elle chantait un air tranquille:
+— Pitié pour eux! pitié mon Dieu!
 
 Azénor se rend vers les bûches
 En chemise longue et pieds nus.
-L'essaim d'or vibre autour des ruches :
+L'essaim d'or vibre autour des ruches:
 Tels ses beaux cheveux ingénus.
 La foule pour la voir se hausse,
-On les entend bas se parler : |
-— C'est un crime, une femme grosse !
+On les entend bas se parler:
+— C'est un crime, une femme grosse!
 Un grand crime de la brûler.
-Le peuple pleure : Ah ! pauvre père !
-Mais la chienne ardente après eux :
-— C'est œuvre pie, une vipère !
+Le peuple pleure: Ah! pauvre père!
+Mais la chienne ardente après eux:
+— C'est œuvre pie, une vipère!
 De l'écraser avec ses œufs.
-Hobhé ! souffleurs, ho ! de l'haleine !
-Hohé ! soufflons, ho ! des poumons.
+Hobhé! souffleurs,! de l'haleine!
+Hohé! soufflons,! des poumons.
 Souflions ce feu comme démons.
 J'ai beau soufiler, j'y perds ma peine.
-Soufllez, soufllez. Qu'a-t-il ce feu ?
+Soufllez, soufllez. Qu'a-t-il ce feu?
 C'est du bois sec, monsieur, du frêne,
 Qu'est-ce qu'il a ce bois, bon Dieu?
 
 cahier de Noël
 — C'est vrai, pas même une étincelle,
 Fait le juge de Goello;
-Ce bois, démon, tu l'ensorcelles :
-Ah ! tu ne brûles pas : à l'eau !
+Ce bois, démon, tu l'ensorcelles:
+Ah! tu ne brûles pas: à l'eau!
 — Un canot sur la mer, regarde
-Sans mât, sans rame, infortuné ! :
+Sans mât, sans rame, infortuné!:
 IL porte sur la mer hagarde
 , Une femme et son nouveau-né.
 Et la mère sur cette tombe à
-L'allaite, pauvre petit ver, : "0
+L'allaite, pauvre petit ver,: "0
 Suspendu, comme une colombe
-Au bord d'une conque de mer. |
+Au bord d'une conque de mer.
 Écoutez! elle chante. Etrange
 Sur la mer sa voix retentit
-— Dors, mon amour! va dors, pauvre ange!
+— Dors, mon amour! dors, pauvre ange!
 Fais dodo, mon pauvre petit.
-Que ton père te vit si frêle !.… *
-Mais ton père est perdu, chétif. %
-Or son ange, droit derrière elle, de
+Que ton père te vit si frêle!.…
+Mais ton père est perdu, chétif.
+son ange, droit derrière elle, de
 Pilotait des aïles l'esquif.
 
 Sur Armor plane une épouvante.
 Au pied des murs pleins de rumeur
 Les hêtres que l'ombre âpre évente
-Parlent ! La vieille reine meurt.
+Parlent! La vieille reine meurt.
 — Mon fils! l'enfer s'ouvre. Ah torture.
-Dieu ! l'affreux secret m'étouffait.
+Dieu! l'affreux secret m'étouffait.
 Idiot, ta femme était pure.
-Qu''ai-je fait, hélas ! qu'ai-je fait ?
+Qu''ai-je fait, hélas! qu'ai-je fait?
 Alors comme un hideux reptile,
 Sa face, orbe terreux et brut,
 Crache une langue à double style,
 Qui la piquant, elle mourut.
 Aussitôt s'en court le crédule.
 Sept ans la mer, du sud au nord,
-| Flot à flot, verte ou bleue, ondule
+Flot à flot, verte ou bleue, ondule
 Sous la nef quêtant Azénor.
 Dans tous les ports, Chypre, Surate,
 Rome, désir du pèlerin,
@@ -1684,36 +1684,36 @@ Parut le pilote chagrin.
 
 : cahier de Noël SRE
 Tant qu'il aborde à la grande île.
-Un enfant gréait, doux minois, .
+Un enfant gréait, doux minois,.
 Au bord d'une grève d'idylle,
 D'un fil la coque d'une noix.
 Blond, les yeux bleus, — les yeux des vagues,
 Les yeux d'Azénor, dirait-on
 Et voilà que des larmes vagues
 Germent dans l'âme du Breton.
-— Ta maman, mignon, que fait-elle ?
+— Ta maman, mignon, que fait-elle?
 — C'est laveuse, monsieur, qu'elle est.
 
 Voilà son battoir qui martèle À
 La lessive au bord du galet.
-— Et ton père, enfant ? — Chut! mon père
-C'est Dieu. Voilà, c'est un secret : à
+— Et ton père, enfant? — Chut! mon père
+C'est Dieu. Voilà, c'est un secret: à
 L'autre est mort. Mais il faut se taire,
-Voyez-vous : maman pleurerait. À
+Voyez-vous: maman pleurerait. À
 Et l'homme dont la gorge anhèle
-Courait : et l'enfant caressant
+Courait: et l'enfant caressant
 Avait pris la main paternelle,
 Et dans leurs mains bouillaït leur sang.
 
-Maman ! maman ! c'est lui ! regarde,
-| Papa que nous avions perdu !
+Maman! maman! c'est lui! regarde,
+Papa que nous avions perdu!
 
 — Gens de mer, gloire à Dieu! Dieu garde
 
-Le père à son enfant rendu !
+Le père à son enfant rendu!
 
 Jusqu'en Armor leur fit cortège
 
 Une bande d'anges chanteurs.
 — Ainsi la Trinité protège
-La voile des navigateurs !
+La voile des navigateurs!

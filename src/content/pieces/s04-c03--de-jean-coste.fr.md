@@ -7,18 +7,18 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 20302
 ---
-_ 8, rue de la Sorbonne, au rez-de-chaussée
+8, rue de la Sorbonne, au rez-de-chaussée
 
-IT ANR Pour savoir ce que sont les Cahiers de la Quinzaine,
-Re il suffit d'envoyer un mandat de trois francs cinquante ss
-à M. André Bourgeois, administrateur des ca iers,
-_ 8, rue de la Sorbonne, Paris. On recevra en spécü nens :
-# : six cahiers de la deuxième et de la troisième série. EN :
+ANR Pour savoir ce que sont les Cahiers de la Quinzaine,
+il suffit d'envoyer un mandat de trois francs cinquante
+à M. André Bourgeois, administrateur des iers,
+8, rue de la Sorbonne, Paris. On recevra en spécü nens:
+: six cahiers de la deuxième et de la troisième série. EN:
 
 Ce qui fait que je n'avais pas de la joie de ce que les
 gendarmes embarquaient les sœurs en troisième, c'est
 que j'avais reçu un peu avant le commencement des
-vacances la lettre suivante :
+vacances la lettre suivante:
 
 Montée de Charente
 gérant des Cahiers de la Quinzaine
@@ -48,19 +48,19 @@ troisième cahier de la quatrième série
 deviner que nous vivons étroitement. L'arrivée d'un nouvel
 enfant, la perspective des dépenses prochaines, qui vont
 être si lourdes à notre petite bourse, nous fait désirer de
-travailler un peu plus afin d'augmenter nos ressources. Or
+travailler un peu plus afin d'augmenter nos ressources.
 il nous est bien diflicile de trouver, dans la campagne où
 nous sommes, des occupations supplémentaires.
 
 J'ai pensé que peut-être vous pourriez nous procurer
-quelque travail de plume : adresses à faire, manuscrits à
+quelque travail de plume: adresses à faire, manuscrits à
 copier, etc. J'espère n'avoir pas trop présumé de votre
 obligeance; je pense que vous voudrez être assez bon pour
 me répondre. Puisse votre réponse m'apporter une bonne
 nouvelle, je vous serai infiniment reconnaissante! Je prends
 mes vacances le 2 août; j'aurai un mois et demide loisirs et
 
-, je serai si heureuse de pouvoir les employer utilement !
+, je serai si heureuse de pouvoir les employer utilement!
 
 : Daignez agréer, monsieur, avec mes excuses pour la peine
 que je vais vous causer, l'expression de mes remerciements
@@ -81,38 +81,38 @@ nous serons heureux d'établir la communication. Écrire
 Cette lettre nous parvint quelques jours avant le
 commencement des vacances. Nous recevons un assez
 
-4 grand nombre de lettres écrites par des instituteurs ;
+4 grand nombre de lettres écrites par des instituteurs;
 ; j'aime cette écriture soigneuse, régulière, grammaticale, presque toujours modeste, calme, et déjà conforme à la typographie; ce papier écolier; cette encre
 violette, qui sert à corriger les devoirs.
 
-Tout y était, dans cette lettre : d'abord la répartition
+Tout y était, dans cette lettre: d'abord la répartition
 des genres entre la Ligue française pour la défense des
-droits de l'homme et du citoyen et les cahiers ; la Ligue,
+droits de l'homme et du citoyen et les cahiers; la Ligue,
 
 . dont on fait partie; les cahiers, qu'on lit; la Ligue,
 chargée de préparer les cérémonies des nouveaux
-cultes : les cahiers, à qui on s'adresse pour demander
+cultes: les cahiers, à qui on s'adresse pour demander
 du travail.
 
 Puis cette idée, cette illusion des pauvres gens que
 les cahiers sont déjà une importante publication, dont
 je suis Le gérant important, que je suis en relation avec
 
-| beaucoup d'hommes de lettres, de journalistes, d'éditeurs, de libraires, et qu'en outre les cahiers ont un
+beaucoup d'hommes de lettres, de journalistes, d'éditeurs, de libraires, et qu'en outre les cahiers ont un
 À esprit démocratique; cette confusion presque univer-
-À selle, et dont vivent les politiciens, entre l'esprit démoF _ cratique et l'âme populaire; cette confusion non moins
+À selle, et dont vivent les politiciens, entre l'esprit démoF cratique et l'âme populaire; cette confusion non moins
 À universelle entre la fraternité, la solidarité socialiste et
 ; la charité bourgeoise, le travail demandé comme un
 
 Enfin et surtout cette illusion suprème des pauvres
-gens : que l'on peut trouver facilement du travail
+gens: que l'on peut trouver facilement du travail
 honnête; qu'il suflit d'être courageux, vaillant au
 travail, soigneux, pour avoir le droit de vivre en tra-
 
-j vaillant; que nous pouvons sauver de la misère les gens
+vaillant; que nous pouvons sauver de la misère les gens
 ; que nous aimons; que nous pouvons sauver nos amis
 ï de la faim; que nous sommes assurés nous-mêmes
-$ contre le déficit, contre la misère, contre le dépérissek ment et contre la mort.
+contre le déficit, contre la misère, contre le dépérissek ment et contre la mort.
 
 troisième cahier de la quatrième série
 
@@ -123,12 +123,12 @@ enterrements, banquets, ou de bâtir des monuments,
 nous lisons dans nos journaux que des milliers de
 francs par jour tombent; les pauvres gens en concluent
 qu'à plus forte raison ils pourront trouver de quoi vivre
-en travaillant : ils ne peuvent imaginer que l'argent aille
+en travaillant: ils ne peuvent imaginer que l'argent aille
 aux représentations, et qu'il manque à l'organisation
 du travail.
 
 C'est pourtant ce qu'il faut se représenter; le vice
-bourgeois, d'entretenir le luxe avec ce qui est dû au
+bourgeois, d'entretenir le luxe avec ce qui est au
 travail, n'a peut-être jamais sévi avec autant de férocité
 dans le monde bourgeois que dans un certain monde
 prétendu socialiste. S'agit-il de commémorations, de
@@ -155,7 +155,7 @@ représentation les souscripteurs habituels se croient
 tenus d'autant plus, à plus forte raison, à nourrir le
 travail, ils arguënt, au contraire, de ce qu'ils ont
 dépensé en représentations pour ne pas dépenser en
-travail : Nous sommes épuisés; il faut, vous le savez,
+travail: Nous sommes épuisés; il faut, vous le savez,
 contribuer tous les jours; les occasions ne manquent
 pas. — Nous ne sommes pas les seuls à qui on ait
 accoutumé de tenir ce langage; tous ceux qui ont voulu
@@ -179,7 +179,7 @@ consolation de retrouver, affectés de coefficients variables, mais plutôt cons
 
 « pauvres pour fournir des-moyens de travail. Et ce qu'il
 
-“_ faut noter parce que c'est un événement considérable
+faut noter parce que c'est un événement considérable
 
 … moralement, c'est que l'argent des pauvres se refuse
 
@@ -198,16 +198,16 @@ valeur juste les dévouements anonymes de quelques
 riches et de pauvres nombreux; nous reviendrons sur
 cette répartition; mais ce que je veux indiquer dès
 aujourd'hui, c'est que dans les partis et dans les compagnies républicaines, socialistes, révolutionnaires,
-anarchistes, laïques, et parmi les individus correspondants, sous les mêmes étiquettes, sous les mêmes |
-aspects, deux genres d'hommes coexistent, et coha- |
-bitent : les uns soucieux de travail, et que nous devons
+anarchistes, laïques, et parmi les individus correspondants, sous les mêmes étiquettes, sous les mêmes
+aspects, deux genres d'hommes coexistent, et coha-
+bitent: les uns soucieux de travail, et que nous devons
 nommer les classiques, les autres, préoccupés de repré-
 sentation, et que je suis bien forcé de nommer les
-romantiques ; ces deux genres d'hommes s'interpénètrent
+romantiques; ces deux genres d'hommes s'interpénètrent
 partout; et partout depuis le commencement du mouvement révolutionnaire les classiques sont gouvernés
 par les romantiques; ceux qui travaillent sont gouvernés par ceux qui représentent; l'introduction du gouvernement parlementaire parmi nous, je ne dis pas
-avec tous ses abus, mais je dis : de préférence par ses
-abus, sous ses formes d'abus, n'est qu'une introduc- .
+avec tous ses abus, mais je dis: de préférence par ses
+abus, sous ses formes d'abus, n'est qu'une introduc-.
 tion particulière de ce gouvernement général, et sauf
 de rares et d'honorables exceptions les travailleurs
 
@@ -234,15 +234,15 @@ présages laissent voir que les travailleurs sont las du
 gouvernement des théâtreux. Et il se peut que cet affranchissement le plus vaste fasse toute l'histoire de la pé-
 riode où nous entrons.
 
-| Cette lettre d'une institutrice était écrite parfaite-
+Cette lettre d'une institutrice était écrite parfaite-
 
-| ment. Ceux de nos abonnés qui n'ont jamais manqué
+ment. Ceux de nos abonnés qui n'ont jamais manqué
 
-{ de pain ne peuvent imaginer comme il est difficile d'en
-demander. Demander une circonscription à la tourbe :
+de pain ne peuvent imaginer comme il est difficile d'en
+demander. Demander une circonscription à la tourbe:
 
-+ troisième cahier de la quatrième série
-"électorale n'est rien : il suffit, sauf de rares et d'honorables exceptions, d'être plat; demander un gouvernement à la tourbe parlementaire n'est rien : il suffit,
+troisième cahier de la quatrième série
+"électorale n'est rien: il suffit, sauf de rares et d'honorables exceptions, d'être plat; demander un gouvernement à la tourbe parlementaire n'est rien: il suffit,
 sauf de rares et d'honorables exceptions, d'être plat;
 mais demander du pain, même par le moyen du travail,
 quand on est bien né,sans platitude, sans déclamation,
@@ -257,13 +257,13 @@ répondre à leurs lettres, parce que je suis moi-même
 surmené; j'en ai du remords; et ce remords m'empêche
 de partager la joie laïque d'État.
 Personnalités. Jean Coste est un personnage. Il
-_ n'estpas imaginaire. Il n'est pas littéraire. Il est vrai.
+n'estpas imaginaire. Il n'est pas littéraire. Il est vrai.
 On en parle comme de quelqu'un. Nous savons qui
-c'est. On a commencé par le vouloir ignorer. Mais ïl
+c'est. On a commencé par le vouloir ignorer. Mais
 s'est fait connaître par sa force propre. Aujourd'hui
 les députés, les journalistes, les chroniqueurs de lenseignement, Téry, parlent de lui souvent, comme de
 quelqu'un de bien connu.
-Je n'ai pas reproché à Téry d'avoir étouffé totalement ;
+Je n'ai pas reproché à Téry d'avoir étouffé totalement;
 le Jean Coste. Il ne le pouvait pas. Il ne le voulait pas:
 Je lui ai reproché de n'avoir pas accueilli, soutenu le
 Jean Coste à l'origine avec toute la justice, avec toute
@@ -274,7 +274,7 @@ en première page de la Petite République. La Petite
 République se sert beaucoup des instituteurs. Elle
 pouvait lancer le Jean Coste.
 
-On a dit : Je ne puis m'intéresser à Jean Coste; il est
+On a dit: Je ne puis m'intéresser à Jean Coste; il est
 
 Nous savons de reste comme il est. Il n'est pas
 parfait. Il n'est pas un saint. Il est un homme. Il est un
@@ -296,11 +296,10 @@ On dit qu'il est faible, et que fort il pourrait s'évader
 de son bagne. Ceux qui font du moralisme en chambre,
 c'est-à-dire, à parler proprement, les cuistres de moralité, peuvent s'imaginer que la misère fait un exercice
 
-“ de vertus. C'est la pesanteur et c'est la force inévitable
+de vertus. C'est la pesanteur et c'est la force inévitable
 de la misère qu'elle rend les misérables irrémédiable-
-+ ment faibles et qu'ainsi elle empêche invinciblement les
+ment faibles et qu'ainsi elle empêche invinciblement les
 « misérables de s'évader de leurs misères mêmes. Dans
-9
 
 troisième cahier de la quatrième série
 la réalité la misère avarie les vertus, qui sont filles de
@@ -326,11 +325,11 @@ mais situées de part et d'autre d'une limite; et cette
 limite est justement celle qui départage l'économie au
 regard de la morale; cette limite économique est celle
 en deçà de qui la vie économique n'est pas assurée, au
-delà de qui la vie économique est assurée; cette limite |
+delà de qui la vie économique est assurée; cette limite
 est celle où commence l'assurance de la vie économique;
 en decà de cette limite le misérable ou bien a la certitude que sa vie économique n'est pas assurée ou bien
 n'a aucune certitude qu'elle soit ou ne soit pas assurée,
-court le risque ; le risque cesse à cette limite; au delà
+court le risque; le risque cesse à cette limite; au delà
 
 de cette limite le pauvre ou le riche a la certitude que
 sa vie économique est assurée; la certitude règne au
@@ -355,7 +354,7 @@ qu'elle se présente dans un très grand nombre de cas,
 même aujourd'hui; qu'elle a une importance capitale
 dans les sociétés fortement constituées; qu'elle a une
 grande importance encore dans une société troublée,
-comme est la société contemporaine ; aujourd'hui même,
+comme est la société contemporaine; aujourd'hui même,
 on reconnaîtrait qu'un très grand nombre de situations
 sociales sont définies parce qu'elles sont condamnées à
 demeurer en deçà de cette limite; et un assez grand
@@ -365,14 +364,14 @@ sociale est déterminée parce qu'elle est située au delà
 de cette limite, juste au delà, sans la déborder beaucoup
 vers l'aisance, mais sans aucun risque de bavure en
 
-troisième cahier de la quatrième série #
+troisième cahier de la quatrième série
 deçà; ainsi on étudierait cette crise morale et sociale
-de première importance, qui survient à vingt-sept ans, $
+de première importance, qui survient à vingt-sept ans,
 et par qui l'immense majorité des révolutionnaires
 deviennent et restent conservateurs, soit qu'ils aillent
 faire de la conservation dans les partis de la conservation, soit, communément, qu'ils restent faire de la
 conservation dans les partis prétendus révolutionnaires,
-par opportunisme ou par surenchère, soit qu'ils pratiqueni cette conservation publique et privée, de ne plus :
+par opportunisme ou par surenchère, soit qu'ils pratiqueni cette conservation publique et privée, de ne plus:
 faire de l'action après avoir commencé par s'y inté-
 resser; on reconnaîtrait que le souci de certitude, le
 besoin de sécurité, d'assurance, de tranquillité, est un
@@ -383,16 +382,16 @@ que tant qu'un homme, jeune ou adulte, n'a pas dépassé
 l'âge de cette crise, on ne peut ni le juger, ni le pré-
 
 La misère est tout le domaine en deçà de cette limite:
-* la pauvreté commence au-delà et finit tôt; ainsi la ;
-misère et la pauvreté sont voisines ; elles sont plus |
+la pauvreté commence au-delà et finit tôt; ainsi la;
+misère et la pauvreté sont voisines; elles sont plus
 voisines, en quantité, que certaines richesses ne le sont À
-de la pauvreté; si on évalue selon la quantité seule, un \
-riche est beaucoup plus éloigné d'un pauvre qu'un |
+de la pauvreté; si on évalue selon la quantité seule, un
+riche est beaucoup plus éloigné d'un pauvre qu'un
 pauvre n'est éloigné d'un miséreux; mais entre la misère
 et la pauvreté intervient une limite; et le pauvre est
 séparé du miséreux par un écart de qualité, de nature.
 Beaucoup de problèmes restent confus parce qu'on
-n'a pas reconnu cette intervention ; ainsi on attribue à la misère les vertus de la pauvreté, où au |
+n'a pas reconnu cette intervention; ainsi on attribue à la misère les vertus de la pauvreté, où au
 contraire on impute à la pauvreté les déchéances de la
 misère; comme ailleurs on attribue à l'humilité les
 
@@ -430,14 +429,14 @@ duquel on ne peut pas même examiner quel est le premier devoir social.
 Au contraire, étant donné que tous les miséreux,
 
 troisième cahier de la quatrième série
-sans aucune exception, seraient sauvés de la misère, :
+sans aucune exception, seraient sauvés de la misère,:
 étant donné que toutes les vies économiques, sans
 aucune exception, seraient assurées dans la cité, la
 répartition des biens entre les riches différents et les
 pauvres, la suppression des inégalités économiques,
 l'équitable répartition de la richesse entre tous les
 citoyens n'est plus qu'un des nombreux problèmes qui se
-posent dans la cité instituée enfin. Le problème écono- |
+posent dans la cité instituée enfin. Le problème écono-
 mique de répartir également, ou équitablement, les biens
 entre tous les citoyens n'est pas du même ordre que le
 problème économique de sauver tous les citoyens, sans
@@ -451,22 +450,22 @@ indiscutable, posé, posé d'avance, dans la réalité, un
 problème de la cité à bâtir; nous devons le résoudre et
 nous n'avons pas à discuter si nous devons le résoudre;
 nous n'avons qu'à discuter comment nous pouvons le
-résoudre ; c'est un probième sans relâche; au contraire
-le problème de la pauvreté est pour ainsi dire un pro- #
+résoudre; c'est un probième sans relâche; au contraire
+le problème de la pauvreté est pour ainsi dire un pro-
 blème de loisir, un problème de la cité habitée, un à
 problème comparable, discutable, que les citoyens se
 poseront après, s'ils veulent; avant d'examiner comment ils pourront le résoudre, ils pourront examiner
 même s'ils doivent se le poser.
-Qu'on me permette une comparaison théologique :
+Qu'on me permette une comparaison théologique:
 l'enfer est essentiellement qualifié comme l'effet d'une
-excommunication divine ; le damné est un excommunié
+excommunication divine; le damné est un excommunié
 de par Dieu; il est mis par Dieu hors de la communion
 
-chrétienne ; il est privé de la présence de Dieu ; il subit
+chrétienne; il est privé de la présence de Dieu; il subit
 l'absence de Dieu; les différentes et innombrables et
 lamentables peines où se sont excitées les imaginations
 sont dominées par cette peine d'Absence, qui est la
-peine capitale, incomparable ; d'ailleurs l'enfer est
+peine capitale, incomparable; d'ailleurs l'enfer est
 essentiellement modifié comme éternel, c'est-à-dire
 comme infini dans le temps, ou comme infini dans ce
 qui serait le temps et qui exclut le temps; à cet égard
@@ -477,46 +476,46 @@ est cerclé; aucun espoir absolument ne filtre, aucune
 Au contraire le paradis est essentiellement qualifié
 comme le maintien de la communication divine; l'élu
 est élu par Dieu pour demeurer dans la communion
-chrétienne; il reçoit la présence de Dieu ; les nombreuses
+chrétienne; il reçoit la présence de Dieu; les nombreuses
 béatitudes où les imaginations ont assez vainement
 tâché de s'exercer sont dominées par cette récompense
 de Présence, qui est la béatitude capitale, incomparable; d'ailleurs le paradis est essentiellement modifié
-comme éternel; donc il ne supporte aucun risque ;
+comme éternel; donc il ne supporte aucun risque;
 lhorizon de l'élu est ouvert d'une ouverture infinie;
 aucun désespoir absolument, aucune hésitation ne
 
 Cela étant, le purgatoire a beau ressembler à l'enfer
 qu'il comporte la même Absence; il a beau avoir la
-même qualité ; il suffit que le mode n'en soit pas éternel, et que l'espérance non seulement passe mais soit
-assurée pour que tout soit autre ; au jugement dernier
+même qualité; il suffit que le mode n'en soit pas éternel, et que l'espérance non seulement passe mais soit
+assurée pour que tout soit autre; au jugement dernier
 quand Jésus viendra dans sa gloire il viendra aussi
 pour délivrer, pour chercher les dernières âmes du
 
 troisième cahier de la quatrième série
-Purgatoire ; la Présence commencera dès lors, pour
-l'éternité ; cette ouverture suffit pour que ie purgatoire
-devienne, à cet égard, totalement étranger à l'enfer ; il
-suffit qu'une lueur de certitude éclaire ; deux séjours -
+Purgatoire; la Présence commencera dès lors, pour
+l'éternité; cette ouverture suffit pour que purgatoire
+devienne, à cet égard, totalement étranger à l'enfer; il
+suffit qu'une lueur de certitude éclaire; deux séjours -
 de peines, l'enfer et le purgatoire, peuvent sembler
 analogues ou de même ordre à une observation superficielle, parce qu'ils sont deux séjours de peines, et de
 peines analogues; mais il suffit que dans ces peines
 analogues une certitude de vie ait pénétré en purgatoire et qu'une certitude de mort domine en enfer pour
 que le purgatoire et l'enfer ne soient pas du mème ordre;
 l'enfer est hors de la communion; le purgatoire est
-dans la communion ; l'Église souffrante, après l'Église
-militante, avant l'Église triomphante, est de la communion ; le purgatoire est de la vie; l'enfer est de la
+dans la communion; l'Église souffrante, après l'Église
+militante, avant l'Église triomphante, est de la communion; le purgatoire est de la vie; l'enfer est de la
 
-L'enfer est de la mort éternelle. Or quand nous parlons de l'enfer social ou de l'enfer économique les
+L'enfer est de la mort éternelle. quand nous parlons de l'enfer social ou de l'enfer économique les
 hommes de littérature, les hommes de gouvernement,
 les députés, les journalistes, les perpétuels candidats
 peuvent croire sincèrement, aulant qu'ils peuvent être
 sincères, que nous employons avec eux une métaphore
-théâtrale, romantique, outrée, commode, inexacte, électorale pour tout dire ; c'est ainsi en effet qu'insoucieux
+théâtrale, romantique, outrée, commode, inexacte, électorale pour tout dire; c'est ainsi en effet qu'insoucieux
 ou ignorants de la réalité ils emploient la même expression; ils disent un enfer social comme ils disent du
-concurrent qu'il est un immonde apostat : ces mots n'ont
+concurrent qu'il est un immonde apostat: ces mots n'ont
 pas de conséquence; mais ce ne serait pas la première
 
-k fois qu'une expression profondément populaire serait
+fois qu'une expression profondément populaire serait
 détournée par les politiciens de son sens profond et
 plein, utilisée d'une utilisation fade et vide; ici encore
 le langage exact, le sens profond appartient au peuple
@@ -529,7 +528,7 @@ est un enfer, il garde au mot son sens exact, premier.
 Quand avec le peuple ou, vraiment, dans le peuple,
 nous parlons d'enfer, nous entendons exactement que
 la misère est en économie comme est l'enfer en théologie; le purgatoire ne correspond qu'à certains élé-
-ments de la pauvreté; mais la misère correspond pleinement à l'enfer ; l'enfer est l'éternelle certitude de la
+ments de la pauvreté; mais la misère correspond pleinement à l'enfer; l'enfer est l'éternelle certitude de la
 mort éternelle; mais la misère est pour la plus grande
 part la totale certitude de la mort humaine, la totale
 pénétration de ce qui reste de vie par la mort; et
@@ -538,17 +537,17 @@ aussi douloureuse que la certitude fatale.
 
 On objecterait en vain que notre comparaison n'est
 pas fondée, sur ce que les peines infernales sont iné-
-puisablement atroces ; d'abord elles ne sont pas toutes
+puisablement atroces; d'abord elles ne sont pas toutes
 extrêmes; l'attention, comme on pouvait le prévoir,
 s'est portée presque toute sur celles quiétaient extrêmes,
 autant l'attention des poètes que l'attention populaire,
 mais il n'est dit nulle part qu'elles soient extrêmes
 toutes, ni qu'il y en ait beaucoup d'extrêmes; puis on
 ne ferait que de constater que notre comparaison est
-une comparaison ; mais on n'établirait pas qu'elle est
-mal fondée ; on oublie cette première loi de la psychologie, que les malheurs sont pour nous ce que nous les
-sentons ; les souffrances nous sont comme nous les
-éprouvons ; la capacité de souffrance étant demeurée
+une comparaison; mais on n'établirait pas qu'elle est
+mal fondée; on oublie cette première loi de la psychologie, que les malheurs sont pour nous ce que nous les
+sentons; les souffrances nous sont comme nous les
+éprouvons; la capacité de souffrance étant demeurée
 au moins la même sans doute, la souffrance humaine
 
 troisième cahier de la quatrième série
@@ -556,10 +555,10 @@ exerce un dommage non moins grand que ne pouvait
 exercer l'idée de la souffrance éternelle; d'autant que
 cette idée même était une idée, une image, une représentation humaine. On s'est flatté trop vite qu'en supprimant
 les dieux et les sanctions des dieux on supprimait les
-souffrances les plus grandes; premièrement on supprimait aussi, au moins dans le même sens, les consolations les plus grandes ; et peut-être la nature humaine
+souffrances les plus grandes; premièrement on supprimait aussi, au moins dans le même sens, les consolations les plus grandes; et peut-être la nature humaine
 est-elle ainsi faite qu'au lieu que ce soient les causes
 réelles extérieures qui mesurent la souffrance éprouvée, c'est au contraire la capacité réelle intérieure qui
-mesure le retentissement des causes ; il se peut que la
+mesure le retentissement des causes; il se peut que la
 menace ou même l'assurance d'un disloquement éternel
 introduisit moins de souffrance réelle dans l'âme d'un
 reître que n'en apporterait aujourd'hui dans une âme
@@ -577,7 +576,7 @@ que nous les éprouvons; la capacité de souffrance étant
 donnée, la vie humaine subit un dommage non moins
 grand que ne subirait une éternité, puisque cette
 éternité, pour nous au moins, ne serait jamais que
-représentée. On nous dit : Les misérables qui croyaient
+représentée. On nous dit: Les misérables qui croyaient
 à l'enfer croyaient à une éternité de souffrance; ils en
 
 avaient donc une souffrance infinie, totale, barrant
@@ -590,7 +589,7 @@ phénomène sentimental une interprétation comme en
 fournissent les intellectuels qui ont commencé par ne
 pas se placer dans la situation requise. L'observateur
 extrinsèque tient le raisonnement suivant, qu'il n'avoue
-pas : étant donné un homme qui souffre d'une souffrance humaine et, en outre, d'une souffrance infinie,
+pas: étant donné un homme qui souffre d'une souffrance humaine et, en outre, d'une souffrance infinie,
 si nous commençons par le débarrasser de la deuxième, à
 ce sera autant de gagné, autant d'acquis, et même on
 laura débarrassé de la souffrance la plus grave à
@@ -618,7 +617,7 @@ la souffrance humaine se détend, se dilate, occupe
 l'emplacement précédemment occupé par la crainte
 et la peur et la souffrance religieuse. Et la souffrance
 humaine emplit souvent cet emplacement. Car la souffrance religieuse pouvait avoir un objet infini, éternel,
-surhumain : elle n'en était pas moins une souffrance
+surhumain: elle n'en était pas moins une souffrance
 humaine, limitée dans le sujet, finie, limitée au sujet.
 
 Quand une libération religieuse est accomplie,
@@ -646,15 +645,15 @@ tapent sur le curé, une joie naïve, sincère ou feinte,
 qu'un homme averti de notre génération, soucieux
 des immenses problèmes renaissants, ne peut plus
 
-[Aujourd'hui même je lis dans {a revue blanche du
+[Aujourd'hui même je lis dans revue blanche du
 premier novembre ce paragraphe de M. Michel Arnauld,
-critiquant le livre de M. Barrès : Scènes et Doctrines du
+critiquant le livre de M. Barrès: Scènes et Doctrines du
 Nationalisme. C'est le paragraphe de conclusion du
 
 « Ce n'est pas sur cette impression que je veux finir,
 mais en citant un beau passage d'une lettre que le très
 libéral Ernest Havet écrivit, le 23 août 1880, au très
-catholique Barbey d'Aurevilly :.. « Je ne veux pas que '
+catholique Barbey d'Aurevilly:.. « Je ne veux pas que
 « vous me soupçonniez de la sottise de vous réduire à ce
 « qu'on appelle le style. Le style et la pensée, c'est tout
 « un; c'est donc bien dans la pensée qu'est votre force.
@@ -663,12 +662,12 @@ catholique Barbey d'Aurevilly :.. « Je ne veux pas que '
 « taire, l'un des deux ne serait nécessairement qu'un
 « imbécile. Une thèse erronée peut être une occasion de
 « penser très fortement et de répandre des vérités à
-« pleines mains ; et c'est précisément ce que vous faites
+« pleines mains; et c'est précisément ce que vous faites
 
 ; « et ce qu'ont fait aussi vos grands hommes. Comme
 « eux, à mon avis, vous êtes à la fois puissant et impres-
 « sionnant. Vous ne viendrez pas à bout de nous faire
-« monarchiques et catholiques, mais vous réussissez ,
+« monarchiques et catholiques, mais vous réussissez,
 « supérieurement à nous faire sentir que, quand on a
 « dit qu'on ne l'est plus, tout n'est pas dit et qu'on n'a pas
 « trouvé pour cela la solution de tous les problèmes ni le
@@ -678,7 +677,7 @@ sans Barrès, nous nous en doutions un peu. »
 Je lis du même dans le même ce dernier paragraphe
 
 troisième cahier de la quatrième série
-à la critique de : Marius-Ary Leblond, Les Vies parallèles :
+à la critique de: Marius-Ary Leblond, Les Vies parallèles:
 
 « Dans leur lettre liminaire à M. Léon Bourgeois,
 MM. Leblond prennent non sans fougue la défense du
@@ -691,7 +690,7 @@ détourne de l'analyse, et ne favorise que des synthèses
 un peu grosses. Donner un nom spécial à chaque sentiment, dispense de le distinguer par des nuances fines
 et sans cesse changeantes. Il ne vit plus, le voilà
 classé; épinglé, empaillé pour toujours. La science a
-besoin de néologismes ; c'est qu'à chacun de ses progrès
+besoin de néologismes; c'est qu'à chacun de ses progrès
 elle pose une loi, un rapport fixe, que dès lors elle a le
 droit de désigner, sans le définir. En art, — surtout
 quand ïil s'agit de décrire des sentiments, — la
@@ -701,8 +700,8 @@ simples sous des formes variées. C'est d'ailleurs question de mesure, qu'on ne 
 
 Tout le monde regrettera que l'auteur de ces deux
 paragraphes ne forme pas le ferme propos d''œuvrer
-lui-même ; ces deux paragraphes ont une importance
-capitale, chacun pour ce qu'il veut être ; la lecture du
+lui-même; ces deux paragraphes ont une importance
+capitale, chacun pour ce qu'il veut être; la lecture du
 premier serait de la plus grande importance pour
 M. François Daveillans, de la revue blanche: la lecture
 du deuxième serait d'une grande utilité pour M. Fran-
@@ -728,18 +727,18 @@ la place de la misère.
 
 C'est un fait d'expérience que pour les individus et
 pour les peuples libérés la simple souffrance humaine
-atteint souvent à la même gravité qu'atteignait la souffrance religieuse, comme le courage humain atteint où =
+atteint souvent à la même gravité qu'atteignait la souffrance religieuse, comme le courage humain atteint où
 atteignait le courage religieux, comme la dignité
 humaine atteint où atteignait la dignité religieuse.
 L'analyse permettait de prévoir les résultats de l'expé-
-rience : l'homme étant demeuré sans doute le même, sa
+rience: l'homme étant demeuré sans doute le même, sa
 capacité de souffrance étant sans doute à peu près la
 même, le misérable reçoit dans sa misère la même
 impression totale de désespoir; le misérable ne reçoit
 pas de sa misère la même impression partielle que le
 non misérable qui voit la misère du misérable; le misé-
 rable ne voit pas le monde comme le voit le sociologue;
-le misérable est dans sa misère ; le regard perpétuel
+le misérable est dans sa misère; le regard perpétuel
 qu'il jette sur sa misère, lui-même est un regard misé-
 rable:; la misère n'est pas une partie de sa vie, une
 partie de ses préoccupations, qu'il examine à tour de
@@ -748,26 +747,26 @@ vie; c'est une servitude sans exception; ce n'est pas
 seulement le cortège connu des privations, des mala-
 
 troisième cahier de la quatrième série à
-dies, des laïdeurs, des désespoirs, des ingratitudes et |
-des morts; c'est une mort vivante; c'est le perpétuel |
-supplice d'Antigone; c'est l'universelle pénétration de |
-la mort dans la vie, c'est un arrière-goût de mort mêlé |
+dies, des laïdeurs, des désespoirs, des ingratitudes et
+des morts; c'est une mort vivante; c'est le perpétuel
+supplice d'Antigone; c'est l'universelle pénétration de
+la mort dans la vie, c'est un arrière-goût de mort mêlé
 à toute vie; la mort était pour le sage antique la
-dernière libération, un affranchissement indéfaisable. |
+dernière libération, un affranchissement indéfaisable.
 Mais pour le misérable elle n'est que la consommation
 désespoir. Si Jean Coste acculé se tue un jour avec sa
 femme et ses enfants, son dernier jour sera son plus
 terrible jour. Dies irae, jour de colère.
 
-Pour que la mort soit une libération que l'on goûte, il |
-faut toute une civilisation, toute une culture, toute une |
-philosophie, tout ce que la misère, justement, interdit. |
+Pour que la mort soit une libération que l'on goûte, il
+faut toute une civilisation, toute une culture, toute une
+philosophie, tout ce que la misère, justement, interdit.
 
-Le misérable est dans sa misère, au centre de sa |
+Le misérable est dans sa misère, au centre de sa
 misère; il ne voit que misérablement; justement parce
 qu'il ne croit pas à la vie éternelle, à une survie infinie,
 le misérable que nous connaissons, le misérable comme
-l'a fait l'élimination de la croyance religieuse n'a plus |
+l'a fait l'élimination de la croyance religieuse n'a plus
 qu'un seul compartiment de vie et tout ce compartiment
 lui est occupé désormais par la misère; iln'a plus qu'un
 seul domaine; et tout ce domaine est irrévocablement
@@ -778,7 +777,7 @@ tout espoir lui est interdit, sa misère ne reçoit aucune
 limitation; littéralement elle est infinie; point n'est
 besoin que la cause ou l'objet en soit infini pour qu'elle
 soit infinie; une cause, un objet qui n'est pas infini
-pour la science extérieure, pour la physique, peut déterminer dans une âme un sentiment infini si ce sentiment |
+pour la science extérieure, pour la physique, peut déterminer dans une âme un sentiment infini si ce sentiment
 
 . emplit toute l'âme; non pas en ce sens qu'il exterminerait de l'âme tout autre sentiment, conscient, subconscient, inconscient, mais en ce sens qu'il affecte sans
 exception, qu'il nuance et qualifie toute la vie sentimentale, intellectuelle, toute la vie de l'âme et de
@@ -803,27 +802,27 @@ temporaire et pour ainsi dire provisoire dans l'histoire
 de l'humanité: les misérables, nous dit-on, peuvent au
 moins se consoler sur ce qu'à travers leurs misères
 particulières provisoires l'humanité marche délibéré-
-ment, assurément, vers une ère de bonheur définitif ;
-cette préoccupation apparaît souvent dans les derniers livres de Zola; l'honorable M. Buisson me disait :
+ment, assurément, vers une ère de bonheur définitif;
+cette préoccupation apparaît souvent dans les derniers livres de Zola; l'honorable M. Buisson me disait:
 Ce qui manque à Jean Coste, ce qui pourrait peut-être
 le soutenir un peu, éclairer sa misère, et même lui
 
-troisième cahier de la quatrième série “à
+troisième cahier de la quatrième série
 prêter un point d'appui pour son relèvement, c'est l'idée
 qu'il devrait avoir de la grandeur de sa mission; cette
 
 idée le soutiendrait; beaucoup d'instituteurs, qui sont
-malheureux, se tiennent par cette idée; vraiment Jean |
+malheureux, se tiennent par cette idée; vraiment Jean
 Coste n'a pas la vocation. Aïnsi parlait l'honorable
 
-M. Buisson quand il était simple citoyen. Depuis |
-lors M. Buisson devenu député fait tout ce qu'il peut |
+M. Buisson quand il était simple citoyen. Depuis
+lors M. Buisson devenu député fait tout ce qu'il peut
 pour atteindre par des sanctions économiques de
 
-simples citoyens qui ont eu ou qui sont censés avoir eu,
+simples citoyens qui ont ou qui sont censés avoir eu,
 
-qui juridiquement ont eu des vocations; car il est à :
-noter que la loi vise les vœux religieux mêmes; d'ail- |
+qui juridiquement ont des vocations; car il est à:
+noter que la loi vise les vœux religieux mêmes; d'ail-
 leurs il est vrai que M. Buisson, principai organisateur
 
 de l'enseignement primaire en France, et les principaux
@@ -832,10 +831,10 @@ de ses collaborateurs, ont fait appel très souvent au
 dévouement et aux vocations de leurs très nombreux
 subordonnés; mais je ne crois pas que la société puisse
 
-faire appel aux dévouements ni aux vocations ; l'huma-
+faire appel aux dévouements ni aux vocations; l'huma-
 
 nité peut faire appel aux dévouements et aux vocations;
-l'humanité peut faire appel à tout ; elle peut faire libre-
+l'humanité peut faire appel à tout; elle peut faire libre-
 
 ment appel au libre sacrifice; la société ne peut procéder
 
@@ -857,13 +856,13 @@ dévouement sous cette forme, la résignation, la patience
 
 et d'une manière générale tous les sentiments qui sont
 
-de la charité; or il n'est pas loyal de le lui demander
+de la charité; il n'est pas loyal de le lui demander
 
-pendant que l'on persécute le catholicisme ; secondement on lui demande une feinte ; on lui demande, étant
+pendant que l'on persécute le catholicisme; secondement on lui demande une feinte; on lui demande, étant
 misérable, de faire comme s'il ne l'était pas; et troisiè-
 mement on lui demande une impossibilité; le misérable
-ne peut pas s'abstraire de la misère ; tout en est teinté;
-non seulement tous ses sentiments, mais toute sa connaissance ; vue à travers la misère, toute l'humanité est
+ne peut pas s'abstraire de la misère; tout en est teinté;
+non seulement tous ses sentiments, mais toute sa connaissance; vue à travers la misère, toute l'humanité est
 misérable; peut-être est-elle misérable de partout,
 pourvu qu'on la regarde bien; quand le misérable se
 demande s'il est bien vrai, s'il est bien assuré que
@@ -877,49 +876,49 @@ quand il se demande si les optimistes sont niais ou
 fourbes, quand il note que les optimistes ont toujours
 soin de commencer par se percher dans les situations
 qui sont les plus éloignées de la misère, quand il croit
-que l'humanité est mauvaise, qui l'en blämerait, connaissant la misère et connaissant l'humanité ?
+que l'humanité est mauvaise, qui l'en blämerait, connaissant la misère et connaissant l'humanité?
 
-Chacun de nous est au centre du monde pour la connaissance, pour la présentation qu'il en a ; Jean Coste ne
-voit pas le monde comme un député radical-socialiste ;
+Chacun de nous est au centre du monde pour la connaissance, pour la présentation qu'il en a; Jean Coste ne
+voit pas le monde comme un député radical-socialiste;
 il a ses raisons pour cela; croyons que réciproquement un député radical-socialiste a ses raisons pour
 ne pas voir le monde comme un Jean Coste; quand on
 veut que Jean Coste voie le monde en beau, comme on
 dit grossièrement, on veut qu'il ne soit plus Jean Coste,
 
-troisième cahier de la quatrième série |
+troisième cahier de la quatrième série
 mais un spectateur bénévole, bon garçon, regardant
 commodément le monde et Jean Coste à sa petite place
-dedans. C'est altérer totalement les données du problème. Jean Coste a une image du monde; si nous vou- |
+dedans. C'est altérer totalement les données du problème. Jean Coste a une image du monde; si nous vou-
 lons que cette image ne soit plus la même, qu'elle soit
 modifiée, il ne s'agit pas de la prendre, séparément du
 monde, et de l'altérer, car elle serait modifiée, mais
 elle ne serait plus image; il faut modifier le monde à
-même ; c'est le seul moyen qu'elle soit une image modi- ,
-fiée, du monde modifié. ;
+même; c'est le seul moyen qu'elle soit une image modi-,
+fiée, du monde modifié.;
 
-Je demande pardon d'insister autant sur la misère ;
+Je demande pardon d'insister autant sur la misère;
 c'est un sujet ingrat; une conspiration générale du
 silence nous laisserait croire que la misère n'existe pas;
-seules les troisièmes et les quatrièmes pages des journaux nous signalent, pour nous émouvoir grossièrement |
+seules les troisièmes et les quatrièmes pages des journaux nous signalent, pour nous émouvoir grossièrement
 ou pour nous distraire, les misères intéressantes, passionnantes, amusantes, refaites à souhait pour le plaisir
-des yeux ; la plupart &e ceux qui parlent de la misère
+des yeux; la plupart ceux qui parlent de la misère
 le font par intérêt, par emphase et démagogie; les
 partis socialistes célèbrent par tant de banquets et par
-tant de fêtes la déviation de leur action récente quel'on ‘
+tant de fêtes la déviation de leur action récente quel'on
 se demande quelle fête ils imagineraient le jour que la
 révolution serait faite. Mais Jean Coste est dans sa
 misère. Il n'est pas seulement au centre de sa misère
 pour la connaissance qu'il a de sa vie; Jean Coste est
 monde. Les peines des autres hommes lui font une multiplication, un redoublement de ses peines. Les bonheurs des autres hommes le repoussent dans sa peine;
-les bonheurs des autres hommes lui laissent un arrièregoût d'amertume et d'ingratitude, parce qu'ils réveil- ,
+les bonheurs des autres hommes lui laissent un arrièregoût d'amertume et d'ingratitude, parce qu'ils réveil-,
 
-lent en lui la connaissance de légoïsme universel. Vu
+lent en lui la connaissance de légoïsme universel.
 par lui, l'univers est misérable. Notre troisième et dernière conclusion de fait sera que la simple misère
 humaine a une importance universelle, La damnation
 a une importance universelle pour les catholiques. La
 misère sociale a une importance universelle pour nous.
 Un fait particulier peut causer une souffrance totale.
-Une absence particulière peut causer une privation ;
+Une absence particulière peut causer une privation;
 Un seul être vous manque, et tout est dépeuplé.
 Nous ne pouvons pas, ce serait commode, mais
 nous ne pouvons pas croire qu'il n'y a pas de misère
@@ -931,45 +930,45 @@ d'aller jusqu'aux sentiments de la charité; mais il
 suflit de la solidarité pour que la misère puisse nous
 Les catholiques sérieux ont toujours été préoccupés
 
-de l'enfer ; quelque importante que fat la gradation des
+de l'enfer; quelque importante que fat la gradation des
 béatitudes, il semble bien que la constante préoceupation des catholiques sérieux ait été de savoir si l'âme
-entrerait ou n'entrerait pas dans le royaume des béatitudes ; l'entrée, la participation, le être ou ne pas être
+entrerait ou n'entrerait pas dans le royaume des béatitudes; l'entrée, la participation, le être ou ne pas être
 de la vie éternelle avait une importance capitale; pour
 
-| les catholiques sérieux le degré de la participation,
+les catholiques sérieux le degré de la participation,
 qu'ils se le soient avoué ou qu'ils aient redouté de se
 Vavouer, pour ne pas offenser la munificence divine et
-pour n'en pas mépriser les dons, paraît avoir eu comme
-une importance ajournée ; quelque importante que fût la
+pour n'en pas mépriser les dons, paraît avoir comme
+une importance ajournée; quelque importante que fût la
 
-troisième cahier de la quatrième série |
+troisième cahier de la quatrième série
 gradation des peines, il semble que la constante préoc-
 cupation des catholiques sérieux ait été de savoir si
 l'âme éviterait ou non la précipitation, si elle serait
-damnée ou non ; la préoccupation du salut était capitale: être ou n'être pas sauvé; de là tant d'efforts
-sérieux pour supprimer l'enfer ; soit que devenant héré-
-siarques ils aient enseigné la caducité des peines infernales ; soit que demeurant fidèles et pénétrant même
+damnée ou non; la préoccupation du salut était capitale: être ou n'être pas sauvé; de tant d'efforts
+sérieux pour supprimer l'enfer; soit que devenant héré-
+siarques ils aient enseigné la caducité des peines infernales; soit que demeurant fidèles et pénétrant même
 au profond de la foi, ils aient tâché de sauver À
 des âmes, c'est-à-dire aient tâché, littéralement, de
 supprimer l'enfer au moins pour ces âmes; soit que
 de nos jours, devenant infidèles résolument, ils aient
 abandonné la foi catholique pour ne pas accepter l'enfer; et de nos jours il est tout à fait certain que la foi
 due à l'éternité des peines a été pour la plupart des
-catholiques sérieux la cause la plus grave de révocation ; beaucoup de catholiques sérieux ont éprouvé le |
+catholiques sérieux la cause la plus grave de révocation; beaucoup de catholiques sérieux ont éprouvé le
 besoin, l'insurmontable besoin de supprimer l'enfer;
 ils ont commencé par le supprimer dans leur âme;
 qui en furent empêchés par cet article seul: est descendu aux enfers, et l'interprétation que l'Église lui
-donne ; un très grand nombre de jeunes gens, sérieux,
+donne; un très grand nombre de jeunes gens, sérieux,
 ont renoncé la foi catholique premièrement, uniquement, ou surtout, parce qu'ils n'admettaient pas l'existence ou le maintien de l'enfer.
 
 Il n'est pas nécessaire qu'ils retrouvent ce maintien
-parmi nous ; quand la société se résigne lâchement au
+parmi nous; quand la société se résigne lâchement au
 maintien de la misère, la cité des hommes redevient
 aussi mauvaise que l'était de ce chef la cité du Dieu
 catholique. Le prix de la vie n'a pas baissé depuis la
 diminution, depuis l'élimination de la foi catholique.
 
-La valeur de la souffrance n'a pas diminué. La valeur '
+La valeur de la souffrance n'a pas diminué. La valeur
 de l'effort à faire n'a pas diminué; comme les catholiques sérieux sont préoccupés surtout du salut, nous
 devons nous préoccuper surtout d'arracher ies misé-
 rables à la misère; l'effort par lequel nous devons
@@ -983,49 +982,49 @@ grade, pour ainsi dire, certains élus; nous devons
 employer une certaine quantité d'action à sauver de la
 misère le plus grand nombre de citoyens que nous
 pouvons, et non pas à faire monter en grade écono-
-à mique certains pauvres ; une quantité donnée d'action
+à mique certains pauvres; une quantité donnée d'action
 sociale, une dépense économique donnée peut assurer
 le salut économique de beaucoup; la même quantité de
 dépense ne ferait que plusieurs demi-riches; avec cent
 mille francs bien administrés on peut organiser,
-émanciper un assez grand nombre de travailleurs ; avec
+émanciper un assez grand nombre de travailleurs; avec
 cent mille francs bien administrés on ne peut faire qu'un
-tout petit rentier ; un modeste accroissement fait passer
-de la misère à la pauvreté ; il faut un grand accroisse- :
+tout petit rentier; un modeste accroissement fait passer
+de la misère à la pauvreté; il faut un grand accroisse-:
 ment pour monter de la pauvreté à la richesse: ainsi
-le plus important est ce qui demande le moins ; le plus
+le plus important est ce qui demande le moins; le plus
 important est de faire passer au plus de citoyens que
 l'on peut la limite fatale: et ce qui revient le moins
 cher, à beaucoup près, est en effet de faire passer cette
 limite; un léger accroissement de budget y suffit
-presque toujours ; à ne considérer que la quantité, il y
+presque toujours; à ne considérer que la quantité, il y
 a beaucoup moins de distance entre la misère d'où l'on
 
 troisième cahier de la quatrième série à
 sauve un citoyen, et la pauvreté, où il s'instaile, À
-qu'entre la pauvreté même et les différents degrés de ;
+qu'entre la pauvreté même et les différents degrés de;
 la richesse. À
-Le devoir d'arracher les misérables à la misère et le $
+Le devoir d'arracher les misérables à la misère et le
 devoir de répartir également les biens ne sont pas du
-même ordre : le premier est un devoir d'urgence; le \
+même ordre: le premier est un devoir d'urgence; le
 deuxième est un devoir de convenance; non seulement
 les trois termes de la devise républicaine, liberté,
 égalité, fraternité, ne sont pas sur le même plan, mais
 les deux derniers eux-mêmes, qui soni plus approchés à
-entre eux qu'ils ne sont tous deux proches du premier, ;
-présentent plusieurs différences notables ; par la frater-
+entre eux qu'ils ne sont tous deux proches du premier,;
+présentent plusieurs différences notables; par la frater-
 nité nous sommes tenus d'arracher à la misère nos frères
 les hommes; c'est un devoir préalable; au contraire le
-devoir d'égalité est un devoir beaucoup moins pressant; autant il est passionnant, inquiétant de savoir |
+devoir d'égalité est un devoir beaucoup moins pressant; autant il est passionnant, inquiétant de savoir
 qu'il y a encore des hommes dans la misère, autant il
 n'est égal de savoir si, hors de la misère, les hommes
 ont des morceaux plus ou moins grands de fortune; je
-ne puis parvenir à me passionner pour ia question
-célèbre de savoir à qui reviendra, dans la cité future, ;
+ne puis parvenir à me passionner pour question
+célèbre de savoir à qui reviendra, dans la cité future,;
 les bouteilles de champagne, les chevaux rares, les
 châteaux de la vallée de la Loire; j'espère qu'on s'ar-
 
-i rangera toujours; pourvu qu'il y ait vraiment une cité,
+rangera toujours; pourvu qu'il y ait vraiment une cité,
 c'est-à-dire pourvu qu'il n'y ait aucun homme qui soit
 banni de la cité, tenu en exil dans la misère économique,
 tenu dans l'exil économique, peu m'importe que tel ou
@@ -1042,9 +1041,9 @@ n'est pas du même ordre que le problème de Finégalité.
 Ici encore les anciennes préoccupations, les préoccupations traditionnelles, instinctives de l'humanité se
 trouvent à l'analyse beaucoup plus profondes, beaucoup
 plus justifiées, beaucoup plus vraies que les récentes,
-et presque toujours factices, manifestations de la démocratie ; sauver les misérables est un des soucis les plus
+et presque toujours factices, manifestations de la démocratie; sauver les misérables est un des soucis les plus
 anciens de la noble humanité, persistant à travers toutes
-les civilisations ; d'âge en âge la fraternité, qu'elle revête
+les civilisations; d'âge en âge la fraternité, qu'elle revête
 la forme de la charité ou la forme de la solidarité; qu'elle
 s'exerce envers l'hôte au nom de Zeus hospitalier, qu'elle
 accueille le misérable comme une figure de Jésus-Christ,
@@ -1072,28 +1071,28 @@ qui a fait le monde.
 A côté de ce grand sentiment le sentiment de l'égalité
 paraîtra petit; moins simple aussi; quand tout homme
 est pourvu du nécessaire, du vrai nécessaire, du pain
-et du livre, que nous importe la répartition du luxe; :
+et du livre, que nous importe la répartition du luxe;:
 que nous importe, en vérité, l'attribution des automo-
-biles à deux cent cinquante chèvaux, s'il y en a; il faut
+biles à deux cent cinquante chèvaux, s'il y en il faut
 que les sentiments de la fraternité soient formidables
 pour avoir tenu en échec depuis le commencement de
 l'humanité, depuis l'évolution de l'animalité, tous les
 et pour avoir gagné sur eux: au contraire le sentiment
 de l'égalité n'est pas un vieux sentiment, un sentiment
-perpétuel, un sentiment universel, de toute grandeur; :
+perpétuel, un sentiment universel, de toute grandeur;:
 il apparaît dans l'histoire de l'humanité en des temps
 déterminés, comme un phénomène particulier, comme
 une manifestation de l'esprit démocratique; ce sont
 toujours, en quelque sens, les sentiments de la frater-
 nité qui ont animé les grands hommes et les grands
 peuples, animé, inquiété, car la préoccupation de la
-misère ne va jamais sans une amertume, une inquié-
+misère ne jamais sans une amertume, une inquié-
 tude. Au contraire le sentiment de l'égalité n'a inspiré
 que des révolutions particulières contestables; il a opéré
 cette révolution anglaise, qui légua au monde moderne
 une Angleterre si nationaliste, impérialiste; il a opéré
 cette révolution américaine, qui instaura une république si impérialiste, et capitaliste; il n'a pas institué
-l'humanité; il n'a pas préparé la cité; il n'a instauré :
+l'humanité; il n'a pas préparé la cité; il n'a instauré:
 
 que des gouvernements démocratiques. C'est un sentiment composé, mêlé, souvent impur, où la vanité,
 l'envie, la cupidité contribuent. La fraternité inquiète,
@@ -1113,35 +1112,35 @@ Le vrai misérable, quand une fois il a réussi à s'évader de sa misère, en g
 les vrais misérables, une fois retirés, sont si contents
 d'être réchappés que, sauf de rares exceptions, ils sont
 contents pour le restant de leur vie; volontiers pauvres,
-ls sont si heureux d'avoir acquis la certitude que ce
+sont si heureux d'avoir acquis la certitude que ce
 bonheur les contente; la contemplation de ce bonheur
 
 : les alimente; optimistes, satisfaits, désormais soumis,
 doux, conservateurs, ils aiment cette résidence de
-quiétude ; ils ne demandent pas une égalisation des
+quiétude; ils ne demandent pas une égalisation des
 richesses, parce qu'ils sentent ou parce qu'ils savent
 
 troisième cahier de la quatrième série
-que cette égalisation n'irait pas sans de nouvelles |
-avemures, qu'elle rouvrirait l'ère des incertitudes, \
+que cette égalisation n'irait pas sans de nouvelles
+avemures, qu'elle rouvrirait l'ère des incertitudes,
 qu'elle donnerait ou laisserait place au recommence-
-ment du risque ; ils peuvent ainsi redouter cette égali- |
+ment du risque; ils peuvent ainsi redouter cette égali-
 sation comme un recommencement de la misère; ils
 n'en sont guère partisans; ils aiment la conservation
 politique et sociale, parce qu'ils aiment la conservation
 de la certitude; les partis de conservation n'ont pas de
 plus nombreux contingent, de plus compact, et solide,
-que celui des pauvres évadés de la misère, assurés :
-contre la misère ; anciens misérables ils ont conservé de
+que celui des pauvres évadés de la misère, assurés:
+contre la misère; anciens misérables ils ont conservé de
 la misère une mémoire si redoutée que ce qu'ils redoutent le plus c'est le risque. Les conservateurs modestes
 non réactionnaires sont les conservateurs les plus conservateurs. Ils n'ont pas du tout la passion de l'égalité.
 Ils ne sont pas du tout des révoltés. Ils ignorent trop
 souvent, ou désapprennent, les sentiments de la fraternité.
 Quelques misérables au contraire ont gardé de leur
 misère un souvenir si anxieux qu'ils ne peuvent se tenir
-dans ces régions de la pauvreté, quantitativement, |
-géographiquement voisines de la misère; ils fuient en |
-hauteur dans les régions économiques les plus éloignées de la misère ; ils deviennent immensément riches,
+dans ces régions de la pauvreté, quantitativement,
+géographiquement voisines de la misère; ils fuient en
+hauteur dans les régions économiques les plus éloignées de la misère; ils deviennent immensément riches,
 beaucoup moins par cupidité des richesses que par
 effroi de la misère ancienne; ces malheureux ne peuvent
 retrouver le repos, la paix de l'âme, que dans des
@@ -1149,7 +1148,7 @@ situations économiques si éloignées de leur situation
 première que le voyage de retour paraisse impossible à
 jamais; ainsi apparaissent des ambitieux singuliers,
 singulièrement formidables, ambitieux de gouvernement
-chez qui la passion du gouvernement n'est pas la pre36
+chez qui la passion du gouvernement n'est pas la
 
 mière, ambitieux de banque, de commerce, d'industrie
 chez qui la passion du gouvernement financier, commercial, industriel, chez qui la passion du travail, chez
@@ -1158,44 +1157,44 @@ de grandes aventures industrielles présenteraient beaucoup d'exemples; ambitieu
 rois américains présenteraient des exemples particulièrement nombreux; ambitieux dont les campagnes
 économiques étaient, elles aussi, des fuites en avant;
 et dans l'ambition de Napoléon Bonaparte même on
--  reconnaîtrait cet effroi persistant, la peur de retomber
+- reconnaîtrait cet effroi persistant, la peur de retomber
 dans la misère, dans le risque, dans l'aventure; la proclamation de l'Empire semble avoir été surtout pour
-lui une assurance, plus une assurance qu'un agrandissement ; il pensait à fixer la fortune, à consolider; il
+lui une assurance, plus une assurance qu'un agrandissement; il pensait à fixer la fortune, à consolider; il
 n'avait sans doute pas alors, à l'égard de la certitude,
 une mentalité très éloignée de celle d'un bon fonctionnaire qui songe à la régularité de l'avancement, à la
 sécurité de la situation, à la tranquillité de la retraite.
 Il voulut avoir son bureau.
 
 Telle est en effet la prolongation de la marque de la
-misère : ceux qui échappent à la misère n'échappent
+misère: ceux qui échappent à la misère n'échappent
 pas à la mémoire de leur misère; ou par continuation,
 ou par un effet de réaction, toute leur vie ultérieure en
-est qualifiée ; les uns, de beaucoup les plus nombreux,
+est qualifiée; les uns, de beaucoup les plus nombreux,
 se taisent dans la conservation de la pauvreté; ils ne
-sont pas révolutionnaires ; ils ne sont pas égalitaires ;
+sont pas révolutionnaires; ils ne sont pas égalitaires;
 ils demeurent au-dessous de l'égalité; les autres, quelques-uns, ne sont révolutionnaires que pour soi; ils ne
 sont pas égalitaires non plus; ils s'enfuient au-dessus
-de l'égalité. Ce sont là deux démarches contraires, mais
+de l'égalité. Ce sont deux démarches contraires, mais
 
 troisième cahier de la quatrième série
-elles ont la même cause : les uns fuient la mémoire du |
+elles ont la même cause: les uns fuient la mémoire du
 risque dans l'assurance de la pauvreté; les autres fuient
 la mémoire de la gène dans l'abondance des richesses.
 On compterait que l'immense majorité des anciens miséreux se réfugie ainsi dans des amnésies volontaires;
 on noterait chez beaucoup d'écrivains des cas très caractérisés de cette amnésie, car beaucoup d'écrivains ont
 connu vraiment la misère dans leurs commencements,
-et peu d'écrivains ont su nous donner une exacte repré-
+et peu d'écrivains ont nous donner une exacte repré-
 sentation de la misère; cette amnésie prouveraiït au
 besoin combien la misère est grave, puisque d'une part
-la mémoire de la misère demeure si vivante au cœur des |
+la mémoire de la misère demeure si vivante au cœur des
 anciens misérables, et puisque d'autre part ils font des
 efforts si désespérés pour échapper à cette remémoration. Cette amnésie est pour eux comme une amnistie.
 
-Restent ceux qui ayant par eux-mêmes la connaissance de la misère présente ou ayant eu la connaissance de la misère ne redoutent pas d'analyser la misère
-ainsi connue ; misérables ou anciens misérables, ils ont
+Restent ceux qui ayant par eux-mêmes la connaissance de la misère présente ou ayant la connaissance de la misère ne redoutent pas d'analyser la misère
+ainsi connue; misérables ou anciens misérables, ils ont
 le courage de regarder la misère en face, ils ont le courage de ne pas se réfugier dans l'amnésie; quand ils
-sont engagés dans l'action, ces misérables et ces anciens ;
-misérables se reconnaissent à des caractères constants ;
+sont engagés dans l'action, ces misérables et ces anciens;
+misérables se reconnaissent à des caractères constants;
 mais ces caractères ne sont guère sensibles qu'à ceux
 qui les ont eux-mêmes: ils sont profondément révolutionnaires, c'est-à-dire qu'ils travaillent tant qu'ils
 peuvent à effectuer cette révolution de la société qui
@@ -1204,36 +1203,36 @@ sans aucune exception; ils sont profondément socialistes, c'est-à-dire qu'ils 
 des misères morales ou mentales tant que l'on ne sauve
 pas de la misère économique; ils ne sont pas égali-
 
-taires ; ils ne sont pas belliqueux ; ils ne sont pas militaires ; ils ne sont pas autoritaires ; ils ne subissent
-pas l'autorité ; ils ne sont pas enthousiastes ; ils ont
-l'admiration rare ; ils évitent les cérémonies, officielles,
-officieuses ; ils se méfient de l'éloquence ; ils redoutent
-l''apparat ; on les accuse, non sans apparence de raison,
+taires; ils ne sont pas belliqueux; ils ne sont pas militaires; ils ne sont pas autoritaires; ils ne subissent
+pas l'autorité; ils ne sont pas enthousiastes; ils ont
+l'admiration rare; ils évitent les cérémonies, officielles,
+officieuses; ils se méfient de l'éloquence; ils redoutent
+l''apparat; on les accuse, non sans apparence de raison,
 d'être tristes, souvent maussades; ils ne paraissent
-pas aux banquets ; ils ne portent ni ne soutiennent les
-toasts ; la chaleur communicative ne se communique
-pas en eux ; les voies retentissants les laissent froids ;
+pas aux banquets; ils ne portent ni ne soutiennent les
+toasts; la chaleur communicative ne se communique
+pas en eux; les voies retentissants les laissent froids;
 les ordres du jour de victoire les laissent indifférents
-et perpétuellement battus ; les drapeaux, même rouges,
-leur font mal aux yeux ; les fanfares, même socialistes
-révolutionnaires, les étourdissent ; la joie des fêtes
-publiques leur paraît grossière ; les inaugurations pompeuses ne leur apportent pas la profonde joie des commencements et des naissances ; les enterrements et les
+et perpétuellement battus; les drapeaux, même rouges,
+leur font mal aux yeux; les fanfares, même socialistes
+révolutionnaires, les étourdissent; la joie des fêtes
+publiques leur paraît grossière; les inaugurations pompeuses ne leur apportent pas la profonde joie des commencements et des naissances; les enterrements et les
 commémorations ne leur apportent pas la parfaite
 plénitude complète achevée de la mort; ils sont très
-sévères ; ils ne se montent pas le coup sur la valeur des
-hommes et des événements ; ayant une fois mesuré le
+sévères; ils ne se montent pas le coup sur la valeur des
+hommes et des événements; ayant une fois mesuré le
 monde à l'immense mesure de la misère, ils ne mesurent pas à d'autres mesures; les mesures usuelles,
-succès, majorité, vente, leur paraissent pelites ;
+succès, majorité, vente, leur paraissent pelites;
 les malheurs qui ne sont pas de la misère, insuccès,,
 minorité, mévente, ne leur paraissent pas des malheurs
-sérieux ; les malheurs qui ne font pas tomber ou
+sérieux; les malheurs qui ne font pas tomber ou
 retomber dans la misère ne leur paraissent pas des
 malheurs pour de bon; les bonheurs qui, dans l'ordre
 de l'économie, ne sont pas le bonheur d'échapper à la
-misère ne leur paraissent pas des bonheurs proprement dits : ce ne sont plus que des avantages, des com39
+misère ne leur paraissent pas des bonheurs proprement dits: ce ne sont plus que des avantages, des
 
 troisième cahier de la quatrième série
-modités ; les hommes qui n'ont pas connu comme eux
+modités; les hommes qui n'ont pas connu comme eux
 la misère et qui parlent et qui sont éloquents leur
 paraissent toujours n'avoir pas atteint l'âge adulte, leur
 font l'effet d'enfants bavards; les misérables et les
@@ -1247,23 +1246,23 @@ qu'il y a tant de misère présente, ils ne peuvent nine
 veulent oublier cette existence ni cette connaissance.
 l'espace d'un banquet, le temps de boire au plus récent
 triomphe définitif de la Révolution sociale. Donc on les
-haït. Ils savent que la misère n'intervient pas dans la .
+haït. Ils savent que la misère n'intervient pas dans la.
 vie comme un élément du passif dans l'établissement
 d'un bilan. Ceux qui n'ont pas connu la misère peuvent
 s'imaginer loyalement et logiquement que dans la vie
 de l'individu les éléments d'assurance et les éléments
 de misère sont des éléments du même ordre, qu'ils
-reçoivent la même mesure, qu'ils peuvent donc s'opposer, s''équilibrer, se balancer : nous savons qu'il n'en est
+reçoivent la même mesure, qu'ils peuvent donc s'opposer, s''équilibrer, se balancer: nous savons qu'il n'en est
 rien; les éléments de misère ont un retentissement total
 sur les éléments de certitude: les éléments d'incertitude
 qualifient les éléments de certitude; mais tant que la
 certitude n'est pas complète les éléments de certitude
 ne qualifient pas les éléments d'incertitude; aussi longtemps que la certitude n'est pas complète, elle n'est
 pas la certitude; une vie assurée de tous les côtés
-moins un n'est pas une vie assurée; un véritable malbeur, une véritable misère empoisonne toute une vie; |
+moins un n'est pas une vie assurée; un véritable malbeur, une véritable misère empoisonne toute une vie;
 
 un véritable bonheur ne peut pas même se produire
-dans la misère ; il y devient aussitôt misère lui-même
+dans la misère; il y devient aussitôt misère lui-même
 et malheur; il ne s'agit donc pas d'établir un bilan de
 la vie individuelle où bonheur et misère seraient équilibrés; même si on réussissait à établir ce bilan, c'est
 en vain que les éléments de bonheur surpasseraient
@@ -1272,8 +1271,8 @@ n'atteignent pas les éléments de misère, et les éléments
 de misère atteignent les éléments de bonheur; mais on
 ne peut pas même établir ce bilan, parce que les élé-
 ments de bonheur et les éléments de misère ne sont pas
-du même ordre ; et l'on ne peut pas comparer ce qui
-n'est pas du même ordre. Pour une vie individuelle, à ;
+du même ordre; et l'on ne peut pas comparer ce qui
+n'est pas du même ordre. Pour une vie individuelle, à;
 l'égard de la misère, tant qu'on n'a pas fait tout, on n'a
 rien fait.
 
@@ -1283,11 +1282,11 @@ qu'elles reçoivent le même compte, qu'elles peuvent
 donc s'opposer, s'équilibrer, se balancer; nous savons
 qu'il n'en est rien; les vies de misère peuvent avoir ou
 n'avoir pas de retentissement individuel sur les vies
-assurées ; il reste que la misère des vies individuelles
+assurées; il reste que la misère des vies individuelles
 
-| a un retentissement sur toute la vie sociale, sur la
-| société, sur l'humanité ; une cité assurée de tous les
-côtés moins un n'estpas une cité ; un véritable maiheur
+a un retentissement sur toute la vie sociale, sur la
+société, sur l'humanité; une cité assurée de tous les
+côtés moins un n'estpas une cité; un véritable maiheur
 individuel, une véritable misère individuelle empoisonne toute une cité; une cité n'est pas fondée tant
 qu'elle admet une misère individuelle, quand même
 l'individu intéressé y consentirait; un telconsentement,
@@ -1295,15 +1294,15 @@ un tel renoncement, recommandé dans la morale de la
 
 troisième cahier de la quatrième série
 charité, est incompatible avec la morale de la solidarité:
-à il ne s'agit donc pas d'établir un bilan de la vie sociale |
-où vies individuelles d'assurance et vies individuelles |
-de misère seraient équilibrées ; même si on réussissait
-à établir ce bilan, c'est en vain que les vies de bonheur |
-surpasseraient en nombre, en quotité, les vies de misère. ;
+à il ne s'agit donc pas d'établir un bilan de la vie sociale
+où vies individuelles d'assurance et vies individuelles
+de misère seraient équilibrées; même si on réussissait
+à établir ce bilan, c'est en vain que les vies de bonheur
+surpasseraient en nombre, en quotité, les vies de misère.;
 car les vies de bonheur n'atteignent pas les vies de
-misère et les vies de misère atteignent les vies de bon- ;
+misère et les vies de misère atteignent les vies de bon-;
 heur; mais on ne peut pas même établir ce bilan, parce
-que les vies de bonheur et les vies de misère ne sont {
+que les vies de bonheur et les vies de misère ne sont
 pas du même ordre; on ne peut les comparer. Pour la
 vie sociale, à l'égard de la misère, tant qu'on n'a pas
 fait tout, on n'a rien fait.
@@ -1311,18 +1310,18 @@ En intensité, aucun bonheur n'est plus intense que la
 Les misérables et les anciens misérables conscients
 savent cela; et ceux qui ne le veulent pas oublier ne
 manifestent pas perpétuellement une joie publique
-d'État, gratuite, laïque et obligatoire. Quand on célèbre |
-par des fêtes ininterrompues un avancement douteux, .
+d'État, gratuite, laïque et obligatoire. Quand on célèbre
+par des fêtes ininterrompues un avancement douteux,.
 ils pensent à la misère non douteuse; quand on célèbre
-un avancement précaire, ils pensent à tout ce qui n'est |
-pas fait; au milieu de la joie ils pensent à la misère |
-extérieure ; ils sont des trouble-fête : on les haït; on }
-les estime et on les haït; ils ne haïssent pas; ils n'estiment pas. ;
+un avancement précaire, ils pensent à tout ce qui n'est
+pas fait; au milieu de la joie ils pensent à la misère
+extérieure; ils sont des trouble-fête: on les haït; on
+les estime et on les haït; ils ne haïssent pas; ils n'estiment pas.;
 On les haït surtout dans les partis socialistes révolutionnaires nationalement et régionalement constitués;
 un assez grand nombre de bourgeois admettent que des
 chrétiens ou que des socialistes pensent aux misères
 de la société bourgeoise: les camarades socialistes
-révolutionnaires n'admettent pas qu'on ne communie ]
+révolutionnaires n'admettent pas qu'on ne communie
 
 pas infatigablement avec eux dans les apothéoses des
 punchs. Le parti de la souffrance est tout à la joie. Ilest
@@ -1342,9 +1341,9 @@ dire que n'a dit M. Sorel, — un article du Mouvement
 Socialiste, reproduit dans le huitième cahier de la
 troisième série, — et je me suis moi-même expliqué
 plusieurs fois. Bien lu, le Jean Coste est rigoureusement
-réaliste. Quand on a dit : C'est trop noir, on ne voulait
-pas seulement dire : C'est trop noir; on entendait, ce qui
-est au moins aussi important : Avec des noirceurs qu'on
+réaliste. Quand on a dit: C'est trop noir, on ne voulait
+pas seulement dire: C'est trop noir; on entendait, ce qui
+est au moins aussi important: Avec des noirceurs qu'on
 mettrait, tout le monde pourrait en faire autant.— Qu'on
 se détrompe. Ce n'est pas avec du noir étalé romantiquement sur du noir que l'on fait un Jean Coste; rien
 n'est aussi éloigné qu'un Jean Coste du romantique et
@@ -1352,10 +1351,10 @@ du mélodramatique; rien n'est aussi difficile à faire
 qu'un Jean Coste; c'est une erreur d'art grossière que
 de s'imaginer qu'il faut et qu'il suffit de fourrer du noir
 
-| pour obtenir un effet de misère ou un effet de tristesse;
-| il pourrait arriver à Jean Coste un assez grand nombre
+pour obtenir un effet de misère ou un effet de tristesse;
+il pourrait arriver à Jean Coste un assez grand nombre
 
-troisième cahier de la quatrième série .
+troisième cahier de la quatrième série.
 d'événements beaucoup plus graves qu'il ne lui en
 arrive, et que sa vie fût moins misérable; inversement
 il pourrait ne pas lui arriver tous les événements graves
@@ -1363,26 +1362,26 @@ qui lui arrivent, et que sa vie ne fût pas moins misé-
 rable; ce ne sont pas les seuls événements extérieurs
 qui font l'assurance ou la misère; la misère n'est pas
 mathématiquement proportionnée à la gravité des évé-
-nements extérieurs ; si la seule ingéniosité des supplices |
+nements extérieurs; si la seule ingéniosité des supplices
 d'imagination faisait l'épouvantement d'un enfer,
-M. Mirbeau y suflirait; mais ce qui fait justement que N |
-M. Octave Mirbeau n'est pas Dante, c'est qu'un enfer #
+M. Mirbeau y suflirait; mais ce qui fait justement que
+M. Octave Mirbeau n'est pas Dante, c'est qu'un enfer
 n'est pas tout constitué par la seuie imagination de litté-
-rature. Il y faut ou du génie ou ce qui peut seul remplacer le génie et souvent se confond avec lui : d'avoir
-vécu soi-même une vie, ou de l'avoir vu soi-même vivre {
+rature. Il y faut ou du génie ou ce qui peut seul remplacer le génie et souvent se confond avec lui: d'avoir
+vécu soi-même une vie, ou de l'avoir soi-même vivre
 de très près, en sympathie, en amour.
 
 Je l'ai dit moi-même à Lavergne et il me permettra
-de le redire : Jean Coste est un livre si fort que ce n'est |
-pas un livre de série ; ce n'est pas un commencement de |
-série; ce n'est pas un de ces premiers livres qui annoncent assurément toute une bibliothèque, histoire naturelle et sociale de toute une famille sous la troisième !
-République; ce n'est pas un de ces premiers livres dont |
-on peut dire après qu'on les a lus : l'auteur en a quarante-cinq dans le ventre et nous en aurons un tous Îles
+de le redire: Jean Coste est un livre si fort que ce n'est
+pas un livre de série; ce n'est pas un commencement de
+série; ce n'est pas un de ces premiers livres qui annoncent assurément toute une bibliothèque, histoire naturelle et sociale de toute une famille sous la troisième!
+République; ce n'est pas un de ces premiers livres dont
+on peut dire après qu'on les a lus: l'auteur en a quarante-cinq dans le ventre et nous en aurons un tous Îles
 ans; c'est au contraire un de ces livres si forts qu'ils
 paraissent être sortis de l'auteur bien plutôt qu'il ne les
-a faits; quand on les a lus il en reste une impression si |
+a faits; quand on les a lus il en reste une impression si
 forte que l'on se demande si l'auteur pourra jamais
-recommencer; je ne dis pas cela pour diminuer Lavergne, |
+recommencer; je ne dis pas cela pour diminuer Lavergne,
 au contraire, ni pour limiter le champ de son travail
 éventuel; j'attends beaucoup de ce qu'il fera; mais à
 
@@ -1398,22 +1397,22 @@ répandu que les noms de ces personnages fameux, parce
 que le sujet du livre est beaucoup moins vaste, moins
 largement humain, parce que le livre intéresse une
 humanité beaucoup plus restreinte, parce qu'il est un
-peu strictement professionnel ; mais, ces réserves faites,
+peu strictement professionnel; mais, ces réserves faites,
 ou plutôt ces mesures prises, à proportion le livre de
-Lavergne est un livre de la famille de ces livres traditionnels ; c'est un livre dangereux pour les suivants, et
+Lavergne est un livre de la famille de ces livres traditionnels; c'est un livre dangereux pour les suivants, et
 redoutable pour l'auteur même.
 
 On s'en aperçoit pour peu qu'on sache lire, et si l'on
-avait quelque hésitation, il suflirait de comparer l'œuvre |
+avait quelque hésitation, il suflirait de comparer l'œuvre
 de Lavergne à certains volumes de Zola; je ne veux
 pas entrer par une incidence dans la critique d'un
 
-| monument aussi colossal; mais que l'on compare les
+monument aussi colossal; mais que l'on compare les
 misères si fréquemment décrites par Zola dans ses
 romans à la misère d'un Jean Coste; les misères de
 Zola sont presque toujours beaucoup plus noires que la
 misère de Jean Coste; les événements sont beaucoup
-plus graves, beaucoup plus dramatiques ; et pourtant
+plus graves, beaucoup plus dramatiques; et pourtant
 l'impression n'est pas la même; les misères de Zola
 sont des misères de description, des misères vues par
 un touriste laborieux, souvent consciencieux, par un
@@ -1421,41 +1420,41 @@ inspecteur des misères, par un excursionniste; les
 
 troisième cahier de la quatrième série
 misères de Jean Coste sont vues de l'intérieur, vécues
-par un misérable; quand on lit du Zola les horreurs %
-accumulées produisent fréquemment une impression :
+par un misérable; quand on lit du Zola les horreurs
+accumulées produisent fréquemment une impression:
 terrible; mais à mesure que la lecture physique s'éloigne
 l'impression, qui était littéraire, diminue, s'atténue,
-s'efface, laisse place à une impression de fabrique ou #
+s'efface, laisse place à une impression de fabrique ou
 de renseignement; quand on lit le Jean Coste on n'a
-pas une impression aussi terrible; on a plutôt une |
+pas une impression aussi terrible; on a plutôt une
 impression triste, commune, et cette impression si
-trompeuse, que l'on pourrait en faire autant; on ferme :
+trompeuse, que l'on pourrait en faire autant; on ferme:
 le livre, sur cette impression qu'il ne nous a rien appris
 de nouveau; le temps passe; les images travaillent
 dans la mémoire; les images de littérature s'effacent
-les images de réalité s'élaborent; Jean Coste, sa femme, #
+les images de réalité s'élaborent; Jean Coste, sa femme,
 sa mère, ses enfants se dessinent, vivent, gagnent; la
-charpente même du roman nous apparaît, simple, |
+charpente même du roman nous apparaît, simple,
 grande, robuste, solide, loyale; cette image de Jean à
 Coste et de sa misère nous poursuit, nous hante; c'est à
 un misérable familier; il vit parmi nous; et nous souf-
-frons de ne pas pouvoir lui donner de notre pain : telle A
+frons de ne pas pouvoir lui donner de notre pain: telle A
 est la différence d'un livre classique, réaliste, à une
 construction romantique, nommée naturaliste ou réa-
 On m'objectera que Lavergne n'en a pas cherché si
 long pour faire son Jean Coste; je l'espère bien; mais
 c'est le propre de la probité, de la sincérité classique
-mettant le réel même en œuvre, elle supporte le même ;
+mettant le réel même en œuvre, elle supporte le même;
 examen que le réel; comme le réel même elle épuise
 inlassablement la science, la critique, l'analyse; pour
 la même raison que l'on marche avant de savoir l'ana-
-tomie et la physiologie du mouvement musculaire, pour |
+tomie et la physiologie du mouvement musculaire, pour
 la même raison Jean Coste instituteur, vivant une vie
 
 réelle, fournit l'inépuisable matière d'une étude qu'il
 peut n'être pas capable de faire; et pour la même
 raison Lavergne, opérant une œuvre réelle, fournit,
-î comme et d'après son modèle vivant, l'inépuisable
+comme et d'après son modèle vivant, l'inépuisable
 matière d'une étude qu'il n'est pas forcé d'avoir faite;
 ni la vie sous la forme de l'action, ni la vie sous la
 forme de l'opération, n'attend après la science; la
@@ -1464,17 +1463,17 @@ corroborer; mais la science ne fait pas la vie; c'est
 méconnaître à la fois la vie et la science, l'impérieuse
 nécessité de la vie et la liberté totale de la science, que
 de brouiller ainsi les fonctions de la connaissance et les
-fonctions de l'action ; c'est précisément cette confusion
+fonctions de l'action; c'est précisément cette confusion
 qui a préparé l'usurpation du romantisme et de la
 représentation; au lieu de vivre une vie réelle dans
 l'ordre de l'action, le romantique vit une image, une
-représentation de vie en pensant aux spectateurs ;
+représentation de vie en pensant aux spectateurs;
 quand il n'a pas de spectateurs, lui-même il se fait
-spectateur; il n'agit pas en considérant la réalité agie ;
+spectateur; il n'agit pas en considérant la réalité agie;
 mais il agit comme à la scène; il est en perpétuelle
-représentation ; il ne pense qu'aux effets produits; il se
+représentation; il ne pense qu'aux effets produits; il se
 conduit dans l'ordre de l'action en fonction non pas de
-| l'action, mais de la connaissance qu'il veut que le spectateur ait de cette action; pour dire le mot, il est tout
+l'action, mais de la connaissance qu'il veut que le spectateur ait de cette action; pour dire le mot, il est tout
 envahi de cabotinage; au lieu d'avoir une réalité comme
 est la réalité, matérielle, récalcitrante, obscure, difficile,
 et débordant de toutes parts la connaissance et la
@@ -1484,28 +1483,28 @@ facile, commode à la connaissance, de même grandeur
 qu'elle, non mystérieuse; et ce n'est pas étonnant, puisque
 
 troisième cahier de la quatrième série
-en eux les fonctions de la connaissance ont eu la com-
-plaisance de se fabriquer pour soi une réalité à con- |
-naître : au lieu d'attacher les fonctions de la connais-
-_ sance à la réalité, aux vestiges de la réalité, ils ont fait
+en eux les fonctions de la connaissance ont la com-
+plaisance de se fabriquer pour soi une réalité à con-
+naître: au lieu d'attacher les fonctions de la connais-
+sance à la réalité, aux vestiges de la réalité, ils ont fait
 fabriquer par ces fonctions une réalité faite exprès pour
-elles; ainsi les romantiques ne font le tour du monde pa
+elles; ainsi les romantiques ne font le tour du monde
 que parce qu'ils ont commencé par se fabriquer un petit a
 monde circumnavigable.
-On a reproché à Jean Coste une certaine grandilo- {
-la lui reprocher : il parle comme il peut; on a eu tort
-de la reprocher à l'auteur : l'auteur a bien vu: c'est un $
+On a reproché à Jean Coste une certaine grandilo-
+la lui reprocher: il parle comme il peut; on a tort
+de la reprocher à l'auteur: l'auteur a bien vu: c'est un
 fait que les misérables se plaisent un peu à ce qui nous
 semble de la grandiloquence; ils sont trop souvent ora-
-toires, et quelquefois rhéteurs ; cela ne tient pas seulement à la vanité commune, exacerbée, aigrie par la
+toires, et quelquefois rhéteurs; cela ne tient pas seulement à la vanité commune, exacerbée, aigrie par la
 misère; cela ne tient pas seulement au vice de littéra-
-ture, de phrase, à l'envahissement du jargon politique ; à
-il y en a une cause beaucoup plus belle, beaucoup plus ‘
+ture, de phrase, à l'envahissement du jargon politique; à
+il y en a une cause beaucoup plus belle, beaucoup plus
 noble et beaucoup plus profonde, beaucoup plus
-humaine : la misère est une grandeur; si grande que les
-petites ; quand on connaît bien de vrais miséreux, ce #
-qui frappe le plus en eux, dans l'abaissement même, ra
-c'est un certain ton de hauteur; leur humilité n'est sou- ‘|
+humaine: la misère est une grandeur; si grande que les
+petites; quand on connaît bien de vrais miséreux, ce
+qui frappe le plus en eux, dans l'abaissement même,
+c'est un certain ton de hauteur; leur humilité n'est sou-
 vent que de la hauteur, intérieurement possédée; ils À
 ont toujours l'air de dire en parlant aux autres hommes:
 vous qui ne connaissez pas la vie, parce que vous ne
@@ -1515,28 +1514,28 @@ jours porter, et qui leur monte à la tête; ils ne tombent à
 
 dans la grandiloquence que parce qu'ils ont un besoin
 de monter jusqu'à la grande éloquence, et qu'ils ne
-savent pas toujours ; c'est le propre de cette grandeur
+savent pas toujours; c'est le propre de cette grandeur
 qu'est la misère de n'avoir pour ainsi dire jamais
 été choisie, élue, voulue, préparée; c'est une grandeur
-involontaire, venue du destin, non préparée : de là cette
+involontaire, venue du destin, non préparée: de cette
 gaucherie haute, cette insolence prétentieuse des têtes
-désignées ; les misérables sont investis d'une grandeur
-qu'ils n'avaient pas demandée ; ils sont condamnés par
+désignées; les misérables sont investis d'une grandeur
+qu'ils n'avaient pas demandée; ils sont condamnés par
 la force des événements à jouer la vie au tragique sans
-avoir le tempérament ou le génie tragique ; ils jouent
-faux ; ils jouent mélodramatique au lieu de jouer tragique ; et l'on croit que leur vie est mélodramatique ;
-mais elle est tragique tout de même : c'est l'expression
+avoir le tempérament ou le génie tragique; ils jouent
+faux; ils jouent mélodramatique au lieu de jouer tragique; et l'on croit que leur vie est mélodramatique;
+mais elle est tragique tout de même: c'est l'expression
 qui manque. Même il se produit parmi les misérables
 un phénomène assez analogue à celui qui se produit
-parmi les grands : de même que les grands héréditaires
+parmi les grands: de même que les grands héréditaires
 
 ont une aisance que les parvenus n'ont pas, de même
 les misérables héréditaires ont une aisance que n'ont
 pas les naufragés de la vie; les familles de miséreux se
 tiennent mieux devant la misère. Je ne parle pas des
-fatalistes ; et combien d'orgueil encore, et de hauteur,
+fatalistes; et combien d'orgueil encore, et de hauteur,
 
-| dans le fatalisme.
+dans le fatalisme.
 
 On lui a reproché d'avoir un langage précieux. L'auteur a bien entendu. Je connais les primaires. Non seulement je fus élevé à l'école primaire, de sept à onze
 ans, mais cette école était l'école primaire annexe à
@@ -1550,7 +1549,7 @@ droite si l'on coupait la France de Liège à Bayonne.
 
 La plupart des gens qui flattent aujourd'hui les instituteurs pour s'en faire une clientèle sont des bourgeois
 
-J'aimais beaucoup mes maïtres primaires. J'ai conservé des relations personnelles, respectueuses, affec- |
+J'aimais beaucoup mes maïtres primaires. J'ai conservé des relations personnelles, respectueuses, affec-
 tueuses, avec la plupart d'entre eux. Venu au lycée,
 nous eûmes avec les normaliens primaires d'excellentes
 relations. Nous fimes, sans phrases, la fameuse fusion
@@ -1566,14 +1565,14 @@ l'œuvre du Livre pour tous, par Pages libres, je continue à communiquer avec d
 plus nombreux. Nous avons beaucoup moins d''instituteurs abonnés de propagande ou abonnés ordinaires
 que nous ne servions la première année d'abonnements
 gratuits à des instituteurs. Mais dans l'accroissement
-régulièrement lent de nos cahiers, les instituteurs figu- |
+régulièrement lent de nos cahiers, les instituteurs figu-
 rent pour un accroissement supérieur à l'accroissement
-moyen. Les instituteurs nous écrivent longuement ; et je
+moyen. Les instituteurs nous écrivent longuement; et je
 lis scrupuleusement tout ce qu'on nous écrit.
 
 Je connais donc les instituteurs. Je les connais comme
 
-| un inspecteur général ne les connaît pas. Je les connais
+un inspecteur général ne les connaît pas. Je les connais
 comme l'honorable M. Buisson, qui les a faits, qui les
 connaît tant, ne les connaît pas. Surtout je les connais
 comme les politiciens qui aujourd'hui veulent se servir
@@ -1586,12 +1585,12 @@ nombreuses, quand les instituteurs écrivent, ils sont
 tentés d'écrire un peu comme Jean Coste parle, un peu
 raide, un peu mièvre, un peu prétentieux, un peu pré-
 
-Entendons-nous : il y a partout des hommes, qui
+Entendons-nous: il y a partout des hommes, qui
 
 échappent à leur métier, à leur classe, à leur entourage.
 Nous ne voulons, et nous ne pouvons parler ici que des
 
-Ë instituteurs qui ont reçu l'empreinte de leur métier, qui
+instituteurs qui ont reçu l'empreinte de leur métier, qui
 
 È sont caractérisés par leur métier, non par leur métier en
 
@@ -1603,12 +1602,12 @@ philosophie. Maïs les instituteurs qui ont subi sans résistance l'impression p
 
 É de parler peuple et n'ont pas encore appris à parler
 
-î : Parler peuple et parler français, c'est parler le même
+: Parler peuple et parler français, c'est parler le même
 
-H langage, un langage de nature et d'art, sur deux plans
+langage, un langage de nature et d'art, sur deux plans
 
 troisième cahier de la quatrième série
-différents parallèles de culture. La nature et l'art travaillent sur deux plans différents; mais ces plans sont ;
+différents parallèles de culture. La nature et l'art travaillent sur deux plans différents; mais ces plans sont;
 parallèles et les résultats sont conformes. Parler pri-
 
 maire, c'est parler un langage un peu appris, un peu
@@ -1618,7 +1617,7 @@ ouvrier ou paysan, travailleur ou soldat, ressortit à la
 
 culture humaine. Le parler primaire appartient à l'entraînement d'État.
 
-Qu'il soit hautement désirable que les primaires .
+Qu'il soit hautement désirable que les primaires.
 parlent peuple et français, oui. Mais tant qu'ils sont en
 majorité comme ils sont, l'historien doit les représenter
 comme ils sont, les faire parler, ou plutôt les écouter
@@ -1626,9 +1625,9 @@ parler, comme ils parlent. Nous n'avons à nous masquer
 aucune réalité. Nous devons savoir ce qu'est l'enseignement primaire, comme le reste. Nous devons le savoir
 en un temps où des politiciens, d'État, veulent nous
 faire croire que l'enseignement primaire supérieur est
-l'aboutissement d'un peuple et d'une humanité. :
+l'aboutissement d'un peuple et d'une humanité.:
 
-| Sur la quotité de la misère je ne crois pas que l'au- |
+Sur la quotité de la misère je ne crois pas que l'au-
 
 teur ait exagéré; il y a au moins autant de misère dans
 le monde qu'il n'en paraît, c'est-à-dire, exactement, qu'il
@@ -1640,10 +1639,10 @@ par cupidité.
 Pressez un peu quelqu'un sur le Jean Coste. J'entends
 quelqu'un de sincère et de grave, quelqu'un qui ne se
 réfugiera pas derrière les phrases conventionnelles des
-discours. On vous répondra : Sans doute, mais il y met
+discours. On vous répondra: Sans doute, mais il y met
 un peu du sien. Nous connaissons beaucoup d'institu- À
 
-+ l'atieet p LI
+l'atieet
 teurs qui sont très heureux. — L'auteur n'a jamais dit le
 contraire. Lui-même il a dit combien il y en a d'heureux,
 de pauvres, de malheureux, de misérables pour une
@@ -1654,7 +1653,7 @@ ils font des bons mariages.—N'oublions pas que l'auteur
 a fait manquer à Jean Coste un mariage préparé par
 - ses parents pour être un bon mariage. — Ah dame! s'ils
 veulent faire des mariages d'inclination! Et puis aussi
-pourquoi a-t-il tant d'enfants ? — Quatre. — C'est vouloir être malheureux.
+pourquoi a-t-il tant d'enfants? — Quatre. — C'est vouloir être malheureux.
 
 — J'y consens; mais puisque c'est ainsi que répondent les hommes sincères et réalistes, les hommes
 établis et sérieux, il faut savoir si derrière l'apparat des
@@ -1662,31 +1661,31 @@ discours officiels tout l'idéal de vie que la troisième
 République propose à un assez grand nombre de ses
 loyaux serviteurs est le mariage d'affaires ou le célibat
 
-| Je ne reviendrai pas aujourd'hui sur l'histoire du Jean
+Je ne reviendrai pas aujourd'hui sur l'histoire du Jean
 Coste avant sa publication; les campagnes les plus
 acharnées de calomnies ne me feront pas revenir sur
-d'anciens incidents ; je rappelle seulement, et Lavergne
-aime à rappeler que sans nos cahiers Jean Coste n'aurait jamais vu le jour. Le livre fut longtemps aussi
+d'anciens incidents; je rappelle seulement, et Lavergne
+aime à rappeler que sans nos cahiers Jean Coste n'aurait jamais le jour. Le livre fut longtemps aussi
 misérable que le personnage, et, au fond, de la même
 misère. L'histoire de Jean Coste après sa publication
 présente un intérêt considérable.
 
-Ce livre réussit ; il n'avait pas été fait pour plaire,
+Ce livre réussit; il n'avait pas été fait pour plaire,
 
-| mais il réussit; par ce livre simple un très grand
+mais il réussit; par ce livre simple un très grand
 nombre de lecteurs furent simplement émus; un très
 
-troisième cahier de la quatrième série #
+troisième cahier de la quatrième série
 grand nombre de critiques libres firent à ce livre une
 
 Les hommes engagés dans les partis politiques anticléricaux négligèrent d'en faire autant. J'avais bêtement
 pensé que ce livre serait bienvenu dans les partis
 républicains. J'avais oublié que les partis n'aiment pas
 le livre. Partout autour de nous on ne parlait que des
-instituteurs ; on protégeait les instituteurs; on vantait
+instituteurs; on protégeait les instituteurs; on vantait
 les instituteurs; on chérissait les instituteurs; je
 pensai qu'on accueillerait ce livre d'instituteur; je me
-trompais ; on me le fit bien voir. Les grands orateurs
+trompais; on me le fit bien voir. Les grands orateurs
 attitrés se turent; les gens qui parlent de tout ne parlèrent pas du Jean Coste; dans l'Aurore mème le livre
 n'eut que quelques lignes de Geste, un posi-scriptum,
 
@@ -1708,7 +1707,7 @@ y aurait une image peinte, je me méfiai; je ne redoute
 rien tant que les images pour un texte; aujourd'hui que
 le livre est là, relié dans sa toile verte, je dois déclarer
 que ce dessin rouge et noir me paraît beau; il est
-simple, il est sobre, il vaut le livre, il exprime le livre :
+simple, il est sobre, il vaut le livre, il exprime le livre:
 c'est tout dire.
 
 Je ne cesse de demander à nos abonnés; mais c'est
@@ -1722,19 +1721,19 @@ pour avoir le droit de parler finance. On doit toujours
 parler finance. La fausse discrétion financière est la plus
 insupportable des hypocrisies bourgeoises. Lavergne
 s'est endetté pour écrire son livre. D'ailleurs Lavergne
-a, comme tous les auteurs, comme tous les ouvriers, le
+comme tous les auteurs, comme tous les ouvriers, le
 droit et le devoir de vivre en travaillant. Nos cahiers
 sont malheureusement trop misérables eux-mêmes pour
-payer des droits d'auteur ; le temps n'est pas venu où
+payer des droits d'auteur; le temps n'est pas venu où
 dans cette institution, florissante enfin, tous les ouvriers
 auront un salaire normal, un salaire minimum.
 
 Lavergne n'a pas touché un sou des cahiers; dans la
 nouvelle édition il touche, pour la première fois de sa
-vie, des droits d'auteur; un contrat normal est intervenu ; or il est juste que Lavergne et sa famille vivent ;
+vie, des droits d'auteur; un contrat normal est intervenu; il est juste que Lavergne et sa famille vivent;
 
-| nous devons avoir beaucoup d'affection pour ceux de
-| nous qui, instituteurs ou professeurs, quittent leur
+nous devons avoir beaucoup d'affection pour ceux de
+nous qui, instituteurs ou professeurs, quittent leur
 métier et viennent exercer sur nous parmi nous leur
 
 troisième cahier de la quatrième série
@@ -1754,7 +1753,7 @@ dont nos cahiers bénéficient; mais les boycotteurs sont
 moins nombreux qu'ils ne veulent bien le croire, et
 
 Enfin la convention commerciale passée entre les
-éditeurs, l'auteur et les cahiers est telle que les exem- |
+éditeurs, l'auteur et les cahiers est telle que les exem-
 plaires de la nouvelle édition commandés à la librairie
 des cahiers nous rapportent plus que la librairie ordinaire. — Je rappelle que nous demandons à nos abonnés
 de commander tous leurs livres et périodiques à la
@@ -1789,16 +1788,16 @@ fortement attaquée, il ne faut pas déprécier l'œuvre
 scolaire de la troisième République, il ne faut pas
 décourager le recrutement des écoles normales primaires.
 
-C'est toujours la même aberration de méthode : se
+C'est toujours la même aberration de méthode: se
 masquer la réalité, au lieu de la voir et d'y travailler.
 
 Nous avons connu ainsi, sur le tard, les crimes de
-Lavergne : tout soucieux de faire un livre, un roman ;
-réaliste, il avait négligé de faire un volume anticléricaliste ; il avait fait un curé de village comme il avait vu,
+Lavergne: tout soucieux de faire un livre, un roman;
+réaliste, il avait négligé de faire un volume anticléricaliste; il avait fait un curé de village comme il avait vu,
 un curé brave homme, honnête homme, au lieu de faire
-nn curé comme il faut qu'ils soient tous pour que l'anti-
+curé comme il faut qu'ils soient tous pour que l'anti-
 
-| cléricalisme radical soit fondé; ayant à faire une élection, au lieu de mettre en présence un parti réactionnaire tout à fait immonde et un parti radical tout à fait
+cléricalisme radical soit fondé; ayant à faire une élection, au lieu de mettre en présence un parti réactionnaire tout à fait immonde et un parti radical tout à fait
 sublime, il avait mis en présence deux partis politiques
 
 troisième cahier de la quatrième série
@@ -1806,11 +1805,11 @@ D'autres, très nombreux, surtout depuis que le livre A
 a réussi, ont au contraire, — mais cela revient au À
 même, — été pris pour Jean Coste d'un amour inattendu.
 Je crois que Téry aujourd'hui se méprend sur les sen-
-timents qu'il convient d'avoir pour Jean Coste. On |
+timents qu'il convient d'avoir pour Jean Coste. On
 aime trop Jean Coste. On l'aime contre quelqu'un.
 Nous devons l'aimer pour lui-même. Il vaut d'être aimé
 pour lui-même. On veut l'aimer à condition que dans la
-commune il soit un anticuré. Nous devons l'aimer pour #
+commune il soit un anticuré. Nous devons l'aimer pour
 lui-même, comme un homme libre; il a le droit et le
 devoir d'exister pour lui-même, par lui-même, pour et
 par l'humanité, non pas seulement en opposition, en
@@ -1818,17 +1817,17 @@ conflit préparé perpétuel avec un autre homme, quel
 que soit cet homme.
 On veut aimer Jean Coste à condition qu'il soit dans
 la commune un représentant du gouvernement, un agent
-< de l'État, un émissaire des partis.
-Jean Coste n'en veut pas tant : il demande du pain;
+de l'État, un émissaire des partis.
+Jean Coste n'en veut pas tant: il demande du pain;
 ‘il demande la liberté; non pas comme une faveur, mais
 comme son droit. Il a droit au pain, il a droit à la À
-liberté, sans condition. Ii est un homme, il a les droits À
+liberté, sans condition. est un homme, il a les droits À
 d'homme, sans condition. )
 Il ne s'agit pas de faire entrer Jean Coste, bon gré
-mal gré, dans des combinaisons politiques ; il ne s'agit |
+mal gré, dans des combinaisons politiques; il ne s'agit
 pas de lui vendre ce que l'on doit lui donner; il a des
 droits imprescriptibles; il ne s'agit pas de lui vendre
-son pain, sa liberté, pour des services politiques ; il ne
+son pain, sa liberté, pour des services politiques; il ne
 s'agit pas de faire de lui le jouet des partis politiques.
 Il y perdrait toute autorité, morale, sociale, professionnelle, toute dignité, toute valeur de vie et toute valeur
 d'homme.
@@ -1861,31 +1860,31 @@ courtiers de servitude.
 Ce troc immoral est des plus fréquents dans la
 société contemporaine; les effets de ce troc se multiplient; c'est par l'universalisation de ce jeu que la
 société moderne se constitue de plus en plus comme
-une immense, comme une totale mutualité de servitude : chacun vend sa part de juste liberté pour une
+une immense, comme une totale mutualité de servitude: chacun vend sa part de juste liberté pour une
 
 troisième cahier de la quatrième série
 part d'autorité injuste qu'il exercera. Il y a même un
-marché de ces trocs, il y a un cours des valeurs : tant
+marché de ces trocs, il y a un cours des valeurs: tant
 d'autorité pour tant de liberté perdue. C'est le fondement même du suffrage universel. Ce n'en était pas le
 fondement théorique. C'en est devenu le fondement
 
-Le malheur est que la plupart des citoyens se |
+Le malheur est que la plupart des citoyens se
 plaisent à ces trocs usuels immoraux; c'est un marché
-qui a deux avantages : premièrement il débarrasse
+qui a deux avantages: premièrement il débarrasse
 l'intéressé du soin, du souci d'exercer sa juste liberté;
 car exercer justement une juste liberté est de l'ordre
 du travail; et c'est un travail difficile; au contraire
 exercer une autorité injuste n'est pas de l'ordre du
-travail; il est fatigant de dire, d'énoncer une proposition, puis d'en donner librement l'histoire et les dé- |
-monstrations; il n'est pas fatigant de dire : J'ai raison |
+travail; il est fatigant de dire, d'énoncer une proposition, puis d'en donner librement l'histoire et les dé-
+monstrations; il n'est pas fatigant de dire: J'ai raison
 
-| parce que je le dis, ou : j'ai raison parce que c'est la
+parce que je le dis, ou: j'ai raison parce que c'est la
 loi. Deuxièmement cette opération confère à l'intéressé
 la jouissance d'exercer de l'autorité sur quelqu'un. Et
 il paraît que c'est une jouissance irrésistible.
 
 Des symptômes inquiétants nous forcent à nous demander si beaucoup d'instituteurs trouveront en euxmêmes le courage de résister à la tentation; la modestie
-civique est rare; la tentation est grande : on leur offre
+civique est rare; la tentation est grande: on leur offre
 d'entrer dans le système du gouvernement; tout dans
 nos idées, dans nos mœurs, dans notre éducation,
 nous pousse à entrer tant que nous pouvons dans les
@@ -1899,7 +1898,7 @@ que trop de Magistratures d'État, civiles et militaires.
 IL n'est pas indispensable que toutes nos écoles soient
 transformées en conseils de guerre ou en tribunaux
 correctionnels, au choix. Sachons lire l'affaire Crainquebille. Téry me reproche d'avoir épinglé à l'affaire
-Crainquebille une citation que pourtant je croyais faite |
+Crainquebille une citation que pourtant je croyais faite
 exprès. Téry me reproche de n'avoir pas épinglé tout
 larticle. Qu'il se rassure. Nous publierons tout l'article
 intéressé, pour sa peine; et je le commenterai:; nous
@@ -1923,38 +1922,38 @@ prédilection que France peut avoir pour un livre de
 Tharaud, je préciserai, je lui demanderai ce qu'il faisait
 exactement, lui, dans le cabinet de M. Lemaïître à la
 
-troisième cahier de la quatrième série |
+troisième cahier de la quatrième série
 date où M. Clemenceau avait à défendre la Cour de
 Cassation contre les calomnies nationalistes.
-Que Téry le sache : dans ces débats où il ne joue que
+Que Téry le sache: dans ces débats où il ne joue que
 sa réputation d'amuseur talentueux, nous avons engagé
-toute notre vie, et nous saurons nous défendre en conséquence. .
-Je m'en tiens aujourd'hui à la citation incriminée. |
-Téry compare les maîtres de l'enseignement aux magis- |
+toute notre vie, et nous saurons nous défendre en conséquence..
+Je m'en tiens aujourd'hui à la citation incriminée.
+Téry compare les maîtres de l'enseignement aux magis-
 trats judiciaires. C'est une comparaison de réunion
 publique. Elle ne tient pas. Si elle tient, nous tombons
 dans l'affaire Crainquebille. Mais elle ne tient pas. Les
 élèves ne sont pas des inculpés. Les maîtres ne sont
-pas des juges. L'enseignement n'est pas une magistrature. C'est une culture. Nous reviendrons sur cet articie, |
-puisque l'auteur le demande. |
+pas des juges. L'enseignement n'est pas une magistrature. C'est une culture. Nous reviendrons sur cet articie,
+puisque l'auteur le demande.
 Quand Téry assimile ou compare les maîtres de l'enseignement aux magistrats, il semble vouloir insister
 sur le devoir qu'on aurait de conférer aux premiers
 l'inamovibilité des seconds; mais, premièrement, l'inamovibilité n'est pas la seule forme ni la seule garantie
 de la liberté, de l'indépendance; il n'est nullement
 démontré qu'il faille conférer aux fonctionnaires l'inamovibilité pour leur garantir la liberté; il n'est nullement démontré qu'il suflise de conférer aux fonctionpaires l'inamovibilité pour leur garantir la liberté; il
-n'est pas démontré qu'il faille assimiler aux magistrats |
+n'est pas démontré qu'il faille assimiler aux magistrats
 judiciaires les membres de l'enseignement pour leur
 assurer la liberté; nous assistons ici à un nouvel effet
-du parapragmatisme déjà noté ; assimiler aux magistrats judiciaires les membres de l'enseignement, ce n'est
+du parapragmatisme déjà noté; assimiler aux magistrats judiciaires les membres de l'enseignement, ce n'est
 pas garantir leur liberté, mais c'est leur conférer une
 autorité; je n'insiste pas; nous reviendrons sur cette
 
 qu'il appartient officiellement à un parti où l'amovibilité des magistrats judiciaires est partie essentielle du
-programme ; quand Téry non seulement vante l'inamovibilité mais la veut étendre des magistrats judiciaires
+programme; quand Téry non seulement vante l'inamovibilité mais la veut étendre des magistrats judiciaires
 aux maîtres de l'enseignement, il oublie qu'il fait partie
 d'un parti nommé le Parti Socialiste français, qu'il fait
 partie d'un gouvernement nommé le comité interfédéral,
-que ce gouvernement fut constitué peu à peu dans les :
+que ce gouvernement fut constitué peu à peu dans les:
 congrès de ce parti, que le dernier congrès eut lieu à
 Tours, et que le programme constitutionnel de Tours
 comporte l'élection de la magistrature, ce qui sans doute
@@ -1970,29 +1969,29 @@ sans y attacher autrement d'importance, est beaucoup
 plus dangereux. La critique indispensable ne sait plus
 où se prendre. L'auteur est de votre avis. Vous n'avez
 plus rien à dire. Cependant l'idée fausse continue son -
-chemin, pousse sa fortune. L'auteur a pu retirer son
-idée : il n'a pas retiré l'image, la mémoire que les
+chemin, pousse sa fortune. L'auteur a retirer son
+idée: il n'a pas retiré l'image, la mémoire que les
 pauvres gens ont formée, ont gardée de cette idée. A la
 première discussion l'idée fausse reparaît, florissante; la
 
-| comparaison inconsidérée s'impose; elle est commode.
-| Il y a cinq ans, au commencement de l'affaire, ily a
-| deux ans, quand on pensa faussement que l'affaire était
+comparaison inconsidérée s'impose; elle est commode.
+Il y a cinq ans, au commencement de l'affaire, ily a
+deux ans, quand on pensa faussement que l'affaire était
 
 troisième cahier de la quatrième série
 consommée, toutes les fois que la conversation des
-dreyfusards et des républicains revenait sur les instituteurs, il n'y avait qu'un cri et qu'une indignation : La
+dreyfusards et des républicains revenait sur les instituteurs, il n'y avait qu'un cri et qu'une indignation: La
 première mesure à prendre, disait-on partout et sans
 aucune exception, la mesure indispensable, immédiate,
 sera de libérer les instituteurs; ils sont aujourd'hui à
-la nomination des préfets ; il est inadmissible que des
+la nomination des préfets; il est inadmissible que des
 fonctionnaires appartenant au ministère de l'instruction
 publique, il est inadmissible que des universitaires
 soient responsables non pas devant leurs supérieurs
 hiérarchiques, non pas devant leurs inspecteurs, leurs
 maîtres et leurs amis, mais devant les agents du ministère de l'intérieur. — Telle était alors l'indignation de
 tous. L'amnistie passa.
-On sait ce qui est advenu. Il est advenu la circulaire |
+On sait ce qui est advenu. Il est advenu la circulaire
 de M. Combes, la première, celle où pour la première
 fois un chef du gouvernement, un président du conseil
 des ministres, un ministre de l'intérieur a osé parler
@@ -2006,7 +2005,7 @@ la Ligue française pour la Défense des Droits del' Homme
 et du Citoyen ne s'est pas sérieusement émue, — je ne
 parle pas des sections qui ont approuvé, — cette circulaire qui soumettait aux préfets tous les fonctionnaires
 du territoire, qui soumettait au ministère de l'intérieur
-tous les ministères de la République; loin de libérer les |
+tous les ministères de la République; loin de libérer les
 instituteurs, c'est l'ancien asservissement des institu64
 
 teurs que l'on a étendu à tous les fonctionnaires. Ce
@@ -2015,7 +2014,7 @@ magistrat que l'on tend, mais vers l'asservissement et
 l'amovibilité du fonctionnaire.
 
 Je n'ai rien contre M. Combes. Quand il fut question
-de lui pour former un ministère, ses amis disaient :Ila
+de lui pour former un ministère, ses amis disaient:Ila
 été tout à fait nul comme ministre de l'instruction
 publique; mais, vous verrez, il fera un excellent président du conseil. Jaurès nous expliquait dans son journal qu'avec une Chambre aussi bien faite, après d'aussi
 bonnes élections, avec une majorité aussi assise, on
@@ -2032,7 +2031,7 @@ qu'en politique cela est rare et précieux.
 
 Je n'ai rien contre M. Combes. Il a courageusement
 
-| assumé une tâche écrasante. Cette tâche écrasante, ce
+assumé une tâche écrasante. Cette tâche écrasante, ce
 n'est pas de combattre l'Église. Vaincre l'Église serait
 une tâche écrasante. Combattre l'Église est.cette année
 en France plus facile que de ne rien faire. Un gouvernement qui ne fait rien et qui ne combat pas l'Église
@@ -2048,9 +2047,9 @@ avec des éléments empruntés aux partis radicaux.
 
 Nous n'avons rien contre M. Combes. Il a beaucoup
 
-acquis de doigté depuis qu'il exerce le gouvernement. :
+acquis de doigté depuis qu'il exerce le gouvernement.:
 Et je n'omets pas de distinguer entre les deux couches,
-entre les deux générations de radicaux. Les républi- :
+entre les deux générations de radicaux. Les républi-:
 cains, radicaux et opportunistes, qui ont l'âge de
 M. Combes ont fondé la République. Cela ne s'est pas
 fait tout seul. Rien ne se fait tout seul. Et forcément il
@@ -2061,14 +2060,14 @@ jeunes radicaux, — jeunes gens de vingt à trente ans,
 
 Tout ce que nous avons déclaré, mais je maintiens
 cette déclaration, c'est que nous refusions de nous
-engager, que nous refusions d'engager notre responsabilité dans la politique improprement nommée anti- :
+engager, que nous refusions d'engager notre responsabilité dans la politique improprement nommée anti-:
 cléricale des radicaux de gouvernement, parce qu'elle
 était injuste, et parce qu'elle était vaine. Qu'elle fût
 injuste, c'est ce que j'espère pouvoir montrer quelque
 jour, et je demande que l'on me fasse crédit jusque-là.
 Qu'elle soit vaine, c'est ce que l'on commence à reconnaître un peu partout. Ceux mêmes qui voulaient nous
 entraîner dans la compagnie de cette majorité commencent à se demander ce qui se prépare. Jaurès et
-Pressensé dans leurs journaux commencent à s'apercevoir que les partis radicaux ne sont pas solides. Jaurès |
+Pressensé dans leurs journaux commencent à s'apercevoir que les partis radicaux ne sont pas solides. Jaurès
 
 parle de défaillance et pense de trahison. Cette majorité
 qui devait tout bouffer, — style approprié, — se rompt
@@ -2079,14 +2078,14 @@ Pavons dit à temps.
 
 Si avant peu le ministère de M. Combes devient formellement un antiministère Doumer, un ministère de la
 paix contre le ministère de la guerre, à cet égard, et
-dans cette mesure, nous serons, autant que nous le ;
+dans cette mesure, nous serons, autant que nous le;
 pourrons, ses plus fermes soutiens.
 
 Il ne faut pas que l'instituteur soit dans la commune
 le représentant du gouvernement; il convient qu'il y soit
-le représentant de l'humanité ; ce n'est pas un président
+le représentant de l'humanité; ce n'est pas un président
 du conseil, si considérable que soit un président du
-conseil, ce n'est pas une majorité qu'il faut que l'instituteur dans la commune représente : il est le représentant né de personnages moins transitoires, il est le seul
+conseil, ce n'est pas une majorité qu'il faut que l'instituteur dans la commune représente: il est le représentant de personnages moins transitoires, il est le seul
 et l'inestimable représentant des poètes et des artistes,
 des philosophes et des savants, des hommes qui ont fait
 et qui maintiennent l'humanité. Il doit assurer la repré-
@@ -2098,28 +2097,28 @@ Mais pour cela, et nous devons avoir le courage de le
 répéter aux instituteurs, il est indispensable qu'ils se
 cultivent eux-mêmes; il ne s'agit pas d'enseigner à tort
 et à travers; il faut savoir ce que l'on enseigne, c'est-
-à-dire qu'il faut avoir commencé par s'enseigner soimême ; les hommes les plus éminents ne cessent pas de
+à-dire qu'il faut avoir commencé par s'enseigner soimême; les hommes les plus éminents ne cessent pas de
 se cultiver, ou plutôt les hommes les plus éminents sont
 
 troisième cahier de la quatrième série
 ceux qui n'ont pas cessé, qui ne cessent pas de se culti- je
 ver, de travailler; on n'a rien sans peine, et la vie est
-un perpétuel travail. Afin de s'assurer la clientèle des .
-instituteurs, on leur a trop laissé croire que l'enseignement se conférait. L'enseignement ne se confère pas : il
+un perpétuel travail. Afin de s'assurer la clientèle des.
+instituteurs, on leur a trop laissé croire que l'enseignement se conférait. L'enseignement ne se confère pas: il
 se travaille, et se communique. On les a inondés de
 catéchismes républicains, de bréviaires laïques, de formulaires. C'était avantageux pour les auteurs de ces (
 volumes, et pour les maisons d'édition. Mais ce n'est
 pas en récitant des bréviaires qu'un homme se forme,
 c'est en lisant, en regardant, en écoutant. Qu'on lise
 Rabelais ou Calvin, Molière ou Montaigne, Racine ou
-Descartes, Pascal ou Corneille, Rousseau ou Voltaire, |
+Descartes, Pascal ou Corneille, Rousseau ou Voltaire,
 Vigny ou Lamartine, c'est en lisant qu'un homme se
 forme, et non pas en récitant des manuels. Et c'est,
 aussi, en travaillant, modestement.
 
 L'an mil neuf cent deux, le vingt-huit octobre, à la
 requête de monsieur Colomb, président du Comité de
-« lŒuvre des Journaux pour Tous », dont le siège est à
+« lŒuvre des Journaux pour Tous dont le siège est à
 
 Élisant domicile en ma demeure,
 
@@ -2136,10 +2135,10 @@ Que dans le numéro du journal Les Cahiers de la
 Quinzaine, portant le numéro 21, troisième série, paru
 en août 1902, il a été inséré un article contenant des
 injures à l'adresse de « l'Œuvre des Journaux pour
-Tous » et du requérant, qui est qualifié de « Vulgaire }
-escroc »; qu'il est insinué dans ledit article des commentaires inexacts et malveillants notamment que
+Tous » et du requérant, qui est qualifié de « Vulgaire
+escroc qu'il est insinué dans ledit article des commentaires inexacts et malveillants notamment que
 l'ÆŒuvre des Journaux pour Tous ne serait désormais
-qu'une œuvre policière au service du Ministère de ;
+qu'une œuvre policière au service du Ministère de;
 l'Intérieur, auquel elle communiquait ses fiches
 d'adresses d''expéditeurs et de destinataires.
 
@@ -2153,16 +2152,16 @@ sus-exprimée et en parlant comme dessus, de dans trois
 jours pour tout délai ou dans la première édition du
 journal Les Cahiers de la Quinzaine, avoir à insérer à
 la même place et en mêmes caractères que l'article
-incriminé et en réponse à cet article, l'extrait du procès-verbal ci-après :
+incriminé et en réponse à cet article, l'extrait du procès-verbal ci-après:
 
-Le Comité des « Journaux pour Tous », réuni le
+Le Comité des « Journaux pour Tous réuni le
 10 octobre 1902, au siège de l'œuvre, 17, rue Cujas,
 après avoir pris connaissance de l'article de M. Charles
 Péguy (Cahier de la Quinsaine, numéro 21, troisième
 
 Approuve toutes les mesures qui ont été prises pour
 conserver à l'Œuvre l'indépendance sans laquelle elle
-ne saurait être vraiment agissante ;
+ne saurait être vraiment agissante;
 
 Affirme une fois de plus que l'œuvre des « Journaux
 pour Tous » doit rester une œuvre impersonnelle de
@@ -2185,17 +2184,17 @@ signataire d'un pareil article, se résout à demander à
 
 M. Charles Péguy, par les voies légales, l'insertion
 
-dans son plus prochain Cahier de la Quinzaine, du pré- !
+dans son plus prochain Cahier de la Quinzaine, du pré-!
 
 sent extrait du procès-verbal de ses séances;
 
-Et passe à l'ordre du jour. |
+Et passe à l'ordre du jour.
 
 Lui déclarant que faute de satisfaire à la présente
-sommation le requérant se pourvoira ainsi que de |
-droit pour l'y contraindre. |
+sommation le requérant se pourvoira ainsi que de
+droit pour l'y contraindre.
 
-Sous toutes réserves. ; |
+Sous toutes réserves.;
 
 Et je lui ai, étant et parlant comme dessus, laissé
 cette copie sous enveloppe fermée ne portant d'autre
@@ -2203,4 +2202,4 @@ indication d'un côté, que les nom et demeure de la
 partie et de l'autre, le cachet de mon étude apposé sur
 la fermeture du pli, le tout conformément à la loi.
 
-Copie : une feuille de papier spécial à 1 france
+Copie: une feuille de papier spécial à 1 france

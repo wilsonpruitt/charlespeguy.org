@@ -7,45 +7,45 @@ author: henri-dagan
 isAvertissement: false
 wordCount: 33799
 ---
-_ l'Oppression des juifs dans l'Europe orientale
+l'Oppression des juifs dans l'Europe orientale
 
-F6 g paraissant vingt fois par an
+paraissant vingt fois par an
 
 5; rue de la Sorbonne, au rez-de-chaussée
 
-Pour savoir ce que sont les Cahiers de la Q uinzaine,
-il suffit d'envoyer un? t de trois francs cinquante
-Ra sois vo mandat de t francs que
+Pour savoir ce que sont les Cahiers de la uinzaine,
+il suffit d'envoyer un? de trois francs cinquante
+sois mandat de francs que
 à M. André Bourgeois, administrateur des cahiers,
 
-_ 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
+8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 
-_ arrondissement. On recevra en spécimens six cahiers :
-Nous mettons ce cahier dans le commerce; nous le » ;
+arrondissement. On recevra en spécimens six cahiers:
+Nous mettons ce cahier dans le commerce; nous le »;
 
 Sur les courriers des cahiers, courriers de Chine,
-ec courriers d''Indo-Chine, courriers du Japon, courriers FRS
+courriers d''Indo-Chine, courriers du Japon, courriers FRS
 de Finlande, courrier de Russie, cahier d'Arménie,
 cahier de Roumanie, courriers de France, publiés dans TRS
 les trois premières séries des cahiers, se référer au
-Ca Sixième cahier de la quatrième série, cahier de cour- eue
-_ rier,courrier de Paris, inventaire des cahiers, en forme NS
+Sixième cahier de la quatrième série, cahier de cour- eue
+rier,courrier de Paris, inventaire des cahiers, en forme
 de catalogue, un cahier de 72 pages, un franc
 Nous publierons dans un cahier de la cinquième série
 À le relevé sommaire des courriers publiés dans les cahiers” MERS
-de la quatrième série. :LIFÉOURE
+de la quatrième série.:LIFÉOURE
 
 l'oppression des juifs
 dans l'Europe orientale
 
-| Pendant que les chrétiens orthodoxes célébraient
-leurs Pâques, au mois d'avril dernier, une émeute sanglante éclatait dans la ville de Kichinef, en Bessa- ;
+Pendant que les chrétiens orthodoxes célébraient
+leurs Pâques, au mois d'avril dernier, une émeute sanglante éclatait dans la ville de Kichinef, en Bessa-;
 rabie. Des scènes sauvages qui égalent en horreur les
 tueries du Moyen-Age et des temps barbares se déroulaïent, en plein jour, sous l'œil indifférent des autorités
 
 La gravité de ces faits, leur répercussion dans l'Europe entière, leur signification sociale nous ont déterminé à écrire ce cahier. Il renseigne sur les événements
-récents et antérieurs ; il éclaire la situation générale
-du prolétariat russe ; il expose les prétextes des conflits et leurs causes profondes; il suggère, ou peut
+récents et antérieurs; il éclaire la situation générale
+du prolétariat russe; il expose les prétextes des conflits et leurs causes profondes; il suggère, ou peut
 suggérer, des idées, — plus précises que les idées courantes,,— sur la nature des déchirements sociaux,
 présents ou futurs.
 
@@ -64,7 +64,7 @@ Un grand nombre de juifs furent égorgés, plusieurs
 centaines de milliers furent ruinés. Et l'on vit d'Ekaté-
 rinoslaf à Vilna la terreur et la panique s'emparer
 des populations, qui fuyaient en masse au delà des
-frontières. Quand on demandait aux émeutiers pourquoi ils couraient ainsi sus aux juifs, ils répondaient :
+frontières. Quand on demandait aux émeutiers pourquoi ils couraient ainsi sus aux juifs, ils répondaient:
 on dit que notre petit père le tsar le veut ainsi. (1) La
 suggestion administrative était manifeste.
 
@@ -74,10 +74,10 @@ les calamités des lois d'exception.
 (1) Les Juifs russes, par Léo Errera, professeur à l'Université de
 
 Ce furent les célèbres Lois de mai 1882, dont le
-général Ignatief fut l'auteur. En voici le texte officiel :
+général Ignatief fut l'auteur. En voici le texte officiel:
 
-Le Conseil des ministres, vu le rapport du ministre de -
-l'intérieur sur l'exécution des règlements temporaires concernant les israélites, \
+Le Conseil des ministres, le rapport du ministre de -
+l'intérieur sur l'exécution des règlements temporaires concernant les israélites,
 
 1. — A titre de mesure temporaire et jusqu'à la revision
 générale des lois qui règlent la situation des israélites,
@@ -88,50 +88,50 @@ faveur des colonies israélites déjà existantes, où les israé-
 2. — Jusqu'à nouvel ordre il ne sera pas donné suite aux
 contrats faits au nom d'un israélite et qui auraient pour objet
 l'achat, l''hypothèque oula location d'immeublesruraux situés
-en dehors des villes et des bourgades ; est nul également
+en dehors des villes et des bourgades; est nul également
 le mandat donné à un israélite d'administrer des biens de
-la nature ci-dessus indiquée ou d'en disposer; <
+la nature ci-dessus indiquée ou d'en disposer;
 
 3. — Défense est faite aux israélites de se livrer au commerce les dimanches et jours fériés de la religion chré-
 tienne; les lois qui obligent les chrétiens à fermer leur
-maison de commerce pendant ces jours-là seront appliquées aux maisons de commerce des israélites ;
+maison de commerce pendant ces jours-là seront appliquées aux maisons de commerce des israélites;
 
 4. — Les mesures ci-dessus ne sont applicables qu'aux gouvernements qui se trouvent dans l'étendue du territoire
 
 juif. « Comme le fait remarquer M. Errera, pour bien
 comprendre la portée de ces lois il faut se rappeler
 qu'à la faveur de la tolérance relative du temps
-d'Alexandre II des milliers d'artisans juifs s'étaient
+d'Alexandre des milliers d'artisans juifs s'étaient
 établis dans les petits centres du territoire, où on les
 avait même invités à se fixer. Et comme aucune loi
 
-_ russe n'a jamais défini ce qu'on devait entendre par
+russe n'a jamais défini ce qu'on devait entendre par
 0 une bourgade, le champ était ouvert à l'arbitraire et
 Be: nous en verrons les conséquences dans un autre chane pitre.
 Au mois de juin 1882 un changement plutôt favorable
-L se produit en Russie ; le fameux comte Ignatief, ministre
-E de l'intérieur, et qui plus souvent que le tsar dirigeait
+se produit en Russie; le fameux comte Ignatief, ministre
+de l'intérieur, et qui plus souvent que le tsar dirigeait
 À la politique, donnait sa démission et était remplacé
-E par le comte Tolstoïi. Les persécutions cessèrent
-10 presque ; deux ukases rendus par le Sénat enjoignaient
+par le comte Tolstoïi. Les persécutions cessèrent
+10 presque; deux ukases rendus par le Sénat enjoignaient
 4 à toutes les autorités de veiller à la sécurité des juifs -
 4 et une circulaire du 23 juin rendait ces autorités
 à responsables des désordres. Il est bon de noter qu'un
-5e ukase du 22 mai avait déjà démenti le bruit, fort accré-
+ukase du 22 mai avait déjà démenti le bruit, fort accré-
 4 dité chez les; paysans de Russie, que l'empereur voulait
-Fe l'extermination des juifs.
+l'extermination des juifs.
 Néanmoins les émeutes ne furent pas enrayées tout de
 2 suite. Voici le tableau des persécutions qui eurent lieu
-no. - du mois de décembre 1881 au mois de juin 1882 :
+no. - du mois de décembre 1881 au mois de juin 1882:
 Le 10 janvier... Radomysl......... pillage;
-Dur 18 — ... Winnica.......... pillage d'un cabaret;
+Dur 18 —... Winnica.......... pillage d'un cabaret;
 É. 23 mars..... Saint-Pétersbourg. fermeture des pharmacies
-4 4 2 et 3 avril.. Mordarovka. ...... désordres;
-Le — .. Walegozoulof ..... pillage, incendies;
+4 4 2 et 3 avril.. Mordarovka....... désordres;
+Le —.. Walegozoulof..... pillage, incendies;
 
-— .. Smolensk.......... troubles et pillage;
-< beaucoup de blessés ;
-fin mai ..... Kaynary .......... massacre d'une famille;
+—.. Smolensk.......... troubles et pillage;
+beaucoup de blessés;
+fin mai..... Kaynary.......... massacre d'une famille;
 
 Chassés de leurs demeures incendiées, de leurs biens
 détruits ou confisqués, des milliers de juifs se réfugièrent
@@ -148,16 +148,16 @@ l'évêque de Londres, l'évêque d'Oxford, l'évêque de
 Gloucester et Bristol, l'évêque de Manchester, le car-
 
 .. dinal Manning assistèrent à la réunion ou s'y associèrent.
-| @) L'Alliance israélite universelle envoya un délégué chargé de
+L'Alliance israélite universelle envoya un délégué chargé de
 « s'occuper de cette masse indigente sans asile et sans pain. Mais le
 « nombre était trop considérable pour espérer des soulagements
-+ sérieux. L'Alliance s'entendit à New-York pour recevoir les
+sérieux. L'Alliance s'entendit à New-York pour recevoir les
 émigrants, créer des comités dans les villes, distribuer la
 population indigente dans les différents États, leur procurer du
 … travail, etc, J'ai déjà parlé ailleurs du prolétariat juif aux États-
 
 A Paris, un comité fut créé sous la présidence de
-Victor Hugo. Il publia l'appel suivant :
+Victor Hugo. Il publia l'appel suivant:
 
 A nos concitoyens
 
@@ -167,7 +167,7 @@ atrocités commises contre la population juive.
 Ce ne sont pas seulement des scènes de pillage, comme
 l'année dernière.
 
-Des milliers de juifs inoffensifs sont cruellement maltraités et expulsés; les maisons sont saccagées et incendiées ; les femmes sont livrées aux derniers outrages.
+Des milliers de juifs inoffensifs sont cruellement maltraités et expulsés; les maisons sont saccagées et incendiées; les femmes sont livrées aux derniers outrages.
 
 Devant de tels faits, qui sont une honte pour la civilisation, la conscience publique proteste.
 
@@ -183,24 +183,24 @@ qui, dans toutes les circonstances et sans distinction de
 pays ni de culte, sait secourir ceux qui souffrent. -
 
 Les membres du Comité de secours pour
-Les israélites de Russie :
+Les israélites de Russie:
 
-Parmi les signataires de cet appel nous relevons :
+Parmi les signataires de cet appel nous relevons:
 
 M. Bapst, directeur du Journal des Débats; Michel
-Bréal, de l'Institut ; Carnot, sénateur; Cyon, directeur du
+Bréal, de l'Institut; Carnot, sénateur; Cyon, directeur du
 de l'Institut; Léon Gambetta, député; de Hérédia,
 député; Clovis Hugues, député; Henri de Lacretelle,
-député ; de Lanessan, député ; Ferdinand de Lesseps, …
-de l'Institut ; de Molinari; Alfred Naquet ; Gaston Paris; |
+député; de Lanessan, député; Ferdinand de Lesseps, …
+de l'Institut; de Molinari; Alfred Naquet; Gaston Paris;
 
-_ En outre le cardinal archevêque de Paris écrivit une
-_ lettre à Victor Hugo, — 4 juin, — pour s'associer aux
-_ Ce mouvement général de sympathie ou d'indigna-
-‘420 tion, accompagné d'ailleurs de quelques secours, tou_ jours insuffisants en pareil cas, n'eut pas d'autre .
-_ résultat que d'attirer l'attention du public sur ces
-ke _  iniquités. Les mêmes faits devaient se reproduire
-| avec intensité dix ans plus tard, — et vingtans après.
+En outre le cardinal archevêque de Paris écrivit une
+lettre à Victor Hugo, — 4 juin, — pour s'associer aux
+Ce mouvement général de sympathie ou d'indigna-
+tion, accompagné d'ailleurs de quelques secours, tou_ jours insuffisants en pareil cas, n'eut pas d'autre.
+résultat que d'attirer l'attention du public sur ces
+iniquités. Les mêmes faits devaient se reproduire
+avec intensité dix ans plus tard, — et vingtans après.
 
 A la fin de l'année 1890 des projets de lois étaient en
 
@@ -217,13 +217,13 @@ Ordre supérieur concernant la défense faite aux mécaniciens,
 
 distillateurs, brasseurs, tous patrons et tous ouvriers
 
-| juifs, de s'établir soit dans la ville soit dans le gouvernement de Moscou.
+juifs, de s'établir soit dans la ville soit dans le gouvernement de Moscou.
 
 ; Le ministre de l'intérieur a obtenu l'approbation impé-
-- riale à l'effet de prendre les mesures suivantes :
+- riale à l'effet de prendre les mesures suivantes:
 
 1. — À partir de ce jour et jusqu'au moment où les me-
-> sures prescrites par l'article 157 et l'observation 3 de la loi
+sures prescrites par l'article 157 et l'observation 3 de la loi
 . sur les passeports (édit 1890) seront revisées, il sera défendu
 
 aux mécaniciens, distillateurs, brasseurs, comme à tous
@@ -238,29 +238,29 @@ jugera convenables pour expulser de Moscou tous mécani-
 
 ; ciens, distillateurs, brasseurs, comme tous patrons et
 
-| visites domiciliaires pour examiner les passeports; aux
-| uns, on accorda trois jours pour quitter la ville ; aux autres
-| nombre de cas, des enfants furent arrachés des bras
-| leurs parents, parce que leurs noms ne figuraient pas sur
-| les passeports des parents. J nnais de nombreuses
-| familles juives très respectables qui passèrent la nuit dans
-des maisons mal famées pour se soustraire aux Tr er
-| entièrement habité par les juifs, la panique fut indescrip-
-| police a été impitoyable; un grand nombre d'isr tes
-| vendre pour le prix qu'on leur offrait. Pou ible de
+visites domiciliaires pour examiner les passeports; aux
+uns, on accorda trois jours pour quitter la ville; aux autres
+nombre de cas, des enfants furent arrachés des bras
+leurs parents, parce que leurs noms ne figuraient pas sur
+les passeports des parents. nnais de nombreuses
+familles juives très respectables qui passèrent la nuit dans
+des maisons mal famées pour se soustraire aux
+entièrement habité par les juifs, la panique fut indescrip-
+police a été impitoyable; un grand nombre d'isr tes
+vendre pour le prix qu'on leur offrait. Pou ible de
 malheur, les chrétiens qui étaient débiteurs des expulsés
-| aisés, sont absolument ruinés aujourd'hui et n'ont pas
-| J'ai vu conduire à la gare un convoi de ces derniers;
-l dirait un troupeau de criminels quise sont rendus coupables
-| des pires forfaits. Les plus endureis ne pouvaient voir sans
-k commisération ces pauvres gens subir les traitements les
+aisés, sont absolument ruinés aujourd'hui et n'ont pas
+J'ai conduire à la gare un convoi de ces derniers;
+dirait un troupeau de criminels quise sont rendus coupables
+des pires forfaits. Les plus endureis ne pouvaient voir sans
+commisération ces pauvres gens subir les traitements les
 plus humiliants et les plus cruels pour leur qualit
-Les autorités de Moscou ne se laissèrent pas émouvoir par l'opinion : le ro mai le directeur de la police
+Les autorités de Moscou ne se laissèrent pas émouvoir par l'opinion: le mai le directeur de la police
 
 ouvriers juifs actuellement dans la ville et pour les ramener
 dans le territoire du domicile légal.
 
-Sur le rapport présenté par le ministre de l'intérieur, |
+Sur le rapport présenté par le ministre de l'intérieur,
 S. M. Impériale a daigné approuver l'exécution de cet
 
 Cette mesure antipopulaire atteignait, d'après les -
@@ -269,9 +269,9 @@ estimations les plus modérées, quatorze mille artisans.
 Le désespoir et la misère qui s'ensuivirent ont été
 
 exprimés dans une lettre que le Times du 5 mai
-publia à ce sujet :
+publia à ce sujet:
 
-Il y a vingt-six ans, Alexandre II autorisa les artisans juifs
+Il y a vingt-six ans, Alexandre autorisa les artisans juifs
 « habiles » à s'établir dans tout l'Empire; c'était un grand
 bienfait pour des milliers d'ouvriers qui ne trouvaient pas
 à exercer leur métier dans les limites restreintes du territoire juif; mais leur passeport contenait une clause portant
@@ -288,14 +288,14 @@ réparer des montres. Si les autorités le surprenaient à
 cendre des montres, on lui confisquait ses marchandises et
 on l'expulsait de Moscou, quoique, légalement, un artisan
 ne puisse être expulsé de la ville que s'il a été préalablement rayé des cadres de la corporation à laquelle il appar-
-tient. L'administration a choisi un singulier moment pour ;
-agir contre les juifs : c'est pour Pâques que l'expulsion
-devait avoir lieu. Le premier jour de la Pâque fut un jour de |
-deuil pour les juifs russes de Moscou. Au milieu de la nuit, |
+tient. L'administration a choisi un singulier moment pour;
+agir contre les juifs: c'est pour Pâques que l'expulsion
+devait avoir lieu. Le premier jour de la Pâque fut un jour de
+deuil pour les juifs russes de Moscou. Au milieu de la nuit,
 
-L la police et les gendarmes avaient déjà commencé leurs
+la police et les gendarmes avaient déjà commencé leurs
 visites domiciliaires pour examiner les passeports; aux
-uns, on accorda trois jours pour quitter la ville ; aux autres,
+uns, on accorda trois jours pour quitter la ville; aux autres,
 on donna l'ordre de partir dans les vingt-quatre heures.
 Tous ceux qui avaient les moyens de partir quittèrent la
 ville; ceux qui n'avaient pas de ressources et ceux qui
@@ -308,25 +308,25 @@ les passeports des parents. Je connais de nombreuses
 familles juives très respectables qui passèrent la nuit dans
 des maisons mal famées pour se soustraire aux recherches
 de la police. A Madina Rochtcha, un faubourg presque
-entièrement habité par les juifs, la panique fut indescriptible; il y eut là des scènes déchirantes; l'attitude de la
+entièrement habité par les juifs, la panique fut indescriptible; il y eut des scènes déchirantes; l'attitude de la
 police a été impitoyable; un grand nombre d'israélites
-s'enfuirent dans les forêts voisines, où ils errent en désespérés ; ceux qui ont obtenu un délai de trois jours ont
+s'enfuirent dans les forêts voisines, où ils errent en désespérés; ceux qui ont obtenu un délai de trois jours ont
 cherché à réaliser leur avoir; on comprend que, dans de
-telles conditions, ils n'en aient retiré qu'un prix dérisoire ;
+telles conditions, ils n'en aient retiré qu'un prix dérisoire;
 on a abusé de ces pauvres gens à tous les points de vue;
 quelques-uns ont préféré détruire leur mobilier que de le
 vendre pour le prix qu'on leur offrait. Pour comble de
-| malheur, les chrétiens qui étaient débiteurs des expulsés
-| ne les payaient pas, et bien des ouvriers qui, hier, étaient
+malheur, les chrétiens qui étaient débiteurs des expulsés
+ne les payaient pas, et bien des ouvriers qui, hier, étaient
 aisés, sont absolument ruinés aujourd'hui et n'ont pas
 4 même de quoi payer un billet de chemin de fer pour retour-
 . ner dans le Territoire. Ils y seront reconduits par étapes.
-: J'ai vu conduire à la gare un convoi de ces derniers; on
+: J'ai conduire à la gare un convoi de ces derniers; on
 . dirait un troupeau de criminels quise sont rendus coupables
-| des pires forfaits. Les plus endurcis ne pouvaient voir sans
-| commisération ces pauvres gens subir les traitements les
-_ plus humiliants et les plus cruels pour leur qualité de
-| Les autorités de Moscou ne se laissèrent pas émouvoir par l'opinion : le ro mai le directeur de la police,
+des pires forfaits. Les plus endurcis ne pouvaient voir sans
+commisération ces pauvres gens subir les traitements les
+plus humiliants et les plus cruels pour leur qualité de
+Les autorités de Moscou ne se laissèrent pas émouvoir par l'opinion: le mai le directeur de la police,
 
 M. Jurkovski, adressa à ses subordonnés la circulaire
 Me référant aux ordres supérieurs du 28 mars-9 avril
@@ -340,23 +340,23 @@ d'un juif. Les juifs étrangers, dont le passeport a été visé
 par les consuls russes, peuvent séjourner à Moscou pendant
 Comme il devenait matériellement impossible d'expulser en même temps tous les ouvriers israélites, le
 directeur de la police fit parvenir le 21 juillet aux divers
-commissaires de la ville de nouvelles instructions : ;
+commissaires de la ville de nouvelles instructions:;
 Après entente avec le ministre de l'intérieur au sujet de
 l'exécution de l'ukase impérial concernant l'expulsion des
 ouvriers juifs de la ville et du gouvernement de Moscou,
 les délais suivants ont été fixés pour les trois catégories
 qui ne demeurent pas depuis plus de trois ans à Moscou
 ou dans le gouvernement de Moscou, ou mariés, mais sans
-enfants, et n'employant qu'un ouvrier ; deuxième catégorie,
+enfants, et n'employant qu'un ouvrier; deuxième catégorie,
 . ouvriers juifs habitant le département de Moscou depuis -
-quatre années au moins, dont la famille se compose de ;
+quatre années au moins, dont la famille se compose de;
 quatre membres et qui emploient quatre ouvriers; troisième
 catégorie, ouvriers juifs qui ont de grandes familles et +4
 emploient plus de quatre ouvriers et qui sont établis dans
 le gouvernement de Moscou depuis plusieurs années. Pour à
-le départ volontaire des juifs de la première catégorie, il |
+le départ volontaire des juifs de la première catégorie, il
 est accordé un délai de trois à six mois, pour ceux de la
-deuxième catégorie, un délai de six à neuf mois, et pour |
+deuxième catégorie, un délai de six à neuf mois, et pour
 ceux de la troisième catégorie, un délai de neuf à douze mois.
 
 Tous les ouvriers soumis à l'expulsion doivent être
@@ -372,7 +372,7 @@ numéro 30, les mesures précitées leur sont applicables, et il
 ne leur est accordé que deux délais, savoir, six mois pour
 ceux qui sont représentants de maisons de commerce
 juives de première guilde et pour ceux qui sont propriétaires
-de petites industries ; douze mois pour ceux qui sont propriétaires de grandes maisons ou qui sont en relations avec
+de petites industries; douze mois pour ceux qui sont propriétaires de grandes maisons ou qui sont en relations avec
 de grands fabricants chrétiens; les fabricants chrétiens
 devront être avertis six mois à l'avance de la mesure qui
 frappe leurs correspondants. Les représentants ou fondés
@@ -385,7 +385,7 @@ jusqu'à cette date, lors même qu'ils seraient compris dans
 la catégorie pour laquelle a été fixé Je plus court délai,
 celui de trois mois.
 
-ë Les délais ci-dessus prévus pour les trois catégories
+Les délais ci-dessus prévus pour les trois catégories
 courront à partir du jour de la publication de cette circulaire, c'est-à-dire à partir du 14-26 juillet 1891. Des commissions spéciales seront nommées pour examiner le cas des
 juifs habitant les petites villes avoisinant le gouvernement
 de Moscou.
@@ -395,7 +395,7 @@ les ouvriers compris dans la première catégorie avaient
 presque tous quitté Moscou avant l'expiration du délai
 
 prescrit ou en avaient été expulsés par force; ceux de
-la dernière catégorie ont été expulsés le 14 janvier 1892. |
+la dernière catégorie ont été expulsés le 14 janvier 1892.
 Leur nombre se serait élevé à trois mille.
 
 Le maire de Saint-Pétersbourg, se référant au décret
@@ -424,17 +424,17 @@ d'un artisan juif à l'autre pour examiner son travail
 et ses aptitudes, et on laisse à penser combien d'artisans
 
 (1) La partie de la Russie où peuvent résider les juifs se compose
-des dix anciennes provinces de la Pologne et de quinze gouvernements (sur cinquante) de la Russie propre ; ces derniers constituent ce qu'on appelle le Territoire juif ; ils sont situés à l'ouest de
+des dix anciennes provinces de la Pologne et de quinze gouvernements (sur cinquante) de la Russie propre; ces derniers constituent ce qu'on appelle le Territoire juif; ils sont situés à l'ouest de
 l'empire, et faisaient partie de l'ancienne République de Pologne.
 
 furent déclarés par elle habiles dans leur métier! Tous
 les ouvriers qui n'avaient pas obtenu le brevet d'habiles
 reçurent l'ordre de quitter immédiatement la ville.
 
-| Dans le gouvernement d'Astrakhan, dans la région
+Dans le gouvernement d'Astrakhan, dans la région
 transcaspienne, dans le Caucase, dans le Kouban, à
 
-__ Novgorod et dans le Transbaïkal sibérien, des expulsions eurent lieu par milliers et les israélites renvoyés
+Novgorod et dans le Transbaïkal sibérien, des expulsions eurent lieu par milliers et les israélites renvoyés
 dans le Territoire.
 
 A Kalouga, dans le gouvernement de ce nom,
@@ -442,13 +442,13 @@ dit le correspondant du Times du 5 mai,
 
 il y a trois
 cents israélites qui y vivent depuis vingt et trente ans, et
-qui entretiennent des relations cordiales avec les chretiens ;
+qui entretiennent des relations cordiales avec les chretiens;
 la plupart d'entre eux ont fait leur service mulitaire et ont
 été d'excellents soldats. Quoique le décret du 9 avril ne
 s'applique qu'aux ouvriers israélites de Moscou, j'avais
 appris que ce décret était néanmoins exécuté non seulement
 à Kalouga, mais à Toula et à Kazan; je me suis rendu à
-Kalouga pour m'en assurer et j'ai pu voir que ce bruit était
+Kalouga pour m'en assurer et j'ai voir que ce bruit était
 fondé. Plusieurs familles ont reçu l'ordre de partir dans
 les trois jours. Je me suis entretenu avec une pauvre veuve,
 mère de deux petits enfants, à qui un ordre de départ
@@ -462,51 +462,51 @@ russe, non contente d'exécuter avec sévérité les ordres
 d'expulsion, usait, dans l'accomplissement de sa tâche, de
 procédés absolument barbares. Des malades, des femmes
 
-| nouvellement accouchées, des vieillards infirmes ont été
+nouvellement accouchées, des vieillards infirmes ont été
 chassés de leurs demeures et obligés de partir sans délai.
 Il semble qu'on aurait apporté plus d'humanité dans cette
-| cruelle besogne si, à la place d''israélites, il s'était agi de
+cruelle besogne si, à la place d''israélites, il s'était agi de
 chasser des bandes de brigands.
 
-Ë Arrachés, presque du jour au lendemain, à leur foyer, à
+Arrachés, presque du jour au lendemain, à leur foyer, à
 : leurs affaires, obligés de vendre à vil prix ou d'abandon-
 à ner complètement leurs marchandises, leurs créances, tous
-re ces milliers d'expulsés devaient rentrer dans les villes du
+ces milliers d'expulsés devaient rentrer dans les villes du
 Territoire. Y a-t-il au moins la place dans ces villes pour
-les recevoir ? Quand on sait la misère terrible qui règne
+les recevoir? Quand on sait la misère terrible qui règne
 parmi les israélites du Territoire, leur entassement dans
-{ des logis malsains, trop étroits, l'avilissement du prix
+des logis malsains, trop étroits, l'avilissement du prix
 de la main-d'œuvre, la concurrence acharnée qu''ouvriers
 et marchands sont obligés de se faire pour gagner le mor-
-. *  ceau de pain qui empêche leur famille de mourir de faim,
+. ceau de pain qui empêche leur famille de mourir de faim,
 on ne s'étonne pas que les expulsés de Moscou, de Kief,
 ; de Saint-Pétersbourg et des gouvernements de l'est et du
-Æ centre aient envisagé avec désespoir l'idée de rentrer dans
+centre aient envisagé avec désespoir l'idée de rentrer dans
 cet immense et misérable ghetto qu'on appelle le Ferri-
-Ë toire. Devant la sombre et douloureuse perspective qui
-É s'ouvrait devant eux, beaucoup ont vu leur courage faiblir
+toire. Devant la sombre et douloureuse perspective qui
+É s'ouvrait devant eux, beaucoup ont leur courage faiblir
 D. et leur cœur se briser. Ils cherchèrent à se soustraire aux
 mesures d'expulsion en embrassant la religion chrétienne,
 TE mais le clergé chrétien avait reçu ordre de n'accepter que
-q les israélites qui satisferaient à certaines conditions spé-
-E ciales, et quelques-uns seulement furent autorisés à entrer
-Ë dans la religion grecque. :
+les israélites qui satisferaient à certaines conditions spé-
+ciales, et quelques-uns seulement furent autorisés à entrer
+dans la religion grecque.:
 Leur seule ressource, leur seule issue était dans l'émi-
 - gration vers des pays plus cléments et plus hospitaliers.
 Tous les moyens imaginables pour empêcher les
-| israélites de vivre en dehors du Territoire furent
+israélites de vivre en dehors du Territoire furent
 : employés par les gouverneurs. C'est ainsi que ceux de
-F Saint-Pétersbourg et de Moscou publièrent des circu-
+Saint-Pétersbourg et de Moscou publièrent des circu-
 ; laires ordonnant que dans toutes les enseignes des
 maisons de commerce, boutiques et ateliers appartenant à des israélites, le nom du propriétaire, le nom
 de son père et le nom de famille fussent écrits lisiblement, afin que les passants reconnussent immédiatement que la boutique était celle d'un israélite. Voici le
 
 texte dela circulaire du gouverneur deSaint-Pétersbourg,
-elle est datée du 15 mars 1891 :
+elle est datée du 15 mars 1891:
 
 Dans l'ordre du jour du 7 novembre de l'année dernière,
 
-_ j'ai demandé que sur toutes les enseignes des magasins
+j'ai demandé que sur toutes les enseignes des magasins
 
 - ou des maisons de commerce appartenant à des juifs{ ainsi
 que sur les enseignes des ateliers d'ouvriersjuifs,le nom du
@@ -516,7 +516,7 @@ diatement que la boutique appartient à un juif et qu'ainsi
 tout malentendu soit évité. J'apprends que les juifs ont
 exécuté mes ordres, mais qu'ils ont écrit en petits caractères illisibles sur les côtés de leurs enseignes, dans un
 endroit peu en vue, leurs nom et prénom qui trahissaient
-leur origine juive ; de cette manière, le but poursuivi n'a
+leur origine juive; de cette manière, le but poursuivi n'a
 pas été atteint. Je recommande strictement à tous les commissaires de police de chaque quartier de veiller sévèrement à ce que le nom du propriétaire, le nom du père et le
 nom de famille des juifs soient écrits sur leurs enseignes
 lisiblement et de manière à frapper la vue des passants,
@@ -527,19 +527,19 @@ d'en haut, eût un contre-coup chez les populations et
 surtout chez les paysans. En effet, des troubles graves
 eurent lieu dans plusieurs localités de la Russie, qui
 
-* avaient pour but le pillage.
+avaient pour but le pillage.
 
 ; A Elisabethgrad, où déjà, en 1882, des troubles s'étaient
 produits, on vit, le 26 juillet au matin, plusieurs milliers
 
-_ de paysans se réunir et se concerter en vue du pillage
-des maisons israélites. Au cri de : à bas les juifs! ils
+de paysans se réunir et se concerter en vue du pillage
+des maisons israélites. Au cri de: à bas les juifs! ils
 
-_ se ruèrent sur les boutiques juives et en commencèrent
+se ruèrent sur les boutiques juives et en commencèrent
 
-_ le pillage. Après les boutiques, on passa aux maisons
+le pillage. Après les boutiques, on passa aux maisons
 
-_ d'habitation. Il y eut trois israélites tués et un grand
+d'habitation. Il y eut trois israélites tués et un grand
 
 A Charaïevo, bourgade située dans le gouvernement de Kherson, les israélites ont vécu de tout
 temps en bonnes relations avec les chrétiens. Sur les
@@ -552,18 +552,18 @@ soir, ils se prolongèrent jusqu'au lendemain. Le gouverneur de Kherson, préven
 11 juin et, par son intervention énergique, mit fin aux
 excès. Le maire fut destitué et arrêté, ainsi que les
 principaux meneurs. À la suite de ces faits, le commissaire, M. Ivachenko, adressa la circulaire suivante
-aux maires des communes de son district :
+aux maires des communes de son district:
 
 Une agitation s'est produite dans la population, elle aurait
 pour but de piller les biens des israélites et de faire subir
 à ceux-ci de mauvais traitements. J'ordonne à l'administration communale de faire savoir aux maires des communes et aux chefs des villages, qu'ils aient à prendre des
 mesures énergiques et immédiates, afin de préserver les
 israélites et leurs biens de toute atteinte, et de ne pas
-perdre dé vue l'ordre de M. le gouverneur de Kherson du
+perdre vue l'ordre de M. le gouverneur de Kherson du
 2 juin 1882, numéro 31, ordre publié suivant le manifeste de
 l'empereur et reproduit dans l'ukase du Sénat de l'Empire
 
-L du 10 mai 1886, numéro 6.885 et relatif aux mesures à prendre
+du 10 mai 1886, numéro 6.885 et relatif aux mesures à prendre
 
 contre les troubles anti-israélites. Pour cet objet, le maire -
 
@@ -573,9 +573,9 @@ envers les israélites, et de faire connaître à la population
 
 la fausseté des bruits ineptes qui circulent au sujet des
 . israélites et qui ont pour but d'attenter à la vie et aux biens
-. de ceux-ci : finalement, de propager parmi les habitants
-ge la certitude que le gouvernement punira sévèrement toute
-= portée aux biens et aux personnes habitant l'Em-
+. de ceux-ci: finalement, de propager parmi les habitants
+la certitude que le gouvernement punira sévèrement toute
+portée aux biens et aux personnes habitant l'Em-
 
 . pire, à quelque culte qu'elles appartiennent. Les gens qui
 
@@ -598,14 +598,14 @@ Plus tard, ce fut dans des localités du gouvernement
 de Tchernigof qu'on signala de nouvelles émeutes,
 notamment à Starodoub où elles prirent un caractère
 
-particulier de gravité. :
+particulier de gravité.:
 Le 11 octobre une troupe de paysans s'était massée
 
 de bonne heure sur la place du marché. Sur les injonc-
 
 tions de la police elle se dispersa, mais pour se reformer
 
-_ un peu plus loin. Lorsque les juifs ouvrirent leurs
+un peu plus loin. Lorsque les juifs ouvrirent leurs
 
 … magasins, les paysans se précipitèrent sur eux, la police
 
@@ -615,10 +615,10 @@ fut vite débordée et bientôt la place du marché fut
 enfonçant les portes et commençant à détruire et à
 
 . jeter par les fenêtres les meubles et les marchandises
-| appartenant aux juifs. En peu de temps tout ce qui
-_ pouvait être détruit dans les maisons juives fut anéanti.
-_ C'est en vain que deux prêtres chrétiens s'interposèrent
-ke pour calmer la fureur des émeutiers, ils ne purent se
+appartenant aux juifs. En peu de temps tout ce qui
+pouvait être détruit dans les maisons juives fut anéanti.
+C'est en vain que deux prêtres chrétiens s'interposèrent
+pour calmer la fureur des émeutiers, ils ne purent se
 
 faire écouter. Vers sept heures du soir un incendie
 éclata à côté de la cathédrale. La foule ne se dérangea
@@ -628,27 +628,27 @@ dévora une dizaine de maisons. Les émeutiers gorgés
 de vin et d'eau-de-vie continuèrent leur besogne jus-
 qu'au matin, puis les paysans repartirent pour leurs
 villages, emportant des charrettes de nombreux objets
-volés dans les maisons et boutiques juives. :
+volés dans les maisons et boutiques juives.:
 
 On évalue à trente le nombre d'israélites tués et à
-cent les blessés dans cette émeute de Starodoub. ;
+cent les blessés dans cette émeute de Starodoub.;
 
-Vers la fin du mois de décembre, des troubles eurent .
+Vers la fin du mois de décembre, des troubles eurent.
 
 lieu particulièrement dans les districts ravagés par la
-famine. Le bruit s'était répandu que des juifs avaient |
+famine. Le bruit s'était répandu que des juifs avaient
 réuni de grands approvisionnements de vivres. La foule à
-affamée et irritée se précipita sur les magasins juifs |
-pour les piller. N'y trouvant pas les approvisionne- |
+affamée et irritée se précipita sur les magasins juifs
+pour les piller. N'y trouvant pas les approvisionne-
 ments espérés, elle se mit à démolir les maisons des
 
-Des scènes de ce genre eurent lieu à Samozansk et à ;
+Des scènes de ce genre eurent lieu à Samozansk et à;
 
 En même temps les vexations, les tracasseries, les
-injustices pleuvaient sur les israélites de toutes classes |
-et de toutes conditions : exclusion des étudiants
+injustices pleuvaient sur les israélites de toutes classes
+et de toutes conditions: exclusion des étudiants
 israélites des écoles supérieures, rigueurs ordonnées
-contre les rares journaux russes qui cherchaiïent à |
+contre les rares journaux russes qui cherchaiïent à
 défendre les israélites; renvois prononcés contre des
 employés, chefs de gare, commis de banque, clercs de
 notaires ou d'avocats; mesures d'exception prises
@@ -685,7 +685,7 @@ l'antisémitisme tout entier et l'on voit toutes les faces de la
 
 Mais qui parmi nos lecteurs connaissait cet article 1171,
 qui interdit à la femme d'un pauvre ouvrier juif de vendre
-du lait ou du pain? Voici le texte de cet article :
+du lait ou du pain? Voici le texte de cet article:
 
 « Les juifs qui, hors du territoire qui leur est assigné
 pour leur résidence permanente, se livreront à un commerce
@@ -709,13 +709,13 @@ c'est surtout parce qu'on l'y oublia; pas un homme de bon
 sens ne peut comprendre qu'on condamne à une peine grave,
 terrible, une pauvre femme qui vend le lait de ses vaches.
 
-Il est difficile de demander à un homme d'obéir à des lois ;
+Il est difficile de demander à un homme d'obéir à des lois;
 ou à des défenses qui sont en contradiction absolue avec
 tous les droits naturels et avec les devoirs mêmes d'un honnête homme. On défend à des individus de se livrer à
 Yagriculture, il ne leur est même pas permis de vendre du
-lait, du pain. Que doivent-ils devenir ? Doivent-ils voler ?
+lait, du pain. Que doivent-ils devenir? Doivent-ils voler?
 
-Il est bien entendu que de pareilles lois ne sont pas observées ; la population et l'administration contribuent à cette
+Il est bien entendu que de pareilles lois ne sont pas observées; la population et l'administration contribuent à cette
 violation, la première par humanité, la seconde par intérêt.
 
 Mais voyez la conséquence du jugement du tribunal de
@@ -724,31 +724,31 @@ connaissait, dix femmes vont être expulsées de leur ville,
 de leur foyer, loin de leurs maris, de leurs enfants, de
 leurs intérêts et de leurs affections. L'hiver est rude, le
 ménage pauvre et dehors il vente et neige à faire pitié;
-n'importe, la loi est formelle : « seront expulsés immédiatement ». Ce qui est plus extraordinaire que le jugementluimême, c'est qu'il se soit trouvé des juges pour appliquer
+n'importe, la loi est formelle: « seront expulsés immédiatement ». Ce qui est plus extraordinaire que le jugementluimême, c'est qu'il se soit trouvé des juges pour appliquer
 une loi datant du Moyen-Age, et qu'ils n'aient pas reculé
 devant la pensée des malheurs et des misères que leur
 jugement entraîne avec lui.
 
 On signale encore pour l'année 1892 d'autres émeutes
 dans les gouvernements de Saratof et de Pensa. Voici
-à ce sujet une lettre publiée par la Neuzeit du 15 jan- =
+à ce sujet une lettre publiée par la Neuzeit du 15 jan-
 
 Près de deux mille familles ont été réduites à la misère,
 quelques centaines de juifs gravement blessés et plus de
 
-AE _ quatre-vingt-dix maisons détruites en tout ou partie. Voici
-la quelques détails sur ces tristes événements :
+quatre-vingt-dix maisons détruites en tout ou partie. Voici
+la quelques détails sur ces tristes événements:
 - Le gouvernement de Saratof, qui souffre le plus de la
 disette, renferme aussi le plus grand nombre de malheureux.
-_ Des milliers de paysans affamés, sans travaux, parcourent
+Des milliers de paysans affamés, sans travaux, parcourent
 — la contrée, et lorsqu'on ne leur donne pas de secours ils
-#: prennent de force ce qu'ils rencontrent. A Samozansk le
-bruit se répandit que les juifs avaient réuni de grands ap_  provisionnements de vivres, mais qu'ils les tenaient cachés.
-__ La foule se précipite sur les magasins des juifs pour les
+: prennent de force ce qu'ils rencontrent. A Samozansk le
+bruit se répandit que les juifs avaient réuni de grands ap_ provisionnements de vivres, mais qu'ils les tenaient cachés.
+La foule se précipite sur les magasins des juifs pour les
 - piller. L'atelier du riche pelletier Maïtrof fut pillé en
 quelques instants, il en fut de même des magasins voisins,
-_ toutes les marchandises furent jetées dans la rue. Ce qu'on
-_ ne pouvait pas enlever fut détruit. Les maisons particulières ne furent pas épargnées, toutes les chambres furent
+toutes les marchandises furent jetées dans la rue. Ce qu'on
+ne pouvait pas enlever fut détruit. Les maisons particulières ne furent pas épargnées, toutes les chambres furent
 soigneusement visitées et les meubles mis en pièces. Comme
 on ne trouva pas les provisions qu'on cherchait, les
 pillards s'avisèrent que les juifs les avaient trompés et les
@@ -756,7 +756,7 @@ maltraitèrent sans pitié. La police ne tenta rien pour
 mettre fin à ces scènes odieuses et les pillards purent
 tranquillement continuer leur œuvre de destruction. Entre
 temps, ils avaient vidé quelques tonneaux d'eau-de-vie, et
-_ une fois excitée par sa propre fureur et par l'alcool, la
+une fois excitée par sa propre fureur et par l'alcool, la
 foule, armée de pioches et de haches, se mit en train de
 démolir les maisons. Cinquante-neuf habitations juives
 furent détruites en l'espace d'une heure et demie. Les
@@ -777,33 +777,33 @@ forcenés, que leur propre misère ne prédisposait que trop
 
 en grande quantité, mais qu'ils ne voulaient pas les vendre
 aux chrétiens. Le 5 janvier, les maisons des juifs de Kerson
-furent pillées et démolies; des centaines de familles sont .
+furent pillées et démolies; des centaines de familles sont.
 restées sans asile.
 
-A Yousofka, dans le gouvernement d'Ekatérinoslaf, |
+A Yousofka, dans le gouvernement d'Ekatérinoslaf,
 eurent lieu au mois d'août des désordres qui ont fait
 également des victimes parmi les israélites. Les ouvriers
 des mines de charbon, au nombre de plusieurs milliers,
-pillèrent, saccagèrent et incendièrent les maisons |
+pillèrent, saccagèrent et incendièrent les maisons
 situées dans le quartier juif. Ce n'est qu'à l'arrivée de
 deux bataillons d'infanterie que les scènes prirent fin. Il
 y eut, d'après les Annales gouvernementales d'Ekatéri-
-noslaf, 192 magasins, 57 maisons et synagogues pillés |
+noslaf, 192 magasins, 57 maisons et synagogues pillés
 et incendiés. Les pertes et les dommages subis par les
-israélites se montaient à trois millions de roubles envi- |
+israélites se montaient à trois millions de roubles envi-
 
 L'Odesski Listok du 21 octobre-2 novembre publiaïit
 à ce sujet les renseignements suivants
 
 Le gouverneur militaire de la Russie méridionale, comte
 Moussine Pouchkine, a fait insérer dans les Annales officielles l'acte d'accusation dressé contre les émeutiers de
-Yousofka. Les inculpés sont divisés en deux catégories :
+Yousofka. Les inculpés sont divisés en deux catégories:
 les émeutiers proprement dits, et les voleurs qui ont fait
 main basse sur les marchandises et les valeurs enfermées
 dans les maisons envahies et saccagées par les premiers.
 Les inculpés de la première catégorie sont au nombre
 de 189. Voici comment l'acte d'accusation s'exprime à
-leur égard : « Dans la matinée du 2 août, les émeutiers
+leur égard: « Dans la matinée du 2 août, les émeutiers
 saccagèrent les baraques construites pour les cholériques,
 puis mirent le feu aux magasins d'approvisionnements
 militaires. Conduits par les inculpés dénommés ci-dessus,
@@ -824,7 +824,7 @@ L'année 1893 vit se continuer la persécution.
 
 Voici l'ordonnance que le ministre de l'intérieur
 
-.adressa aux gouverneurs à la date du 14-26 janvier 1893 :
+.adressa aux gouverneurs à la date du 14-26 janvier 1893:
 
 Le 3 avril 1880, le ministère de l'intérieur a invité les
 gouverneurs à ajourner, en attendant des instructions spé-
@@ -838,7 +838,7 @@ s'établir dans les provinces intérieures de l'Empire fussent
 
 Reconnaissant actuellement la nécessité d'abroger les
 
-* ordonnances ci-dessus de mes prédécesseurs, je prie Votre
+ordonnances ci-dessus de mes prédécesseurs, je prie Votre
 Excellence, sans vérifier en détail les droits des juifs domiciliés dans votre gouvernement, de prendre toutes les
 mesures nécessaires afin de faire émigrer dans le Territoire
 tous les juifs qui ne possèdent pas le droit de séjour dans
@@ -865,7 +865,7 @@ qui, avant l'expiration des délais qui leur seront accordés
 pour quitter leur domicile actuel, pourront prouver qu'ils
 possèdent le droit de continuer à résider hors du Terri-
 Je prie Votre Excellence de me tenir au courant de toutes
-les mesures que vous prendrez pour mettre à exécution la ‘4
+les mesures que vous prendrez pour mettre à exécution la
 présente ordonnance concernant le renvoi des juifs, et de
 me renseigner exactement sur le nombre des juifs qui
 doivent être renvoyés, ainsi que sur les sursis qui leur
@@ -883,15 +883,14 @@ Par suite de cette mesure la province de Kherson ne
 compte plus une seule bourgade; il n'y a plus que des
 grandes villes et des villages et l'on sait que les juifs ne
 peuvent pas demeurer dans les villages.
-36
 
 La rigueur de ces exécutions fut extrême, comme on
-peut en juger par le cas suivant :
+peut en juger par le cas suivant:
 
 Dans le village de Duzinof, dans le gouvernement de
-Kharkof, demeurait, depuis de longues années, un israélite :
+Kharkof, demeurait, depuis de longues années, un israélite:
 nommé Samuel Astrakan, gérant des propriétés d'un chré-
-tien nommé Jurekof. Comme Astrakan avait su gagner la
+tien nommé Jurekof. Comme Astrakan avait gagner la
 confiance de son maître par son honnêteté et son activité,
 Jurekof lui abandonna toute l'administration de ses biens
 et le nomma mandataire général. Le chef du village voyait
@@ -909,16 +908,16 @@ soignait demanda pour elle un sursis, un voyage, dans
 l'état où elle se trouvait, pouvant lui être fatal. Tout
 fut inutile. Par un froid terrible, la malade dut se lever de
 son lit, on la plaça sur un traineau et le convoi se mit en à
-route pour la ville voisine. Les agents de police qui escor- :
+route pour la ville voisine. Les agents de police qui escor-:
 taient la malheureuse famille remplirent leur mission avec
-zèle : la malade expira sur la grande route, ils ramenèrent » en ville un cadavre.
+zèle: la malade expira sur la grande route, ils ramenèrent » en ville un cadavre.
 
 Tels sont, résumés dans leurs traits essentiels, les
 dans les deux décades écoulées. Nous passons les
 petits faits intermédiaires qui ne nous apprendraient
 rien de plus, et nous abordons les événements récents.
 
-€ : Les massacres de Kichineîf, avril 4903
+: Les massacres de Kichineîf, avril 4903
 Notons d'abord que pendant l'année 1902 le gouvernement du tsar a continué d'appliquer rigoureusement les
 mesures d'exception et d'arbitraire à l'égard des juifs
 ; Cette attitude n'était pas faite pour calmer les passions antisémites de la foule.
@@ -926,23 +925,23 @@ On ne tarda pas à s'en apercevoir. Ce fut à Kichinef
 que la haine fit explosion avec une violence inouïe.
 Cette importante ville compte 108.796 habitants d'après
 le recensement de janvier. Elle comprend environ
-45.000 juifs ; le reste est formé pour deux tiers de
+45.000 juifs; le reste est formé pour deux tiers de
 Moldo-Valaques, pour un tiers seulement de Russes
-proprement dits, les uns et les autres chrétiens orthodoxes ; enfin il y a deux mille Arméniens et un millier
+proprement dits, les uns et les autres chrétiens orthodoxes; enfin il y a deux mille Arméniens et un millier
 de luthériens. La ville est un centre d'affaires considé-
-$ rable où s'achètent les produits agricoles d'une région
-‘ qui passe pour être la plus riche de la Russie: fruits,
-| vins, légumes, tabacs, etc.
+rable où s'achètent les produits agricoles d'une région
+qui passe pour être la plus riche de la Russie: fruits,
+vins, légumes, tabacs, etc.
 ; Le commerce des grains, des cuirs, des laines, des
 4 tissus, des eaux-de-vie, y est également important, la
-J ville possédant des voies ferrées nombreuses, des com-
+ville possédant des voies ferrées nombreuses, des com-
 ; munications télégraphiques et téléphoniques qui la
 4 tiennent en relations constantes avec Pétersbourg,
-L Odessa, Moscou, etc.
+Odessa, Moscou, etc.
 
 Les israélites sont mêlés à la vie économique du pays
 d'une manière active. La grande industrie n'a pas
-encore pris tout son essor, mais la petite industrie y est £
+encore pris tout son essor, mais la petite industrie y est
 très développée. Il y a environ 1.200 patrons à Kichinef. Ce sont les juifs qui constituent le plus fort
 contingent de la classe ouvrière. Ils sont menuisiers,
 bouchers, serruriers, peintres en bâtiment, etc.; ils
@@ -955,15 +954,15 @@ Tel est le théâtre des événements sanglants que nous
 allons relater. Nous aurions pu, à l'aide des documents
 que nous avons recueillis, composer un récit dramatique.
 Cela eût été plus agréable au lecteur; mais la vérité
-aurait pu en souffrir. Il ne s'agit pas ici de plaire, mais
+aurait en souffrir. Il ne s'agit pas ici de plaire, mais
 d'instruire. Nous ne faisons pas œuvre de littérateur,
 mais d'historien impartial. Nous laisserons donc parler
-souvent les faits ; nous apporterons les documents euxmêmes, articles de journaux russes, lettres privées de
+souvent les faits; nous apporterons les documents euxmêmes, articles de journaux russes, lettres privées de
 correspondants, rapports ofliciels, etc. C'est le seul
 moyen de ne pas altérer la vérité et de faire un contrôle
 par la comparaison des sources.
 
-Quelques jours avant les Pâques chrétiennes, qui :
+Quelques jours avant les Pâques chrétiennes, qui:
 tombaient le 19 et le 20, on découvrit près de la petite
 ville de Doubossary le cadavre affreusement mutilé
 d'un adolescent de dix-sept ans, nommé Rybalenko.
@@ -971,13 +970,13 @@ Aussitôt on accusa les juifs d'avoir commis ce crime
 pour des besoins rituels. Bessarabetz, journal antijuif très violent, fut le principal inspirateur de cette
 
 à. Une instruction fut ouverte. Elle établit qu'il n'en était
-ve rien et que cet assassinat avait eu pour mobile des
-i ; querelles de famille à propos d'un héritage. Mais
-+ comme l'émotion publique ne se calmaït pas, une
+rien et que cet assassinat avait pour mobile des
+; querelles de famille à propos d'un héritage. Mais
+comme l'émotion publique ne se calmaït pas, une
 à commission fut appelée de Saint-Pétersbourg pour pro-
-| j céder à une seconde autopsie.Ses conclusions confirment
+céder à une seconde autopsie.Ses conclusions confirment
 ; les précédentes. Ce qui n'empêche pas Bessarabetz de
-continuer sa campagne. .
+continuer sa campagne..
 Et lorsque le grand rabbin de Kichinef,
 s'adressa à l'archiéréi (évêque) pour lui demander d'apaiser les esprits, ce
 prélat répondit qu'il croyait fermement que les juifs
@@ -991,15 +990,15 @@ assignée d'avance. Le plan général était de commencer
 l'action au même moment dans les seize quartiers de la
 ville, en partant de la périphérie pour converger vers le
 a centre. La consigne était de ne pas prendre d'armes à feu
-# et de n'employer que des barres de fer.
-#4 Les hommes ainsi enrôlés pour le meurtre n'étant pas
-E très nombreux, comme on le verra, il s'agissait de leur
+et de n'employer que des barres de fer.
+4 Les hommes ainsi enrôlés pour le meurtre n'étant pas
+très nombreux, comme on le verra, il s'agissait de leur
 À. créer un milieu sympathique de telle façon que la masse
-Fe ambiante, loin de s'opposer au massacre, fût disposée et
-Æ même intéressée à l'encourager. Ce fut l'œuvre d'un pro-
-& spectus qui fut rédigé et distribué à profusion par le comité
+ambiante, loin de s'opposer au massacre, fût disposée et
+même intéressée à l'encourager. Ce fut l'œuvre d'un pro-
+spectus qui fut rédigé et distribué à profusion par le comité
 ; d'organisation. « Le tsar, disait ce manifeste, a donné la
-Er permission d'attaquer les juifs pendant les deux premiers
+permission d'attaquer les juifs pendant les deux premiers
 la (1) Les massacres de Kichinef, publication du Siècle.
 
 jours de la sainte fête de Pâques. » En conséquence, ajoutait
@@ -1020,28 +1019,27 @@ Pendant les deux jours de Pâques, une foule chrétienne
 en fureur, composée de jeunes gens et d'adultes, d'ouvriers
 et même de personnages en uniformes, de fonctionnaires,
 a pillé et détruit toutes les maisons juives, leurs boutiques
-et leurs magasins, tué et blessé beaucoup de personnes %
-* parmi lesquelles on compte un grand nombre de femmes
-et d'enfants. Ces derniers ont été simplement jetés par les |
+et leurs magasins, tué et blessé beaucoup de personnes
+parmi lesquelles on compte un grand nombre de femmes
+et d'enfants. Ces derniers ont été simplement jetés par les
 assassins de la hauteur des deuxièmes et troisièmes étages
 sur le pavé... Plusieurs synagogues ont été pillées, et les
 rouleaux de la Thora déchirés et profanés. Dans quelques
-synagogues, les serviteurs ont tenté de résister aux pillards, ;
-ils ont été assommés. Toutes les rues sont couvertes d'une :
+synagogues, les serviteurs ont tenté de résister aux pillards,;
+ils ont été assommés. Toutes les rues sont couvertes d'une:
 couche épaisse de plumes et de duvet provenant des couvertures déchirées, et tout le mobilier des maisons pillées est À
-brisé en petits morceaux. Même les planchers, les poêles et <
+brisé en petits morceaux. Même les planchers, les poêles et
 les foyers n'ont pas trouvé grâce et ont été détruits. J'ai
-été témoin du pillage en 1882, à Kief; mais ce que j'ai vu
-là n'est rien à côté de ce que j'ai observé ici durant ces
-deux jours. Ce que les pillards ne pouvaient pas détruire <
+été témoin du pillage en 1882, à Kief; mais ce que j'ai
+n'est rien à côté de ce que j'ai observé ici durant ces
+deux jours. Ce que les pillards ne pouvaient pas détruire
 et emporter, ils l'arrosaient de pétrole et le brülaient. Le
-nombre des juifs blessés, en dehors des tués, atteint ,
-42
+nombre des juifs blessés, en dehors des tués, atteint,
 
 Il est nécessaire de faire remarquer que les troubles ont
 “cessé sans qu'on ait tiré un coup de feu et dès que le petit
-| état de siège eut été proclamé. ;
-Les dégâts sont évalués à plusieurs millions de roubles ;
+état de siège eut été proclamé.;
+Les dégâts sont évalués à plusieurs millions de roubles;
 des milliers de personnes sont restées sans abri, sans vêtement et sans nourriture.
 
 Tout le monde est convaincu que ces troubles sans précé-
@@ -1051,13 +1049,13 @@ attendu qu'avant cette propagande, les juifs s'accordaient
 bien avec la population locale.
 
 Voici, d'autre part, un passage du récit fait par un
-témoin oculaire du pillage de Kichinef :
+témoin oculaire du pillage de Kichinef:
 
 Déjà quinze jours avant Pâques, les bruits ont couru
 avec persistance qu'à Pâques on attaquerait les juifs. Ces
 bruits se sont confirmés dès le premier jour. Les pillards,
 partagés en groupes de huit à dix hommes, envahissaient
-tranquillement les maisons ct les boutiques juives, les
+tranquillement les maisons les boutiques juives, les
 pillaient en frappant les maîtres ou en les tuant. Quand il
 s'agissait d'attaquer une maison où il n'y avait que des
 femmes, deux ou trois pillards seulement opéraient. La
@@ -1068,60 +1066,60 @@ troubles et je m'efforçai d'amener les spectateurs à défendre
 les juifs qu'on attaquait. J'y réussis en partie, mais lorsque
 
 . je vis qu'on toréurait un juif âgé, je m''élançai pour le
-| délivrer. A ce moment, un coup terrible à la figure faillit
+délivrer. A ce moment, un coup terrible à la figure faillit
 
 me faire tomber. Le coup me fut porté à la joue, de l'oreille
 
 4 à l'œil, et me blessa aux yeux. Je chancelai comme un
 à homme ivre et des coups commencèrent à pleuvoir sur moi
-e de tous côtés. On m'aurait sans doute tué si quelques
+de tous côtés. On m'aurait sans doute tué si quelques
 : personnes, qui me connaissaient, ne s'étaient pas mis à
-* crier : « Mais vous assommez un orthodoxe. » C'est alors
+crier: « Mais vous assommez un orthodoxe. » C'est alors
 ; que les coups cessèrent. Maintenant je soigne ma blessure.
-% J'ai exposé tout cela en détail au procureur de la cour de
+J'ai exposé tout cela en détail au procureur de la cour de
 
-Voici maintenant un récit emprunté au journal Viedo- ;
+Voici maintenant un récit emprunté au journal Viedo-;
 mosti, de Saïnt-Pétersbourg, numéro 100, 15-28 avril;
-correspondance de Kichinef : (
+correspondance de Kichinef: (
 Depuis l'apparition dans Bessarabetz, dans le Novoie
 Vremia et dans le Sviet des articles qu'on connaît relatifs
-aux israélites d'ici, la population de notre ville avait pris |
+aux israélites d'ici, la population de notre ville avait pris
 une attitude nettement hostile à ces derniers. Des bruits
-alarmants circulaient en ville : « IL semble, disait-on, que |
-l'on va tuer les juifs à Pâques. » Mais étant données les |
-mœurs plutôt douces de la population roumaine, qui forme #
+alarmants circulaient en ville: « IL semble, disait-on, que
+l'on tuer les juifs à Pâques. » Mais étant données les
+mœurs plutôt douces de la population roumaine, qui forme
 la majorité, personne n'attachait une importance sérieuse
 à ces bruits. Toutefois, tout était tranquille jusqu'à Pâques.
 Vint le dimanche de Pâques. Tous les magasins étaient
 fermés, la ville avait un air de fête. La foule qui, pour des À
 motifs que nous ne connaissons point, se trouvait privée
 cette année des distractions organisées les années précé-
-dentes par le Comité contre l'alcoolisme, s'était massée sur |
+dentes par le Comité contre l'alcoolisme, s'était massée sur
 l'une des places de la ville, la place de Choufline, où l'on
 avait établi des balançoires et des guinguettes appartenant
 à des entrepreneurs privés. Au milieu des chrétiens on
-voyait circuler un certain nombre d'israélites venus pour |
+voyait circuler un certain nombre d'israélites venus pour
 regarder comment s'amusaient leurs concitoyens. Vers
 midi, tout d'un coup, un mouvement se dessina parmi la
-foule : on vit plusieurs juifs se détacher des groupes et |
+foule: on vit plusieurs juifs se détacher des groupes et
 s'enfuir vers leurs maisons. Ils étaient poursuivis par des
 petits groupes de chrétiens, composés principalement de
-tout petits jeunes gens qui leur jetaient des pierres au cri :
-tuez les juifs. Le cri se propagea avee la rapidité d'un |
-courant électrique dans la foule, déjà mal disposée envers ;
+tout petits jeunes gens qui leur jetaient des pierres au cri:
+tuez les juifs. Le cri se propagea avee la rapidité d'un
+courant électrique dans la foule, déjà mal disposée envers;
 les juifs. Immédiatement les groupes se dispersèrent dans )
 diverses directions. Le principal enfila la rue Alexandrovskaïa, se dirigeant vers le Nouveau Bazar. De formidables
 hourrahs, poussés par des milliers de gosiers abreuvés
 d'alcool, ébranlèrent les airs. Le bruit des vitres cassées, des
 portes enfoncées par la pression de la foule, se confondait
 avec les hurlements et les coups de sifflet des assaillants,
-les cris de détresse des juifs frappés, les pleurs des femmes ;
-et des enfants. C'était une cacophonie infernale dont l'écho :
+les cris de détresse des juifs frappés, les pleurs des femmes;
+et des enfants. C'était une cacophonie infernale dont l'écho:
 
 faisait trembler la population du centre de la ville. Dans
 l'espace d'une demi-heure au plus, la populace occupa tout
 
-- * le quartier voisin de la gare et c'est alors que se passa
+- le quartier voisin de la gare et c'est alors que se passa
 quelque chose de terrible, d'indescriptible. Tous les juifs
 que l'on trouvait étaient immédiatement frappés jusqu'à ce
 qu'ils eussent perdu connaissance. Un juif, qu'on avait
@@ -1140,7 +1138,7 @@ Gostinaïa, Kharlampievskaïa, Pouchkinskaïa et d'autres.
 Les agresseurs étaient armés de marteaux, de haches et de
 barres de fer. Les magasins les plus riches furent aussitôt
 assaillis, ouverts, les marchandises enlevées, détruites ou
-jetées dans la rue. Au vu de tout le monde, on enlevait des
+jetées dans la rue. Au de tout le monde, on enlevait des
 vêtements, des chapeaux, des chaussures.Beaucoup d'entre
 les pillards s'habillaient à neuf sur les lieux mêmes;
 d'autres emportaient ce qu'ils pouvaient ou s'en allaient
@@ -1154,52 +1152,52 @@ midi, on sut que, dans les divers quartiers de la ville, un
 assez grand nombre de juifs avaient été massacrés. Les
 À malheureux, saisis de panique, abandonnaient tout ce
 qui leur appartenait et se cachaient avec femmes et
-L enfants où ils pouvaient, dans les caves et sous les toits.
+enfants où ils pouvaient, dans les caves et sous les toits.
 
 Ce jour-là, toutes les rues où l'on pouvait trouver des
-d habitations juives furent dévastées. Les synagogues ne
-| furent point épargnées: rue Gostinaïa la synagogue fut
+habitations juives furent dévastées. Les synagogues ne
+furent point épargnées: rue Gostinaïa la synagogue fut
 
-envahie, saccagée, les rouleaux de la Thora déchirés et .
+envahie, saccagée, les rouleaux de la Thora déchirés et.
 jetés dans la rue. La grande synagogue de la place
-Siannaïa subit le même sort. Les chrétiens, même ceux .
+Siannaïa subit le même sort. Les chrétiens, même ceux.
 qui appartenaient aux classes cultivées, se sont conduits
-d'une manière révoltante ; ils n'ont pas fait l'ombre d'un ]
+d'une manière révoltante; ils n'ont pas fait l'ombre d'un
 effort en vue de mettre un terme au massacre et au
-brigandage. Ils ont assumé là une responsabilité terrible :
+brigandage. Ils ont assumé une responsabilité terrible:
 le public se promenait et contemplait l'horrible « travail ».
 Des habitants des classes supérieures allaient en voiture
-voir le spectacle. Vers cinq heures, on vit enfin, dans la rue |
+voir le spectacle. Vers cinq heures, on vit enfin, dans la rue
 Pouchkinskaïa, des patrouilles de soldats et quelques gens
 saisir les pillards, leur enlever le butin et arrêter les
 coupables. Mais entre temps, les troubles recommencèrent
-dans les parties hautes de la ville. On apprit que les fau- ‘3
+dans les parties hautes de la ville. On apprit que les fau-
 bourgs avaient été envahis par de nouvelles bandes venues
 des villages voisins, afin d'avoir leur part de butin. La
 panique fut alors plus vive encore et les brigands, encouragés par ces bruits, « travaillèrent » avec plus de bestialité. à
 Ce n'est que vers le soir (du lundi) que la tranquillité
 commença à revenir. Les bandes poursuivies par des
 patrouilles (qui heureusement n'eurent même pas à faire
-usage de leurs armes) paraissaient de plus en plus rarement |
+usage de leurs armes) paraissaient de plus en plus rarement
 et, pendant la nuit, tout se calma complètement. La ville
 était à tel point silencieuse qu'elle paraissait complètement
-morte et ce silence n'était que rarement interrompu par |
-les pas des chevaux des patrouilles passant au galop par |
+morte et ce silence n'était que rarement interrompu par
+les pas des chevaux des patrouilles passant au galop par
 les rues. Les juifs, cruellement éprouvés, se cachaient où
-ils pouvaient et ne donnaient pas signe de vie. Vint le ;
+ils pouvaient et ne donnaient pas signe de vie. Vint le;
 troisième jour de Pâques. Dans presque tous les quartiers
 de la ville de fortes patrouilles étaient postées, le bruit
-circulait qu'elles avaient reçu l'ordre de s'opposer avec |
+circulait qu'elles avaient reçu l'ordre de s'opposer avec
 énergie à toute tentative de renouvellement des troubles,
 sans reculer devant des mesures de rigueur. Pendant de
-longues heures, les juifs, effrayés, n'y croyaient pas; ce |
-n'est que peu à peu qu'ils se rassurèrent et commencèrent |
-à se montrer dans les rues. Des quartiers de la ville basse .
+longues heures, les juifs, effrayés, n'y croyaient pas; ce
+n'est que peu à peu qu'ils se rassurèrent et commencèrent
+à se montrer dans les rues. Des quartiers de la ville basse.
 on vit alors des files de voitures portant les malades, les
 blessés, les morts s'acheminer vers le centre. Dans d'autres à
 voitures on avait empilé toutes sortes d'objets qu'on avait
 
-pu sauver des mains des assaillants. Les voitures étaient
+sauver des mains des assaillants. Les voitures étaient
 suivies par de longues files de femmes et d'enfants. Tout
 cela fuyait les lieux où tant de sang avait été versé, où
 tant de richesses avaient été détruites.
@@ -1214,7 +1212,7 @@ L'hôpital juif, assez étendu, est transformé en poste de
 secours pour les blessés. Tous les lits sont occupés; au
 8-21 avril, on comptait 62 personnes grièvement blessées.
 Beaucoup d'entre elles sont couchées par terre. Il y a
-‘37 cadavres, dont plusieurs rendus méconnaissables par les
+cadavres, dont plusieurs rendus méconnaissables par les
 blessures reçues. Les cris et pleurs des femmes font mal à
 æntendre. En ce moment il règne une misèré effroyable.
 Aujourd'hui 9-22 avril, tous les magasins juifs qui, par
@@ -1222,11 +1220,11 @@ miracle, n'ont pas été pillés, restent fermés. On manque de
 pain et, en général, de vivres. Des secours sont en voie
 
 Voici maintenant des extraits d'une lettre particulière
-de Kichinef datée du 8-27 avril :
+de Kichinef datée du 8-27 avril:
 
 Voilà le troisième jour que toute la ville est agitée. Les
-troubles ont commencé le dimanche ; une centaine
-d'hommes se sont mis à casser les carreaux, à piller çà et
+troubles ont commencé le dimanche; une centaine
+d'hommes se sont mis à casser les carreaux, à piller et
 là. La police les avait d'abord dispersés, mais elle se retira
 bientôt et se tint près des bâtiments communaux. La foule
 continuait à piller, et gagnait, en criant, d'autres rues de
@@ -1247,20 +1245,20 @@ on le faisait taire à coups de canne et de lance portés àla
 tête et plusieurs (maintenant on sait qu'il y en a quarante)
 se sont itus pour toujours. Que Dieu ait leur âme dans
 l'autre monde... Un enfant de deux ans a été jeté de la
-hauteur d'un deuxième étage; deux juifs qui avaient *
+hauteur d'un deuxième étage; deux juifs qui avaient
 empêché les pillards d'entrer dans une synagogue, y ont
-été tués. Dans les rues, vers la fin de la deuxième journée, ;
-un silence de mort régnait. On n'osait s'y montrer. De |
+été tués. Dans les rues, vers la fin de la deuxième journée,;
+un silence de mort régnait. On n'osait s'y montrer. De
 temps en temps on entendait des plaintes et des gémisse-
 ments. Aujourd'hui la patrouille parcourt les rues. Des
-plumes provenant des oreillers déchirés, couvrent les trot- :
+plumes provenant des oreillers déchirés, couvrent les trot-:
 toirs ainsi que des petits morceaux de peluche, de velours,
 de soie, des fragments de meubles. Les maisons n'ont ni à
 portes ni fenêtres, elles sont complètement vides. Les vic-
 times sont principalement des pauvres gens, artisans,
 petits marchands, employés. Les cadavres ne seront trans-
 portés qu'aujourd'hui à l'hôpital et au cimetière. Dans la à
-hâte on les a oubliés. Le nombre des cadavres est déjà de ;
+hâte on les a oubliés. Le nombre des cadavres est déjà de;
 plus de trente et un. Voilà un journalier qu'on transporte et
 que je connais. Les enfants orphelins suivent etsanglotent.…
 Il y a encore dix cadavres dans divers quartiers de la ville.
@@ -1269,13 +1267,13 @@ sonnes grièvement blessées; beaucoup d'entre elles sont
 près de mourir, les médecins n'ont plus d'espoir.
 Sur les atrocités commises, voici des détails emprun-
 Les massacreurs à coups de hache, de barres de fer, etc.
-frappèrent les juifs et saccagèrent leurs maisons, leurs. ‘à
+frappèrent les juifs et saccagèrent leurs maisons, leurs.
 magasins et leurs biens. Après la mise à sac d'un magasin À
-de fer appartenant à un israélite qui fut massacré, les juifs, |
+de fer appartenant à un israélite qui fut massacré, les juifs,
 en danger de mort, supplièrent les fonctionnaires de police
-et les patrouilles qui stationnaient dans la rue, de les. :
+et les patrouilles qui stationnaient dans la rue, de les.:
 défendre, mais ces derniers assistaient avec indifférence au
-spectacle du pillage et du massacre. On tuait les juifs dans. :
+spectacle du pillage et du massacre. On tuait les juifs dans.:
 les maisons, dans les caves et dans la rue. On les arrachaït
 
 des tramways qui passaient, et sur le champ, en présence
@@ -1285,7 +1283,7 @@ Stern faillit être tué au moment où il prodiguait des soins
 dans sa maison quelques-uns de ses collègues avec leur
 : famille et d'autres israélites de la classe cultivée. M. Linko,
 propriétaire de la pharmacie située rue Nicolaïevskaïa,
-fit preuve de la plus grande charité chrétienne : il sauva
+fit preuve de la plus grande charité chrétienne: il sauva
 tous les locataires israélites de sa cour, y compris la famille
 du docteur Stern et du dentiste G.-M. Levit. Les israélites,
 constatant l'inaction de la police, coururent au télégraphe,
@@ -1297,7 +1295,7 @@ cessèrent aussitôt, comme par enchantement. On procéda
 à l'arrestation des émeutiers. Un millier d'hommes furent
 arrêtés. Beaucoup furent empoignés nantis des objets
 pillés, chez d'autres le butin fut trouvé au moment des
-perquisitions. On établit avec évidence qu'une bande bien $
+perquisitions. On établit avec évidence qu'une bande bien
 organisée et dressée par des assassins intelligents avait
 opéré contre les israélites. Avant de tuer, les monstres
 causaient à leurs victimes des souffrances inouïes. A un
@@ -1308,9 +1306,9 @@ Dans la tête d'une juive on enfonça des clous.
 Il suflit d'entrer dans les cimetières et d'y examiner les
 cadavres mutilés pour en frémir d'épouvante.
 
-. Voici trois femmes : l'une a le ventre coupé en forme de
-croix ; l'autre a dans les narines des clous qui traversent
-le crâne ; la troisième a les seins coupés. Voilà un élève de
+. Voici trois femmes: l'une a le ventre coupé en forme de
+croix; l'autre a dans les narines des clous qui traversent
+le crâne; la troisième a les seins coupés. Voilà un élève de
 langue. Plus loin on voit un enfant étranglé. Il y a en tout
 au cimetière quarante-six cadavres. En outre, à l'hôpital, il
 y a beaucoup de personnes mortellement blessées. Les pillards ne se contentèrent pas de tuer les habitants de la
@@ -1318,25 +1316,25 @@ y a beaucoup de personnes mortellement blessées. Les pillards ne se contentère
 Henri Dagan de.
 
 ville et de leur prendre leurs biens, ils gagnèrent les envi-
-rons. Ils y détruisirent les vignobles et toutes les con- :
-structions et massacrèrent les juifs qui y vivaient. Beau- $
-coup de victimes furent trouvées dans les greniers où elles =
-s'étaient cachées pour échapper aux assassins. Nombre ;
-de cadavres furent découverts dans les cabinets d'aisance. ;
+rons. Ils y détruisirent les vignobles et toutes les con-:
+structions et massacrèrent les juifs qui y vivaient. Beau-
+coup de victimes furent trouvées dans les greniers où elles
+s'étaient cachées pour échapper aux assassins. Nombre;
+de cadavres furent découverts dans les cabinets d'aisance.;
 
-D'autre part, voici les renseignements fournis aux :
+D'autre part, voici les renseignements fournis aux:
 Novosti, 23 avril-6 mai, numéro 110, par son correspondant, qui les tient de personnes bien informées telles
-que M. le docteur N.-A. Dorochevski, chrétien, médecin ;
-de l'hôpital communal :
+que M. le docteur N.-A. Dorochevski, chrétien, médecin;
+de l'hôpital communal:
 
-1.— On a enfoncé dans les narines de Sara Fonarji deux |
-clous qui ont traversé la tête. Elle est morte; |
+1.— On a enfoncé dans les narines de Sara Fonarji deux
+clous qui ont traversé la tête. Elle est morte;
 
 2. — Lys, qui a été trouvé au coin des rues Svietchnaïa
-<t Gastinaïa, avait les mains et les pieds désarticulés ;
+Gastinaïa, avait les mains et les pieds désarticulés;
 
 3. — On a coupé les lèvres à Khariton et on lui a arraché
-La langue avec des tenailles ;
+La langue avec des tenailles;
 
 4. — Leltzer, qu'on a pris sur le Novy Bazar avait l'oreille
 coupée et douze blessures à la tête. Ce malheureux est
@@ -1346,14 +1344,14 @@ coupée et douze blessures à la tête. Ce malheureux est
 une femme enceinte sur une chaise et on l'a frappée au ventre
 à coups de büche.
 
-Rue Kirovskaïa, on a jeté de la hauteur du deuxième étage |
+Rue Kirovskaïa, on a jeté de la hauteur du deuxième étage
 -des enfants sur le pavé. Des mineures ont été violées et sont
 mortes entre les mains de leurs bourreaux. On a aussi
 trouvé une fillette coupée en deux.
 
 Quatre mille familles environ sont restées sans abri et sans
 
-() Des souscriptions furent ouvertes dès le lendemain à Kichinef même, et depuis en Allemagne, en Angleterre et en Amérique.
+Des souscriptions furent ouvertes dès le lendemain à Kichinef même, et depuis en Allemagne, en Angleterre et en Amérique.
 Le grand rabbin de France, M. Zadoc Kahn, adressa un appel au
 public par l'organe du Temps (5 mai).
 
@@ -1371,7 +1369,7 @@ autopsie ne sera donc faite.
 
 À l'hôpital juif, il y a soixante-deux personnes grièvement blessées, surtout à la tête. Plusieurs ont subi des
 mutilations terribles et ont le nez cassé, les yeux pochés
-et les màchoires pendantes. L'état de la plupart est désespéré. :
+et les màchoires pendantes. L'état de la plupart est désespéré.:
 
 L'hôpital juif présente l'aspect d'un lieu de pansement
 après une bataille. Il est rempli de blessés et les lits occupent non seulement les salles, mais aussi les couloirs, les
@@ -1382,10 +1380,10 @@ Des masses de juifs visitent l'hôpital et le cimetière.
 L'identité de quelques cadavres n'est pas encore établie. IL
 y a deux cadavres chrétiens à l'hôpita! communal. (1)
 
-(1) Le journal le Drapeau apprécia les nouvelles des massacres :
-« Avec les juifs il en est toujours ainsi : ils commettent d'abord des
+(1) Le journal le Drapeau apprécia les nouvelles des massacres:
+« Avec les juifs il en est toujours ainsi: ils commettent d'abord des
 méfaits, puis ils poussent de grands cris et en appellent à la pitié
-du public. » Dans un autre numéro on lisait : « Quoi qu'il en soit, la
+du public. » Dans un autre numéro on lisait: « Quoi qu'il en soit, la
 tragédie effroyable s'est dénouée. Il reste à souhaiter qu'elle serve
 de leçon aux juifs, au moins pour l'avenir, et surtout qu'elle ne soit
 pas une cause de souffrances pour les malheureux chrétiens qui
@@ -1406,34 +1404,34 @@ du règlement de la Censure et de la Presse, code pénal,
 volume XIV (édition de 1900), a décidé de donner au journal
 Voskhod un premier avertissement en la personne de son
 
-: Voici des passages de l'article incriminé :
+: Voici des passages de l'article incriminé:
 
-Joso Tokar, quarante-quatre ans, père d'une famille |
+Joso Tokar, quarante-quatre ans, père d'une famille
 nombreuse (formant huit enfants, presque tous en bas
-âge). Le lundi ; avril, ayant appris qu'on pillait et massa-
+âge). Le lundi; avril, ayant appris qu'on pillait et massa-
 crait, s'est hâté de se réfugier dans la cave, avec femme 3]
 et enfants, en emportant des oreillers et des couvertures
 de lit, ainsi qu'un petit nombre d'autres objets. Vers une
-heure de l'après-midi, une bande composée d'une quaran- :
-taine d'hommes armés de lourds marteaux, de barres de ?
+heure de l'après-midi, une bande composée d'une quaran-:
+taine d'hommes armés de lourds marteaux, de barres de?
 fer et de matraques, enfonça la porte de la maison et
 détruisit tout ce qui s'y trouvait à l'intérieur. Le mobilier
 fut jeté dans la rue. Après quoi les assaillants pénétrèrent
-dans la cave, enlevèrent Tokar et, après l'avoir dépouillé |
+dans la cave, enlevèrent Tokar et, après l'avoir dépouillé
 de tout l'argent qu'il avait sur lui, soit 8 roubles et
 25 kopecks (environ 22 francs), le frappèrent jusqu'à ce
-moyen : les juifs doivent être conciliants envers le peuple au milieu |
-duquel ils vivent ; ils doivent s'accommoder des mœurs de ce ;
-peuple, ne pas le fuir ; ils doivent lui prouver qu'ils ne sont pas des #4
-parasites, mais des citoyens aussi dévoués à la patrie que ses fils .
+moyen: les juifs doivent être conciliants envers le peuple au milieu
+duquel ils vivent; ils doivent s'accommoder des mœurs de ce;
+peuple, ne pas le fuir; ils doivent lui prouver qu'ils ne sont pas des #4
+parasites, mais des citoyens aussi dévoués à la patrie que ses fils.
 
-ë véritables ; qu'ils respectent les lois et qu'ils sont prêts à sacrifierà
+véritables; qu'ils respectent les lois et qu'ils sont prêts à sacrifierà
 cette patrie « jusqu'à la dernière goutte de leur sang ». (Le Drapeau,
 
 qu'il eùt perdu connaissance. Tokar ne se rappelle plus
 rien de ce qui s'ensuivit. Il y avait dans la cour de sa
 maison un hangar où se trouvaient des meubles d'une
-| valeur d'environ 500 roubles (1.300 francs). Tokar est de
+valeur d'environ 500 roubles (1.300 francs). Tokar est de
 son métier menuisier. Tout a été brisé. Il était la veille un
 maître-artisan plutôt aisé. Le voilà indigent. Sa femme et
 ses enfants couchent depuis dix jours dans des hangars,
@@ -1442,13 +1440,13 @@ sont restés indemnes. Cette famille vit d'aumônes.
 
 Chléma Gueld, cinquante-six ans. Blessé à la tête. Ne se
 rappelle pas comment il est arrivé à l'hôpital. A un bras
-cassé. Tout ce qu'il possédait a été détruit, on lui a pris £
+cassé. Tout ce qu'il possédait a été détruit, on lui a pris
 20 roubles qui représentaient toutes ses économies. Gueld
 habitait la rue Gostinaïa, dans la maison même où furent
 
 tués Herch Bolgar, père de six enfants, et Herch Liss.
 Gueld a entendu les victimes supplier les assassins et
-appeler au secours, mais il n'a pu les aider. A côté de
+appeler au secours, mais il n'a les aider. A côté de
 Bolgar est couché Alter Liss, fils de Herch, grièvement
 blessé à la tête. IL ignore encore la mort de son père, déjà
 Joss Saganovski, vieillard de soixante-quatorze ans.
@@ -1457,7 +1455,7 @@ Bendery, a été saisi par une bande, dépouillé de ce qu'il
 avait sur lui (35 roubles, environ 93 francs) et laissé pour
 mort dans la rue.
 
-Le journal le Pravo (le Droit) a également été interdit ,
+Le journal le Pravo (le Droit) a également été interdit,
 pour avoir publié dans son numéro du 27 avril-10 mai
 un article de M. Nobokof, dans lequel celui-ci cherche
 à dégager les responsabilités.
@@ -1472,26 +1470,26 @@ foule ait traversé notre rue cinq fois. Quand la foule des-
 
 cendit jusqu'à nous, je me mis à crier et je me réfugiai
 dans la chambre de la cour, où s'est trouvée Sonia et les à
-enfants dans une panique effroyable. Nos domestiques $
+enfants dans une panique effroyable. Nos domestiques
 chrétiens persuadèrent la foule qu'ici habitaient des chré-
 tiens, d'autant plus qu'à toutes nos fenêtres étaient expo- À
 sées des images saintes. Beaucoup de juifs firent de même
-et grâce à cela se sauvèrent. Trois jours nous restàmes sans ?
-manger ci sans dormir. Mais enfin arriva le directeur du
+et grâce à cela se sauvèrent. Trois jours nous restàmes sans?
+manger sans dormir. Mais enfin arriva le directeur du
 département de la Police et nous partimes pour Odessa,
-abandonnant tout notre bien à Kichinef. On ne pouvait $
+abandonnant tout notre bien à Kichinef. On ne pouvait
 pas quitter la ville plus tôt, car on jetait les juifs hors des
 voitures et on les frappait dans la rue.
 Un chrétien donna l'abri à une famille composée de
-quatre juifs et les tua ensuite lui-même. Tout a été proba- :
+quatre juifs et les tua ensuite lui-même. Tout a été proba-:
 blement organisé d'avance. Avant qu'on n'ait reçu la
 dépêche qu'on pouvait tirer sur la foule et avant que la
-ville fùt déclarée en état de siège, tout a été saccagé et les ;
+ville fùt déclarée en état de siège, tout a été saccagé et les;
 brigands n'avaient plus rien à faire.
 Mon cher ami J..., tu vivras sürement dix ans de plus
-parce que tu n'as pas vu dans ta ville natale les scènes *
+parce que tu n'as pas dans ta ville natale les scènes
 sanglantes qui se déroulent ici depuis des jours. On nous
-assassine et on démolit tout. Quelque chose d'aussi |
+assassine et on démolit tout. Quelque chose d'aussi
 effroyable n'a jamais été vu. Toutes les maisons juives sont
 La police jusqu'aujourd'hui ne fait qu'encourager les
 émeutiers. Les soldats eux-mêmes prennent part au pillage à
@@ -1500,20 +1498,20 @@ long des rues; les hôpitaux regorgent des blessés et des à
 mourants. Les cheveux se dressent à la vue de ces horreurs.
 Depuis trois jours nous ne nous sommes pas couchés... et
 d'une minute à l'autre nous nous attendons à être massacrés par la foule. La police ne fait que désigner les maisons
-juives. J'entends les agents de la police dire : « Assez par Fe
-ici... allez plus loin ». Ne crois pas que j'exagère. Oh! non, |
+juives. J'entends les agents de la police dire: « Assez par
+ici... allez plus loin ». Ne crois pas que j'exagère. Oh! non,
 je ne puis te décrire la millième partie de tous les crimes
 commis sous nos yeux et qui continuent sans interruption.
 
 Un petit groupe de juifs de notre rue se tient dans notre
 
-cour pour résister aux assassins. — Signé : S...
+cour pour résister aux assassins. — Signé: S...
 
-D'une autre personne de Kichinef :
+D'une autre personne de Kichinef:
 
 Le massacre de Kichinef a commencé le lundi 20 avril
 à quatre heures du matin, à la sortie de l'église, aux
-environs et au centre de la ville en même temps. Les :
+environs et au centre de la ville en même temps. Les:
 assassinats et les tortures commencèrent presque immé-
 
 La foule fut menée par une bande d'assassins. Cette bande
@@ -1522,14 +1520,14 @@ enfonçait des clous dans les têtes juives; on coupait les
 nez et les oreilles aux juifs que l'on ne tuait pas. On remarquait dans la foule des étudiants, des fonctionnaires, des
 prêtres orthodoxes, des élèves du séminaire.
 
-Le gouverneur envoya dire aux juifs venus implorer son ;
+Le gouverneur envoya dire aux juifs venus implorer son;
 intervention qu'il ne « pouvait pas se faire du mauvais
 sang pour si peu de chose ». Ce n'est qu'à la fin de la
 troisième journée qu'il envoya une dépêche à Pétershbourg
 et ce n'est que douze heures plus tard qu'il reçut en
 réponse la permission de mettre fin « aux désordres ». —
 
-Cette lettre-ci, surtout, est fort instructive :
+Cette lettre-ci, surtout, est fort instructive:
 
 Le pogrome de Kichinef portait les iraces d'une affaire
 parfaitement organisée d'avance. On disait ouvertement
@@ -1539,18 +1537,18 @@ police non seulement en fut informée, mais y prenait une
 part active. Nous pouvons citer des preuves. Le souscommissaire de police Dobrosselski vint la veille de
 Pâques au bureau de tabac de M. Benderski, prit dans la
 caisse cinq roubles et s'en alla. Le propriétaire du bureau
-protesta. Alors ce fonctionnaire dit : « C'est égal, les jours
+protesta. Alors ce fonctionnaire dit: « C'est égal, les jours
 des Pâques vous serez massacrés. » Dans la maison de
-M. Roudy, la foule était en train de casser un coffre-fort ;
+M. Roudy, la foule était en train de casser un coffre-fort;
 
-elle y mit deux heures : pendant ce temps le commissaire …
+elle y mit deux heures: pendant ce temps le commissaire …
 de police assistait à ce travail, qu'il encourageait pour
 partager le butin avec les « travailleurs ».
 Dans un endroit, pendant le pillage, les juifs formèrent
 un groupe de résistance qui tint tête aux émeutiers. A
 l'appel de ces derniers, le commissaire de police fit venir
 les troupes, qui à coups de baïonnettes mirent en fuiteles « juifs résistants. Quelques dizaines de juifs, se sauvant sur
-les toits des maisons, vinrent s'abriter derrière les bâti- « ments de la police : immédiatement ils furent saisis et
+les toits des maisons, vinrent s'abriter derrière les bâti- « ments de la police: immédiatement ils furent saisis et
 livrés à la foule qui les assassina instantanément. On
 trouva après le pogrome des proclamations ainsi conçues:
 « La police a commencé le pillage, et maintenant, ayant
@@ -1559,27 +1557,27 @@ prison... » On lisait dans le peuple des « manifestes » du
 tsar appelant au massacre des juifs. et le peuple disait
 que ces manifestes étaient authentiques, car autrement
 « la police n'aurait pas permis de tuer et piller les juifs
-Un soldat a déclaré : « J'exécute des ordres : hier onm'a …
+Un soldat a déclaré: « J'exécute des ordres: hier onm'a …
 ordonné de piller, j'ai pillé; demain, si l'on m'ordonne de
 tirer, je tirerai. »
 La foule n'attaquait que des maisons juives; et bien que
 dans plusieurs maisons il y eùt des boutiques chrétiennes
 à côté des boutiques juives, il n'y avait pas une seule erreur.
 Il y avait même des drapeaux avec cette inscription
-Quels furent les organisateurs de ce pogrome ? La rumeur
+Quels furent les organisateurs de ce pogrome? La rumeur
 publique et les dépositions des témoins oculaires désignent
-des personnes occupant une hautesituation officielle. Ainsi, =:
-on appelle : M. Stcherban, grand propriétaire foncier;
+des personnes occupant une hautesituation officielle. Ainsi,
+on appelle: M. Stcherban, grand propriétaire foncier;
 étudiant et fils du membre du tribunal, etc.
 Quelques-unes de ces personnes étaient à la tête des
 bandes et leur indiquaient les maisons à piller. Il y avait
 des vélocipédistes qui conduisaient la foule. On distribuait
 à la foule de l'argent. Les organisateurs du massacre
-avaient leur quartier général à l'hôtel « Rossya »: ici fut
+avaient leur quartier général à l'hôtel « Rossya ici fut
 
 réparé le plan de la campagne, et ici se trouvait la caisse
 
-de l'entreprise ! :
+de l'entreprise!:
 L'enquête ordonnée par le gouverneur montre la vraie
 conduite du gouvernement central. L'enquête est confiée
 
@@ -1587,13 +1585,13 @@ au juge d'instruction, M. Davidovitch, l'un des principaux
 
 rédacteurs du journal Bessarabetz, et l'un de ceux qui
 
-prirent une part active et ouverte au pogrome ! Notons
+prirent une part active et ouverte au pogrome! Notons
 
 que le journal de M. Krouchevan a ouvert une souscription -
 
-en faveur. des chrétiens arrêtés ! Le vice-gouverneur est
+en faveur. des chrétiens arrêtés! Le vice-gouverneur est
 
-M. Oustrougof : ilest le censeur de Kichine et un anti-
+M. Oustrougof: ilest le censeur de Kichine et un anti-
 
 Ne terminons pas le chapitre des massacres sans
 noter le corps médical, dont le dévouement, comme on
@@ -1611,12 +1609,12 @@ Tolstoï; le professeur de l'Université de Moscou,
 N. Storojenko; le prince Sombutof; E. Ozerof; le
 
 Voici un extrait d'une lettre adressée par Tolstoiï à
-un israélite :
+un israélite:
 
 Je ne puis considérer les juifs autrement que comme des
 
 frères que j'aime, non pas parce que juifs, mais parce que
-nous et eux nous sommes fils d'un seul père : Dieu. Cet
+nous et eux nous sommes fils d'un seul père: Dieu. Cet
 amour ne me coûte pas d'effort, car j'ai rencontré et je
 connais parmi les juifs des hommes excellents. Mon opinion
 au sujet du crime de Kichinef découle également de
@@ -1636,7 +1634,7 @@ qui abêtit et fanatise le peuple et sa bande de tchinovniks
 brigands. Le crime de Kichinef n'est que la conséquence
 
 directe de la propagande de mensonge et de violence que
-%* le gouvernement russe poursuit avec tant d'énergie. L'attitude que le gouvernement a adoptée en face de cet événement n'est qu'une nouvelle preuve de ce grossier égoïsme
+le gouvernement russe poursuit avec tant d'énergie. L'attitude que le gouvernement a adoptée en face de cet événement n'est qu'une nouvelle preuve de ce grossier égoïsme
 qui ne recule devant aucune cruauté, dès qu'il s'agit
 d'arrêter des mouvements qui lui paraissent dangereux,
 ainsi que de son indifférence absolue (pareille à celle
@@ -1646,7 +1644,7 @@ ceux-ci ne touchent pas à ses intérêts.
 
 Nous reproduisons également l'opinion de Maxime
 Gorki, le merveilleux conteur populaire qui a conquis en
-France et dans l'Europe entière une réputation méritée :
+France et dans l'Europe entière une réputation méritée:
 
 Depuis quelques années, notre pays est de plus en plus
 fréquemment le théâtre d'événements qui le déshonorent.
@@ -1660,20 +1658,20 @@ miséricorde, ces hommes, pendant les jours qu'ils consacraient à fêter la ré
 torturent d'autres hommes appartenant au peuple qui leur
 a donné le Christ!
 
-Qui faut-il accuser de ce crime ignoble qui nous marque |
+Qui faut-il accuser de ce crime ignoble qui nous marque
 tous, nous autres Russes, du signe sanglant de l'infamie,
 d'un signe que les siècles ne pourront pas effacer des pages
-de la douloureuse histoire de notre pays barbare ?
+de la douloureuse histoire de notre pays barbare?
 
 Il serait injuste et il serait aussi trop simple d'en accuser
-la « populace » qui a massacré les juifs; la « populace »,
+la « populace » qui a massacré les juifs; la « populace
 c'est la main. Le vrai coupable, c'est l'opinion pervertie qui
-l'a poussée au vol et à l'assassinat. .
+l'a poussée au vol et à l'assassinat..
 
 On sait qu'à Kichinef la « populace » était commandée
 
 . par des hommes appartenant à la société cultivée. Mais
-qu'est-ce que la société cultivée russe ? C'est la même populace, une populace pire encore, car notre peuple est irrité
+qu'est-ce que la société cultivée russe? C'est la même populace, une populace pire encore, car notre peuple est irrité
 par la dure vie qu'il mène, il est aveugle et enchaîné par
 les ténèbres qu'on crée artificiellement autour de lui.
 
@@ -1703,14 +1701,14 @@ d'assassinats et de pillages ».
 
 Les hypocrites qui invoquent Dieu et pervertissent la
 société russe en prêéchant la haine des juifs, des Arméniens
-et des Finlandais, déversent, à l'heure qu'il est, sur les cadavres des victimes de leurs excitations, des flots de calomnies lâches et ignobles : ils continuent d'une façon éhontée
+et des Finlandais, déversent, à l'heure qu'il est, sur les cadavres des victimes de leurs excitations, des flots de calomnies lâches et ignobles: ils continuent d'une façon éhontée
 
-l'œuvre de dégradation des sentiments et de la pensée de la |
+l'œuvre de dégradation des sentiments et de la pensée de la
 société russe, privée de toute volonté.
 
 Honte à ces hommes méchants, et que le feu du remords
-dévore leur cœur pourri, animé d'ambitions de valet et =
-rempli d'humilité servile devant la force ! .
+dévore leur cœur pourri, animé d'ambitions de valet et
+rempli d'humilité servile devant la force!.
 
 A l'heure qu'il est, la société russe, qui a honteusement
 obéi aux excitations de ces parias, a le devoir de démontrer
@@ -1735,11 +1733,11 @@ ce mot, ilne doit y avoir ni hellène ni juif, mais seulement
 des hommes.
 
 A côté de ces hauts témoignages qui marquent d'une
-flétrissure indélébile le gouvernement russe, il convient de dire que des meetings de protestation ont eu
+flétrissure indélébile le gouvernement russe, il convient de dire que des meetings de protestation ont
 
 Une grande réunion eut lieu à Paris Le 15 mai, sous la
 présidence de M. Anatole Leroy-Beaulieu, membre de
-l'Institut. =
+l'Institut.
 
 Parmi les assistants on remarquait M. Frédéric
 Passy, membre de l'Institut; M. Paul Viollet, membre
@@ -1749,7 +1747,7 @@ défense du droit; MM. Aulard, Seignobos et Brunot,
 professeurs à la Faculté des Lettres; Lyon-Caen et
 Gide, professeurs à la Faculté de Droit; Lapicque, de
 la Faculté des Sciences; Bloch, maître de conférences
-à l'École normale supérieure; Georges Brandès ; etc.
+à l'École normale supérieure; Georges Brandès; etc.
 
 L'Assemblée vota à l'unanimité l'ordre du jour suivant:
 
@@ -1758,7 +1756,7 @@ réunis le 15 mai 1903, à l'hôtel des Sociétés Savantes, sous
 la présidence de M. Anatole Leroy-Beaulieu, après avoir
 entendu l'exposé des atrocités et des crimes abominables
 commis à Kichinef, adressent aux victimes l'expression
-de leur douloureuse sympathie ; flétrissent tous les instigateurs ct tous les complices de ces actes de barbarie, et
+de leur douloureuse sympathie; flétrissent tous les instigateurs tous les complices de ces actes de barbarie, et
 protestent avec indignation contre des massacres qui, en
 se renouvelant, déshonoreraient la Russie aux yeux du
 monde civilisé.
@@ -1768,21 +1766,21 @@ organisa un meeting, sous la présidence de M. Rousseau, professeur à l'Univers
 dans l'assistance madame Hector Denis; MM. Jules
 professeurs à l'Université; Furnemont, Demblon,
 
-Signalons aussi l'appel lancé par le Bureau Socialiste international, que nous reproduisons intégralement :
+Signalons aussi l'appel lancé par le Bureau Socialiste international, que nous reproduisons intégralement:
 
 Aux travailleurs de tous les pays!
 
-La presse vous a apporté la nouvelle des massacres de .
+La presse vous a apporté la nouvelle des massacres de.
 Kichinef, Pendant deux jours on a tué, on a commis des
 atrocités abominables, sans que ni l'autorité russe, ni ses
 agents locaux, si prompts à intervenir lorsqu'il s'agit d'une
 manifestation d'ouvriers ou simplement d'étudiants, ou
 
-encore lorsqu'il s'agit de confisquer les libertés séculaires ;
-au peuple de Finlande, aient fait quoi que ce soit pour $
+encore lorsqu'il s'agit de confisquer les libertés séculaires;
+au peuple de Finlande, aient fait quoi que ce soit pour
 protéger ces malheureux, dont le seul crime est d'être
-Quiconque connaît les procédés de Nicolas II ne saurait
-voir dans ces douloureux événements qu'un essai d'intimidation, en même temps qu'une vengeance exercée contre .
+Quiconque connaît les procédés de Nicolas ne saurait
+voir dans ces douloureux événements qu'un essai d'intimidation, en même temps qu'une vengeance exercée contre.
 les juifs, à raison de l'action révolutionnaire du prolétariat
 L'absolutisme russe cherche dans les excitations à la
 haine des races et à la haine des religions un dérivatif au
@@ -1793,29 +1791,29 @@ Douloureusement émus à la pensée des victimes tombées
 sous les coups des agents du tsarisme, profondément révoltés en songeant à ces actes exécrables, nous adressons au
 monde civilisé un suprême appel, afin d'empêcher le retour
 de ces abominations!
-Nous lui crions aussi nos vives appréhensions. Des hécatombes nouvelles se préparent ! Dans la Russie méridionale, en Pologne, en Lithuanie, régions où la population
+Nous lui crions aussi nos vives appréhensions. Des hécatombes nouvelles se préparent! Dans la Russie méridionale, en Pologne, en Lithuanie, régions où la population
 israélite est très dense, on redoute la reproduction des évé-
 nements de Kichinef.
 Si les gouvernements ne veulent ni parler, ni agir,
-parlez, agissez ! S'il ne reste plus aux gouvernements ni
+parlez, agissez! S'il ne reste plus aux gouvernements ni
 pitié, ni sentiments humains, faites entendre votre protestation, et exprimez votre indignation!
 Votre silence serait un crime, car ce n'est pas contre une
 race ou une religion que le tsarisme dirige-ses coups, c'est
-avant tout contre une classe. Celui-ci poursuit l'extermination du prolétariat conscient. :
-Parlez, agissez par vous-mêmes ! que votre voix s'élève
+avant tout contre une classe. Celui-ci poursuit l'extermination du prolétariat conscient.:
+Parlez, agissez par vous-mêmes! que votre voix s'élève
 
-pour flétrir ces crimes de lèse-humanité! Que votre souvenir aille aux martyrs du peuple !
-Le Bureau socialiste international :
-France : Édouard Vaillant, Francis de Pressensé ;
+pour flétrir ces crimes de lèse-humanité! Que votre souvenir aille aux martyrs du peuple!
+Le Bureau socialiste international:
+France: Édouard Vaillant, Francis de Pressensé;
 
 Enfin nous ne pouvons passer sous silence le discours
 récent et très élevé du Président de la République des
-États-Unis : M. Roosevelt, recevant les délégations des
+États-Unis: M. Roosevelt, recevant les délégations des
 citoyens juifs de ce pays, venus pour lui apporter leur
 pétition concernant les événements de Kichinef, avec
 prière de la remettre au gouvernement russe, a tenu
 
-_ le discours suivant :
+le discours suivant:
 
 Je n'ai aucunement besoin d'exprimer le sentiment d'indignation générale avec lequel le peuple américain a appris
 les effroyables excès dont les juifs de Kichinef ont été
@@ -1828,7 +1826,7 @@ monde civilisé, aient trouvé leur expression la plus puis-
 
 sante, la plus intense dans les États-Unis, car de toutes les
 Puissances, les États-Unis ont le plus fait depuis le
-commencement de leur existence nationale, pour réparer |
+commencement de leur existence nationale, pour réparer
 les injustices faites à la race juive et pour rendre justice
 aux citoyens américains d'origine et de religion juives.
 
@@ -1858,7 +1856,7 @@ d'entre eux fussent protestants, deux catholiques et un
 juif. Quoique fortuite, cette circonstance est néanmoins
 suggestive, elle montre que tout ce que l'on réclame ici de
 l'homme, c'est qu'il soit un bon Américain, sans s'inquiéter
-de sa religion ni du lieu qui l'a vu naître.
+de sa religion ni du lieu qui l'a naître.
 
 Laissez-moi vous raconter un petit événement qui a trait
 à la question de persécution de races et de religions. Vous
@@ -1866,14 +1864,14 @@ vous souvenez peut-être, — quelques-uns de mes amis
 new-yorkais se le rappelleront certainement, — que dans le
 temps où je remplissais les fonctions de chef de la police à
 New-York, un prêtre européen arriva dans cette ville dans
-le but d'y créer une agitation antijuive ; il se préparait à
+le but d'y créer une agitation antijuive; il se préparait à
 organiser des réunions dans lesquelles les israélites devaient
 
 être pris à partie. Le fait fut porté à ma connaissance. Je
-n'avais évidemment pas le droit d'interdire ces réunions ;
+n'avais évidemment pas le droit d'interdire ces réunions;
 aussi, après avoir mürement réfléchi, fis-je choix d'un
 brigadier de police juif et de quarante agents juifs pour
-protéger l''orateur ; je voulais que ceux contre qui il
+protéger l''orateur; je voulais que ceux contre qui il
 voulait ameuter les passions fussent ceux mêmes chargés
 de sa protection.
 
@@ -1882,7 +1880,7 @@ temps une manifestation indiquant l'attitude de nous autres
 Américains devant de pareils agissements,
 
 L'un des agents en question avait été enrôlé par moi dans
-les circonstances suivantes :
+les circonstances suivantes:
 
 Lors d'une visite que j'avais faite à l'Association chré-
 tienne de jeunes gens, on me parla d'un jeune juif qui,
@@ -1915,12 +1913,12 @@ douleur, la même indignation devant les violences dont les
 
 juifs seraient victimes dans n'importe quelle partie du
 Je suis certain que les manifestations de sympathie qui
-se sont fait jour dans tout ce pays, sans distinction de ;
+se sont fait jour dans tout ce pays, sans distinction de;
 cultes, ont déjà fait beaucoup de bien. C'est déjà une grande
-satisfaction de constater que le gouvernement russe |
+satisfaction de constater que le gouvernement russe
 partage avec le peuple américain, les sentiments d'horreur
 et d''indignation qu'ont inspirés à ce dernier les événements
-de Kichinef et que des mesures sont prises pour empé- #*
+de Kichinef et que des mesures sont prises pour empé-
 cher le retour d'événements de ce genre et en punir les
 instigateurs. Le gouvernement russe condamne ces événements tout comme notre gouvernement condamne les
 lynchages qui se sont passés chez nous et qui ne sont
@@ -1932,7 +1930,7 @@ que trois à quatre cents personnes ayant pris part aux
 massacres avaient été arrêtées et seront punies avec la
 J'examinerai avec beaucoup de soin votre motion et je
 verrai ensuite si, dans les circonstances présentes, il serait
-judicieux et utile aux malheureux survivants avec qui :
+judicieux et utile aux malheureux survivants avec qui:
 nous compatissons si profondément de lui donner une
 Aucun événement de ces temps derniers n'a attiré et
 n'attirera davantage mon attention. Toute mesure promettant un résultat quelconque sera prise, pour prouver la
@@ -1946,35 +1944,35 @@ dans l'esprit politique dont un chef d'État ne peut guère
 
 Les explications du gouvernement russe
 Quelle a été l'attitude de l'administration supérieure
-devant ces meurtres et ces désastres ? Pour le savoir
+devant ces meurtres et ces désastres? Pour le savoir
 il faut lire la circulaire officielle adressée par M. de
-Plehwe aux gouverneurs, maires et chefs de police :
+Plehwe aux gouverneurs, maires et chefs de police:
 Les 6 et 7 avril, à Kichinef, une foule d'individus appartenant pour la plupart aux classes inférieures de la société,
 a attaqué la population israélite de cette ville. Quarantecinq personnes ont été tuées et ont succombé à leurs
 blessures, sept ont été grièvement blessées et trois cent
 cinquante légèrement. Ces troubles ont été accompagnés
 de pillage. Sept cents maisons et six cents boutiques
-appartenant à des juifs ont été saccagées. L'enquête ordonnée à ce sujet a établi que ces émeutes avaient eu pour
+appartenant à des juifs ont été saccagées. L'enquête ordonnée à ce sujet a établi que ces émeutes avaient pour
 cause la tension des rapports entre les chrétiens et les juifs
 de Bessarabie. La moindre calomnie répandue contre les
 juifs devait suflire à provoquer une explosion des passions
 de la populace. On avait faussement accusé des juifs
 d'avoir tué, pour des besoins rituels, des chrétiens à Doubossary (village voisin du gouvernement de Kherson), à
-* Kief et à Kichinef même. A la suite de ces bruits mensongers, les ouvriers et la populace avaient commencé à
+Kief et à Kichinef même. A la suite de ces bruits mensongers, les ouvriers et la populace avaient commencé à
 parler avec insistance de la nécessité d'attaquer les juifs.
 Des feuilles manuscrites avaient même été mises en circulation, qui reproduisaient les accusations portées contre
 les juifs et incitaient la population à les égorger.
 Le premier jour de Pâques, le 6 avril, une foule, rassem-
- blée sur la place de Tcheuflin, attendait l'ouverture des
+blée sur la place de Tcheuflin, attendait l'ouverture des
 baraques, et d'autres établissements d'amusement. On ne
 remarquait rien d'anormal dans son attitude. Vers quatre
 
 heures de l'après-midi une femme chrétienne, avec un
-enfant sur les bras, s'assit sur un carrousel. :
+enfant sur les bras, s'assit sur un carrousel.:
 Le propriétaire du carrousel, qui était juif, bouscula la
-femme pour la faire descendre et lui donna un coup tel |
+femme pour la faire descendre et lui donna un coup tel
 qu'elle laissa tomber l'enfant. Cet incident fut le point de
-départ des troubles. La foule en fureur se mit à jeter des ;
+départ des troubles. La foule en fureur se mit à jeter des;
 pierres contre les fenêtres des maisons juives du voisi-
 nage; les troubles gagnèrent ensuite toutes les rues voisines; des bandes se répandirent dans quelques quartiers,
 détruisant les boutiques et les maisons juives. Aux émeutiers qui détruisaient les maisons succédèrent des pillards.
@@ -1982,30 +1980,30 @@ Les troubles prirent des proportions telles qu'il ne fut plus
 possible de les réprimer, et, dans la soirée du 6 avril, la
 violence de la foule ne se limita plus aux biens des juifs,
 elle s'attaqua à leurs personnes. Neuf hommes furent tués;
-vers dix heures du soir les troubles cessèrent. =
+vers dix heures du soir les troubles cessèrent.
 Le lendemain matin, sur la place de la ville de Kichi-
-£k nef, une foule nombreuse de juifs armés de bâtons a
+nef, une foule nombreuse de juifs armés de bâtons a
 attaqué un petit groupe de chrétiens qui se trouvait là. Ce
-ne fut qu'une escarmouche ; mais, de l'autre côté de la
-place, des juifs se sont de nouveau rassemblés et ont '
+ne fut qu'une escarmouche; mais, de l'autre côté de la
+place, des juifs se sont de nouveau rassemblés et ont
 attaqué des chrétiens. Les juifs étaient cette fois encore en
-majorité. Les troubles ont recommencé sitôt après : les
+majorité. Les troubles ont recommencé sitôt après: les
 maisons juives ont été pillées et des juifs massacrés. La
 troupe qui, le soir, faisait des patrouilles, était insuffisante à
 et on a demandé des renforts. Le gouverneur a transmis
 ses pouvoirs à l'autorité militaire chargée de maintenir
 l'ordre. La première force armée qui a été appelée n'a pas
 réussi à réprimer les émeutes, parce que la police, ayant
-manqué de direction, n'a pas su agir, et les rues étaient
+manqué de direction, n'a pas agir, et les rues étaient
 encombrées non seulement des fauteurs de troubles, mais
 aussi de masses de curieux; mais quand la troupe a été
 systématiquement répartie dans les quartiers envahis par
-les émeutiers, les troubles ont pris fin le soir du 7 avril et |
+les émeutiers, les troubles ont pris fin le soir du 7 avril et
 le lendemain ne se sont plus renouvelés.
 Les événements de Kichinef ont jeté l'inquiétude parmi
 la population israélite de nombreuses localités de l'Em-'
 pire et dans les milieux chrétiens ont circulé aussi des
-bruits de nouveaux désordres antisémitiques. Dans cer70
+bruits de nouveaux désordres antisémitiques. Dans
 
 taines villes les juifs forment des associations pour se
 
@@ -2045,7 +2043,7 @@ ne constituent pas une ploutocratie prépotente dans
 cette ville.
 
 Voici ce que dit le Peterbourgskia Viedomosti sur
-la situation économique des juifs :
+la situation économique des juifs:
 
 Dans les riches et fertiles régions de la Bessarabie, il y
 a assez de place pour l'activité paisible de toutes les caté-
@@ -2054,12 +2052,12 @@ juifs, des grecs, des arméniens et un petit nombre d'ouvriers venus des gouvern
 les roumains qui forment la majorité de la population et
 c'est à cette nationalité qu'appartiennent les nobles et les
 grands propriétaires fonciers de l'endroit. Bien qu'on ait
-eu à traverser de durs moments, à subir de mauvaises
+à traverser de durs moments, à subir de mauvaises
 rapports entre les différentes couches de la population.
 Elles se sont toujours très bien accordées.
 
 -2. — Il est bon de noter que la circulaire ne parle pas
-des excitations du journal Bessarabetz. Or les excitations de la presse antisémite ne sont possibles en
+des excitations du journal Bessarabetz. les excitations de la presse antisémite ne sont possibles en
 Russie que par le silence ou la complicité de la censure,
 cette censure qui s'exerce de la façon la plus rigoureuse, qui étend, son pouvoir non seulement sur les
 travaux déjà prêts à être publiés, mais qui indique aux
@@ -2067,20 +2065,20 @@ directeurs de journaux les articles à faire et les sujets
 sur lesquels il convient de garder le silence.
 
 3. — Le ministre prétend que ce sont les juifs qui
-attaquaient les chrétiens. Or le 8, au matin, les juifs qui
+attaquaient les chrétiens. le 8, au matin, les juifs qui
 s'étaient réunis pour se défendre contre de nouvelles
 agressions annoncées, avaient été dispersés par la
-police et les soldats et obligés par ia force à rentrer :
+police et les soldats et obligés par force à rentrer:
 chez eux où ils furent assaillis plus tard sans aucun
-moyen de défense. |
+moyen de défense.
 
-Voici ce que dit à ce sujet Voskhod :
+Voici ce que dit à ce sujet Voskhod:
 
 Les juifs n'ont donné aucun prétexte à l'effervescence de
 la populace. Quand ils entouraient un groupe d'émeutiers,
-ils se criaient ies uns aux autres : (Surtout, ne frappez pas,
-ne tirez pas! », et ils ne touchèrent pas un seul homme ; et,
-quand ils furent attaqués par la police et les patrouilles, ,
+ils se criaient ies uns aux autres: (Surtout, ne frappez pas,
+ne tirez pas! et ils ne touchèrent pas un seul homme; et,
+quand ils furent attaqués par la police et les patrouilles,,
 un seul coup de feu fut tiré.
 
 4. — L'inaction de la police et des autorités démontre
@@ -2090,14 +2088,14 @@ fort de l'émeute, le gouverneur répond qu'il n'a pas
 
 Le Times du 18 mai expliquait l'inaction des autorités par la circulaire confidentielle suivante que le
 ministre de l'intérieur, M. de Plehwe, aurait adressée
-au gouverneur de Kichinef :
+au gouverneur de Kichinef:
 
 Il est venu à ma connaissance que d'ici peu de temps
 auront lieu dans le gouvernement qui vous est confié des
 désordres dirigés contre les juifs, considérés comme exploiteurs de la population de ce pays.
 
 Etant donné l'effervescence qui s'y manifeste partout, et
-qui ne cherche qu'un prétexte pour éclater, et vu qu'il
+qui ne cherche qu'un prétexte pour éclater, et qu'il
 serait peu désirable d'éveiller des sentiments hostiles au
 gouvernement dans une population qui jusqu'ici n'a pas
 été atteinte par la propagande criminelle, Votre Excellence
@@ -2107,7 +2105,7 @@ Huit jours après qu'il eut connaissance de la publicité donnée à cette circu
 M. de Plehwe se décida à la faire démentir dans le
 Messager du Gouvernement.
 
-On va voir ce que vaut ce démenti.
+On voir ce que vaut ce démenti.
 
 En mars 1903, les juifs de Doubossary, craignant des
 : troubles à la suite de l'absurde légende du meurtre
@@ -2127,16 +2125,16 @@ pas fonctionné pour les israélites. Ceux-ci, constatant
 linaction de la police, coururent au télégraphe, mais
 leurs dépêches ne furent reçues nulle part. C'est alors
 que M. J.-S. Moutchnik partit à la station Mireni et
-de là envoya à Saint-Pétersbourg des informations sur
+de envoya à Saint-Pétersbourg des informations sur
 les massacres.
 
 Après les troubles on a trouvé dans un jardin un
 
-s billet incorrectement écrit et ainsi libellé : « La police a
+billet incorrectement écrit et ainsi libellé: « La police a
 commencé à piller. Maintenant, quand elle a reçu un
 pot-de-vin de la part des juifs, elle nous met en prison. »
 
-() Cités par M. B.-A. Henry, même étude.
+Cités par M. B.-A. Henry, même étude.
 
 Le paysan Solovief, qui avait participé aux massacres, est ailé au commissariat déclarer qu'il avait tué
 un juif. Le lendemain du jour de son arrestation, on l'a
@@ -2156,7 +2154,7 @@ Enfin voici des extraits d'une lettre particulière envoyée de Kichinef et dat�
 La conduite des autorités dans laffaire de Kichinef a
 été des plus coupables. Le 6 et le 7, lorsque les troupes
 avaient été mises à la disposition de la police, celle-ci, loin
-de retenir la foule déchaïinée, l'invitait au contraire à poursuivre son œuvre. « Assez par ici, mes garçons ; avançons
+de retenir la foule déchaïinée, l'invitait au contraire à poursuivre son œuvre. « Assez par ici, mes garçons; avançons
 
 (1) M. B.-A. Henry émet les hypothèses suivantes sur l'incurie
 de l'administration supérieure.
@@ -2168,7 +2166,7 @@ sanglants de Kichinef aient été tolérés comme un dérivatif et un
 
 Le prolétariat juif est, en divers centres ouvriers, mais non pas
 à Kichinef, le mieux organisé et le plus redoutable qui soit dans
-l'empire : le gouvernement s'imagine peut-être le contenir ou le
+l'empire: le gouvernement s'imagine peut-être le contenir ou le
 faire hésiter par une démonstration de cette nature.
 
 Il est, d'autre part, incontestable que le monde moscovite est,
@@ -2181,7 +2179,7 @@ masse redoutée des prolétaires et à opposer deux forces révolutionnaires,
 
 plus loin, avançons. » A quelques endroits les juifs, voyant
 que la police encourageait manifestement les pillards,
-s'armaient de matraques et formaient des groupes com- |
+s'armaient de matraques et formaient des groupes com-
 pacts pour arrêter ce mouvement agressif. Mais les
 patrouilles et les détachements de troupes avaient reçu
 l'ordre de disperser les juifs « afin d'éviter une effusion de
@@ -2191,23 +2189,23 @@ mieux que de mettre fin au carnage par la force armée,
 mais ils n'ont pas reçu « l'ordre ». Le 7 avril, à midi, le
 gouverneur proposa au général Beckman de se charger du
 rétablissement de l'ordre. Le général demanda alors un
-ordre écrit. Mais le gouverneur différa et en référa au ministère de l'intérieur ; or, en vertu de la loi, il était tenu de
+ordre écrit. Mais le gouverneur différa et en référa au ministère de l'intérieur; or, en vertu de la loi, il était tenu de
 prendre lui-même les mesures urgentes. La correspondance
 dura jusqu'à huit heures du soir, et ce fut précisément
 durant ces huit heures que le pillage prit un caractère des
 plus violents et que le sang coula à flots.
 
 En attendant, le chef de la police faisait ses visites de
-Pâques ; non sans orgueil il faisait remarquer son activité
+Pâques; non sans orgueil il faisait remarquer son activité
 peu ordinaire qui lui permettait en même temps que de
 surveiller le pogrome, de faire des visites. Hier, il a été
 établi qu'un des commissaires de police du quartier avait
 loué à l'avance un local convenable pour y mettre le butin.
 Ce commissaire a été arrêté. Le 8 avril le pillage prit fin.
-Seulement, par ci par ià se produisirent encore des manifestations isolées et des tentatives de renouvellement de
+Seulement, par par se produisirent encore des manifestations isolées et des tentatives de renouvellement de
 désordres, Mais ces tentatives furent aussitôt réprimées.
 Malheureusement la plupart des pillards ont été laissés en
-liberté ; au delà de la barrière de la ville, ils s'assemblent
+liberté; au delà de la barrière de la ville, ils s'assemblent
 à la dérobée et forment des campements de bohémiens.
 Lorsqu'on demanda au général Beckman de les disperser,
 celui-ci répondit qu'en sa qualité de commandant de la
@@ -2223,7 +2221,7 @@ avant le commencement des désordres un local destiné
 placarder aujourd'hui dans la ville un avis invitant les
 habitants à porter au bureau de police les objets qui ont
 été « ramassés » dans les rues ou qui ont été pillés et
-cachés ; les personnes qui rendront elles-mêmes ces objets,
+cachés; les personnes qui rendront elles-mêmes ces objets,
 ajoute l'avis, ne seront pas poursuivies.
 
 L'une des députations est allée voir le gouverneur pour
@@ -2231,7 +2229,7 @@ le prier de suspendre, ne füt-ce que provisoirement, le
 journal Bessarabetz. Elle l'informa que, après que le calme
 était un peu rétabli, un des organisateurs du pogrome,
 M. Stcherban, criait dans une de nos principales rues,
-devant une foule heureusement peu nombreuse, qu'il fallait :
+devant une foule heureusement peu nombreuse, qu'il fallait:
 massacrer les juifs, que tout ce qu'on venait de leur faire
 était encore insuffisant. Ces paroles peuvent être confirmées par des témoins. Le gouverneur répondit, quant à la
 suspension du journal, qu'il fallait recueillir les articles les
@@ -2259,15 +2257,15 @@ Lorsque le procureur de la cour de justice est venu ici,
 quelques chrétiens de la classe cultivée ont été le voir et
 
 lui ont rapporté des faits qui démontrent on ne peut plus
-clairement l'inaction coupable de toute l'administration, $
+clairement l'inaction coupable de toute l'administration,
 laquelle, au lieu d'agir, n'était préoccupée que de ses à
 affaires personnelles. Quelques officiers qui commandaient à
 (le 6 et le 7) des pelotons ont rapporté à leurs comman-
 
-+ dants que des crimes et des violences se commettaient
+dants que des crimes et des violences se commettaient
 sous leurs yeux sans qu'ils pussent rien faire, car chaque
-fois qu'ils adressaient aux représentants de la police la |
-question : que faire? on leur répondait: « rien ». Oustrougof, le maître de police, fait retomber toute la responsabilité sur le gouverneur: il oublie pourtant que pendant
+fois qu'ils adressaient aux représentants de la police la
+question: que faire? on leur répondait: « rien ». Oustrougof, le maître de police, fait retomber toute la responsabilité sur le gouverneur: il oublie pourtant que pendant
 les longues années qu'il a passées en Bessarabie en qua-
 
 4 lité de chef de la régence du gouvernement il n'a jamais
@@ -2277,21 +2275,21 @@ que c'est grâce à lui que la population s'est aperçue que -
 les juifs étaient dans le pays en dehors de la protection des
 lois. Il créa le volcan dont l'éruption fut provoquée par
 Krouchevan. Quant au gouverneur, sa faute a été de ne
-pas comprendre la situation et de perdre la tête lorqu'il Va
-comprise. D'ailleurs il est vrai aussi qu'il ne s'intéressait |
+pas comprendre la situation et de perdre la tête lorqu'il
+comprise. D'ailleurs il est vrai aussi qu'il ne s'intéressait
 guère à ce qui se passait autour de lui.
 
 Ajoutons que si l'on cherche aujourd'hui les responsabilités, on a confié l'instruction au juge Davidovitch,
 un des principaux collaborateurs de Bessarabetz, où il
-a signé pendant quatre ans, sous le pseudonyme de Vitch, |
-des articles violemment antisémites !
+a signé pendant quatre ans, sous le pseudonyme de Vitch,
+des articles violemment antisémites!
 
 Prétextes des troubles
 
 Souvent les troubles et les manifestations antijuives
 ont pour prétexte des accusations de meurtre rituel.
 
-Qu'on nous permette de dire quelques mots sur cette ‘
+Qu'on nous permette de dire quelques mots sur cette
 question qui double son intérêt social d'un intérêt historique.
 
 On a remarqué que Bernard de Clairvaux (1091-1153),
@@ -2304,26 +2302,26 @@ la prédisposition au crime se transmît aux enfants « par
 voie de stigmate du sang ».
 
 L'accusation d'user du sang chrétien se renouvelle
-fréquemment au quatorzième siècle. Quelle en est l'origine ? La réponse n'est pas facile. A-t-elle toujours été
-sans fondement ? Nous n'osons l'aflirmer, mais ce qui
+fréquemment au quatorzième siècle. Quelle en est l'origine? La réponse n'est pas facile. A-t-elle toujours été
+sans fondement? Nous n'osons l'aflirmer, mais ce qui
 est certain, c'est que rien absolument, dans une immense quantité de textes et de témoignages, n'apporte
 
 (1) Le sang et la fausse accusation de meurtre rituel, par H.-L.
 
 à la thèse du meurtre rituel une ombre de preuve. Quoi
 qu'il en soit, les juifs ne furent pas seuls à supporter le
-poids de cette accusation incertaine. Les chrétiens en |
+poids de cette accusation incertaine. Les chrétiens en
 pâtirent, principalement ceux des deuxième et troisième
 siècles. Saint Justin, martyr, est obligé de défendre sur
 ce point ses coreligionnaires dans le chapitre XII de
-son Apologie. Il dit entre autres paroles : « Si nous
+son Apologie. Il dit entre autres paroles: « Si nous
 nous y adonnions, nous n'aurions aucunement à le
 nier. Nous pourrions commodément appeler nos réunions Mystères de Chronos. Si nous nous gorgions de
 sang comme on le dit, nous pourrions l'expliquer par
 une adoration dans le genre de celle de Jupiter Latiaris, — et vous n'y trouveriez rien à redire. »
 
-Athénagore (177 après Jésus-Christ) écrit à Marc Aurèle dans sa pétition pour les chrétiens : « On nous
-adresse trois sortes de reproches : impiété, repas thyestéens et mélanges œdipodéens, et cependant les animaux
+Athénagore (177 après Jésus-Christ) écrit à Marc Aurèle dans sa pétition pour les chrétiens: « On nous
+adresse trois sortes de reproches: impiété, repas thyestéens et mélanges œdipodéens, et cependant les animaux
 ne touchent pas les animaux de leur espèce. »
 
 Dans les lettres d'Eusèbe écrites par des chrétiens de
@@ -2332,7 +2330,7 @@ Lyon et de Vienne, il est question des mêmes accusations. (1)
 Dans l'Octavius de Minucius Félix, ce thème est dé-
 
 Enfin, citons ce passage significatif de Tertullien
-(Apologie, chapitre VIL) : « On nous traite de scélérats
+(Apologie, chapitre VIL): « On nous traite de scélérats
 en nous imputant la mystérieuse coutume d'assassiner
 des enfants et de les manger... On nous appelle ainsi,
 mais vous ne prenez pas le moindre souci de le prouver... »
@@ -2343,7 +2341,7 @@ Comme le remarque Strack, ces accusations étaient
 d'un usage fréquent entre partis religieux ennemis,
 même entre ennemis particuliers. L'historien anglais
 Eliot Warburton raconte dans l'histoire du prince
-Rupert et des cavaliers (Londres, 1849, I, page 17; II,
+Rupert et des cavaliers (Londres, 1849, page 17; II,
 page 89) que les Puritains avaient répandu la nouvelle
 que les cavaliers de Charles premier égorgeaient et
 mangeaient les petits enfants. C'est ainsi que les mères
@@ -2360,7 +2358,7 @@ Et tout homme, qu'il soit de la maison d'Israël ou un
 face contre lui et je l''exterminerai du milieu de son peuple.
 Car le sang c'est l'âme, et je vous l'ai donné pour l'autel
 afin que vos âmes fussent ainsi pardonnées. Car le sang
-fait l'expiation pour l'âme. Voilà pourquoi j'ai dit aux enfants d'Israël : que nulle âme entre vous ne mange du sang,
+fait l'expiation pour l'âme. Voilà pourquoi j'ai dit aux enfants d'Israël: que nulle âme entre vous ne mange du sang,
 et nul étranger non plus qui demeure parmi vous. Et tout
 homme, qu'il soit de la maison d'Israël ou un étranger
 parmi vous, qui prend à la chasse une bête ou un oiseau
@@ -2368,11 +2366,11 @@ qu'on peut manger doit en verser le sang et le recouvrir
 de terre. Car l'âme de toute chair, c'est son sang qui est
 dans son âme, et dans le sang tant qu'il vit; et j'ai dit
 aux enfants d'Israël: vous ne mangerez pas le sang d'une
-chair ; car l'âme de toute chair, c'est son sang ; quiconque
+chair; car l'âme de toute chair, c'est son sang; quiconque
 en mange sera exterminé. (1)
 
 (1) Lévitique, chapitre VII, 26 et suivants. Voir encore Lévitique,
-chapitre IL, 17; chapitre XIX, 26; Deutéronome, XII, 2, 16, 23, chapitre XV, 36. Puis, livre I de Samuel, chapitre XIV, 32-34. Actes des
+chapitre IL, 17; chapitre XIX, 26; Deutéronome, XII, 2, 16, 23, chapitre XV, 36. Puis, livre de Samuel, chapitre XIV, 32-34. Actes des
 
 Sans doute, comme le fait remarquer Strack, la
 défense expresse de consommer du sang humain m'est
@@ -2382,7 +2380,7 @@ pas formulée dans le Pentateuque. Mais il faudrait
 parce qu'il n'y avait pas de loi spéciale contre le
 
 Mais Moïse Maimonides (1135-1204) écrit dans son
-grand Code rituel au chapitre VI (1): « $ 2. — Le sang
+grand Code rituel au chapitre (1): « 2. — Le sang
 humain est interdit par décision rabbinique, s'il est sé-
 paré du corps; la violation de cette règle est punie de
 fustigation. On peut avaler le sang des gencives (parce
@@ -2394,45 +2392,45 @@ avant de manger ce pain, parce que le sang était séparé
 Il ressort de tout ceci que rien n'autorise à croire à
 l'existence du meurtre rituel. Il est possible que quelques juifs, à l'exemple d'autres hommes appartenant à
 
-des religions diverses, aient eu des croyances superstitieuses à l'endroit du sang et qu'ils aient tué pour
+des religions diverses, aient des croyances superstitieuses à l'endroit du sang et qu'ils aient tué pour
 cette raison. Mais cela ne prouve rien en faveur de
 l'existence du meurtre rituel. Aucun passage des livres
 juifs, aucun texte de la loi talmudique, ne le laisse
 
 Rappelons enfin le mémoire publié en 1759 par le cardinal Ganganelli pour la défense des juifs polonais ac-
 
-|  cusés d'un meurtre rituel et qui setermine ainsi : « Nous
-| chrétiens, nous ne devons pas oublier que dans les pre-
-‘à miers siècles du catholicisme, ses adeptes furent accusés
-& par les païens de meurtres d'enfants. » (1) Ajoutons
+cusés d'un meurtre rituel et qui setermine ainsi: « Nous
+chrétiens, nous ne devons pas oublier que dans les pre-
+miers siècles du catholicisme, ses adeptes furent accusés
+par les païens de meurtres d'enfants. » (1) Ajoutons
 
-que les papes Innocent IV et Clément XII ont protesté
+que les papes Innocent et Clément XII ont protesté
 
-| contre ces accusations. (2)
+contre ces accusations. (2)
 
 - (1) Il est bon de rappeler que de nos jours, en Chine, on accuse
 les missionnaires catholiques de tuer des enfants chinois pour employer les yeux et d'autres parties du corps des victimes à la pré-
 paration de certains remèdes mystérieux.
 
-(2) Répondant à M. Rickert à la tribune du Landtag dans 4a séance
+(2) Répondant à M. Rickert à la tribune du Landtag dans séance
 du 9 février 1892, le pasteur Stoecker, chef du parti antijuif, fit les
-déclarations suivantes : « Je ne suis pas de ceux qui ont cherché à
+déclarations suivantes: « Je ne suis pas de ceux qui ont cherché à
 exciter l'opinion au sujet de l'affaire Buschhof, je n'en ai jamais parlé
 dans aucune réunion publique. Je ne suis pas non plus de ceux qui
 ont parlé du meurtre rituel. Je n'ai jamais employé ce terme et j'ai
 prié mes amis de ne pas s'en servir. Je déclare hautement qu'il me
 
-| paraît incompréhensible qu'on soutienne que les rites juifs prescrivent des sacrifices humains ou que les juifs font usage du sang dans
+paraît incompréhensible qu'on soutienne que les rites juifs prescrivent des sacrifices humains ou que les juifs font usage du sang dans
 un but rituel. »
 
 Les causes de l'antisémitisme en Russie. — La
 situation juridique des juifs
 
 I. — CAUSES GÉNÉRALES ET ÉCONOMIQUES. — Le fanatisme religieux pas plus que la haine des races ne
-saurait expliquer les persécutions antijuives : Leur
+saurait expliquer les persécutions antijuives: Leur
 fondement se trouve dans le conflit permanent des
 intérêts; mais une législation d'exception rend ce conflit
-plus aigu et plus violent qu'il aurait pu étre.
+plus aigu et plus violent qu'il aurait étre.
 
 Dans un pays comme la Russie, où le tsar est à la fois
 Pape et Empereur, où l'existence de la religion orthodoxe est liée par des intérêts matériels à l'existence
@@ -2449,36 +2447,36 @@ l'impératrice Élisabeth en 1743. Comme le Sénat lui
 représentait que la présence des juifs dans la Petite
 
 Russie et à Riga serait utile aux intérêts de l'État, si
-Élisabeth écrivit de sa main en marge de la pièce :
-« Des ennemis du Christ je ne désire aucun avantage ;
+Élisabeth écrivit de sa main en marge de la pièce:
+« Des ennemis du Christ je ne désire aucun avantage;
 
-Ensuite Catherine II refuse de rien changer, à son
+Ensuite Catherine refuse de rien changer, à son
 avènement (1762), de peur d'agiter les esprits et de
 mécontenter Les petits commerçants. Comme on le
 voit, il s'agit toujours de concurrence et non de fanatisme.
 
 Si l'on conservait des doutes à ce sujet il faudrait
-savoir que :
+savoir que:
 
 A Kief, ce furent les marchands qui, de 1810 à 1837,
 essayèrent de faire chasser les juifs de la ville. En
 1829 des pétitions furent adressées pour le même objet
 au gouvernement par des marchands et bourgeois des
-provinces baltiques ; en 1853, ce fut le tour des habitants de Kamenetz-Podolsk; en 1846, les forgerons de
+provinces baltiques; en 1853, ce fut le tour des habitants de Kamenetz-Podolsk; en 1846, les forgerons de
 Jitomir s'avisèrent de vouloir expulser les forgerons
 juifs de cette ville. Ces demandes étaient tantôt
 accueillies et tantôt repoussées, Il est à remarquer que
 souvent les rapports des autorités locales étaient favorables aux juifs dont on demandait l'expulsion. Le
 rapport de 1827 à Kief constate que les demandes des
-négociants ne s'inspirent que de sentiments d'envie ;
+négociants ne s'inspirent que de sentiments d'envie;
 celui de 1833, de la même ville, fait remarquer l'utilité
 de la présence des Juifs pour le consommateur chrétien,
-qui payait moins cher que s'il avait eu affaire aux
+qui payait moins cher que s'il avait affaire aux
 
 La rivalité mercantile et la concurrence, des bas
-salaires qui déterminent principalement l'animosité |
+salaires qui déterminent principalement l'animosité
 contre les juifs est aggravée par leur situation misé-
-rable et les lois restrictives dont ils sont victimes. ]
+rable et les lois restrictives dont ils sont victimes.
 
 Le prolétariat juif est l'un des plus misérables qui
 existent. (1) « On parle beaucoup, aujourd'hui, du relè-
@@ -2516,7 +2514,7 @@ trouve que 410 à 510 chrétiens occupent le même espace
 (4) Souravski. — Description du gouvernement de Kief, volume
 
 À Berditchef, par exemple, la statistique officielle
-nous apprend :
+nous apprend:
 
 Les juifs sont serrés les uns contre les autres plutôt
 comme des harengs salés que comme-des êtres humains;
@@ -2530,24 +2528,24 @@ tannent le cuir, etc.; des familles entières vivent, travaillent, dorment et ma
 de tous côtés autour d'eux. (1)
 
 è La Gazette de Moscou, décrivant l'état des juifs de
-Berditchef, dit :
+Berditchef, dit:
 
 Les rues du quartier juif de la ville n'ont pas plus de
 quatre pieds de large; de chaque côté les vieilles maisons
 penchées semblent prêtes à tomber; des enfants sont étendus dans la rue, devant les maisons, dans un état de
-nudité presque complète, se roulent dans la boue, et au :
+nudité presque complète, se roulent dans la boue, et au:
 milieu d'eux on voit des quantités de femmes sales, mères
 de ces enfants, également étendues en long et en large dans
 la rue et dormant sous les rayons brülants du soleil.
 
-Le statisticien M. Bobrovski, (2) parlant de la situation des juifs dans le gouvernement de Grodno, dit :
+Le statisticien M. Bobrovski, (2) parlant de la situation des juifs dans le gouvernement de Grodno, dit:
 
 La plus grande partie de la population juive est pauvre et
-toujours tourmentée de la même pensée : comment gagner
-le pain quotidien ? Chargés d'une nombreuse famille, les
+toujours tourmentée de la même pensée: comment gagner
+le pain quotidien? Chargés d'une nombreuse famille, les
 juifs vivent dans une misère dont il est impossible de se
 
-(2) Description du gouvernement de Grodno, volume I, page
+(2) Description du gouvernement de Grodno, volume page
 et suivantes.
 
 faire une idée. Souvent une baraque composée de trois ou
@@ -2555,7 +2553,7 @@ quatre chambres loge jusqu'à douze familles, dont la vie est
 une suite ininterrompue de privations et de souffrances.
 Des familles entières vivent quelquefois pendant tout un
 jour d'une livre de pain, d'un hareng salé et de quelques
-oignons. Dans le gouvernement de Kovno (et j'ajoute :
+oignons. Dans le gouvernement de Kovno (et j'ajoute:
 dans tous les gouvernements habités par les juifs), il y a
 des familles qui ne rompent le jeùne que le soir, et cela
 seulement quand le père ou celui qui nourrit la famille a
@@ -2577,11 +2575,11 @@ ce nombre la moitié au moins étaient juifs.
 Ces témoignages multiples et de sources les plus
 diverses nous montrent suffisamment la situation géné-
 
-(1) Afanassief. — Description du gouvernement de Kovno, pages 582nr Voir la Question israélite en Russie, par le prince Demidot
+(1) Afanassief. — Description du gouvernement de Kovno, pages Voir la Question israélite en Russie, par le prince Demidot
 
-rale des juifs de Russie. La conséquence toute naturelle c'est, en ce qui concerne le travail des ouvriers, <
+rale des juifs de Russie. La conséquence toute naturelle c'est, en ce qui concerne le travail des ouvriers,
 une diminution des salaires par la surabondance des
-bras inoccupés ; en ce qui concerne le commerce et
+bras inoccupés; en ce qui concerne le commerce et
 l'industrie, une augmentation du nombre des petits
 trafiquants et boutiquiers juifs se contentant de petits
 bénéfices et concurrençant les négociants de la religion
@@ -2592,7 +2590,7 @@ superstitieuse contre la race. (1)
 (1) On trouvera une confirmation de ce que nous venons de dire
 en examinant la situation économique de Kichinef, où la population prolétarienne juive ne cesse d'augmenter.
 
-Un recensement opéré en 1897 accuse pour Kichinef une population de 108.796 habitants, dont 50.000 juifs ; le reste est en majeure
+Un recensement opéré en 1897 accuse pour Kichinef une population de 108.796 habitants, dont 50.000 juifs; le reste est en majeure
 
 Les israélites de Kichinef prennent une part considérable à
 l'activité commerciale de cette ville qui est un centre de transactions pour le blé, le vin, le tabac, les grains, la laine, les
@@ -2605,16 +2603,16 @@ des tailleurs et des couturières dont le gain annuel ne dépasse pas
 davantage, et il est des métiers (typographes) dont le salaire annuel
 est encore moindre. Les manœuvres juifs sont au nombre de
 dont la moitié environ sont portefaix, journaliers, avec un gain
-quotidien dé 40 à 50 kopecks. Les israélites travaillent aussi dans
+quotidien 40 à 50 kopecks. Les israélites travaillent aussi dans
 les usines de distilleries, dans les manufactures de tabac et les
 moulins à vapeur. Les charretiers (226) et les cochers (124) gagnent
-& à 5 roubles par semaine. Le nombre des ouvriers israélites augmente encore au moment de la vendange; nombreux sont ceux
-qui pressent le raisin : 200 familles environ s'occupent de la fabrication du vin; 95 s'adonnent au jardinage, beaucoup d'autres font
+à 5 roubles par semaine. Le nombre des ouvriers israélites augmente encore au moment de la vendange; nombreux sont ceux
+qui pressent le raisin: 200 familles environ s'occupent de la fabrication du vin; 95 s'adonnent au jardinage, beaucoup d'autres font
 la culture du tabac.
 
-> Le chiffre des indigents de Kichinef est considérable; il suffit,
+Le chiffre des indigents de Kichinef est considérable; il suffit,
 pour s'en rendre compte, de considérer le nombre de personnes
-ayant dû demander des secours aux établissements de bienfaisance
+ayant demander des secours aux établissements de bienfaisance
 au cours de ces dernières années. En 1895, 1.200 familles demandaient assistance pour les fêtes de Pâques; en 1899, le chiftre s'élève
 à 1.505 familles; en 1900, il était de 2.204 familles.
 
@@ -2625,7 +2623,7 @@ L'article premier de cette loi a pour effet, en empê-
 chant les juifs de quitter désormais les villes, de créer
 une zone d'entassement à l'intérieur de la zone existante.
 
-L'article II tend au même but en diminuant les
+L'article tend au même but en diminuant les
 moyens d'existence des juifs établis antérieurement
 dans les campagnes. Ne pouvant acquérir des terres
 ni par achat, ni par hypothèques, ni par location, ils
@@ -2635,14 +2633,14 @@ surpeuplement dans les villes où ils viennent concurrencer la population exista
 Appliquées par endroits et par intermittences dans
 tout le Territoire juif, ces Lois de mai sont inscrites
 
-_ dans le Code. Les ouvriers juifs en ressentent particulièrement les effets lorsqu'ils veulent s'échapper du
+dans le Code. Les ouvriers juifs en ressentent particulièrement les effets lorsqu'ils veulent s'échapper du
 Territoire où ils sont parqués.
 
-Sans doute Alexandre IT avait accordé en 1865 aux
+Sans doute Alexandre avait accordé en 1865 aux
 artisans juifs le droit de libre circulation. Mais le texte
 de la loï fournit aux fonctionnaires du tsar des moyens
 de la tourner. En effet quelles sont les catégories
-d'ouvriers comprises sous cette dénomination d'« artisans »? On ne sait. Ainsi l'administration de Smolensk
+d'ouvriers comprises sous cette dénomination d'« artisans On ne sait. Ainsi l'administration de Smolensk
 a décidé que les boulangers, bouchers, vitriers et
 
 (1) Par exemple l'évacuation des villages environnants de Tcher-
@@ -2653,7 +2651,7 @@ vie où une seule y parvenait autrefois avec difficulté. On comprend
 quelle aversion il en résulte contre les juifs.
 
 vinaigriers juifs ne doivent plus être considérés comme
-artisans, et, par suite, les juifs appartenant à cette ;
+artisans, et, par suite, les juifs appartenant à cette;
 profession ont été forcés de quitter Smolensk et de
 retourner dans le Territoire. Les autorités de Simbirsk
 ont profité de l'occasion pour expulser plusieurs artisans
@@ -2700,7 +2698,7 @@ l'ouvrier. On cite un cordonnier juif de la Livonie qui a
 été expulsé sur le jugement d'un chef de corporation qui
 était son voisin et son concurrent. En outre, un artisan
 juif doit travailler constamment de son métier pour
-| conserver le privilège de demeurer hors du Territoire.
+conserver le privilège de demeurer hors du Territoire.
 Par conséquent la police descendra chez lui le jour du
 Sabbat et le renverra si elle ne le trouve pas occupé à
 son travail. La même mesure est appliquée encore aux
@@ -2709,13 +2707,13 @@ chassés sans pitié des localités où ils ont toute leur vie
 travaillé honorablement et sont renvoyés dans le
 Même dans les limites du Territoire, on fait des chicanes aux artisans juifs des villages sous prétexte que,
 
-dans les Lois de mai, il n'y a pas d'exception en leur :
-faveur. Dans le village de Lepeticha (district de Melitopol) on a expulsé cent familles, parce que leurs noms |
+dans les Lois de mai, il n'y a pas d'exception en leur:
+faveur. Dans le village de Lepeticha (district de Melitopol) on a expulsé cent familles, parce que leurs noms
 ne figuraient pas sur les registres communaux avant le
 mois de mai 1882. La vérité est qu'aucun bureau spé-
-cial d'enregistrement n'existait dans le village ni avant +
-cette date, ni même à cette date. Il était donc impossible ;
-aux juifs de fournir une preuve officielle et écrite, mais $
+cial d'enregistrement n'existait dans le village ni avant
+cette date, ni même à cette date. Il était donc impossible;
+aux juifs de fournir une preuve officielle et écrite, mais
 les voisins déclarèrent tous que ces juifs habitaient l'en-
 droït depuis plus de dix ans; beaucoup d'expulsés
 étaient des artisans dont les certificats prouvaient qu'ils
@@ -2729,21 +2727,21 @@ justement dans les villages du Territoire.
 Ainsi, à l'intérieur du Territoire, on fait tout ce qu'on
 peut pour interner les juifs dans les villes, et, d'autre
 part, on use de tous les subterfuges pour rejeter dans
-_ le Territoire les juifs, la plupart artisans, qui ont réussi
+le Territoire les juifs, la plupart artisans, qui ont réussi
 à en sortir. (1) Les moyens mis en œuvre pour limiter
 le nombre des juifs qui, à l'avenir, pourront quitter le
-() Il est rigoureusement interdit à l'artisan juif de vendre hors ;
-du Territoire des objets qu'il n'a pas fabriqués lui-même : source
+Il est rigoureusement interdit à l'artisan juif de vendre hors;
+du Territoire des objets qu'il n'a pas fabriqués lui-même: source
 inépuisable de chicanes. Des horlogers juifs ont été expulsés pour
-avoir vendu des clefs de montre ; des tailleurs l'ont été parce que
+avoir vendu des clefs de montre; des tailleurs l'ont été parce que
 les boutons des vêtements qu'ils confectionnaient n'étaient pas
 fabriqués par eux! Des femmes d'artisans juifs ont été chassées de
 Kief pour s'être rendues coupables d'avoir vendu un peu de lait.
 De tels actes justifient toutes les représailles de la part des pauvres
-ainsi traqués, juifs ou chrétiens. ‘+
+ainsi traqués, juifs ou chrétiens.
 
 Territoire, sont encore plus arbitraires. La liberté de
-circulation n'est accordée qu'à deux catégories : les
+circulation n'est accordée qu'à deux catégories: les
 personnes qui ont obtenu des grades universitaires,
 en particulier celles qui exercent des professions libé-
 rales, — et les négociants de la première guilde. (1)
@@ -2753,8 +2751,8 @@ Nous avens dit que les corporations délivraient aux
 récent enlève à ces corporations tout contrôle sur les
 artisans juifs établis en dehors du Territoire et soumet
 ceux-ci à l'autorité de la police locale. L'arbitraire des
-fonctionnaires de la police va créer de nouvelles dificultés aux artisans. I] suffit pour s'en convaincre de
-lire la circulaire suivante du préfet de police de Kief :
+fonctionnaires de la police créer de nouvelles dificultés aux artisans. suffit pour s'en convaincre de
+lire la circulaire suivante du préfet de police de Kief:
 
 Les artisans juifs munis d'un certificat professionnel
 doivent avoir un atelier et des ouvriers.
@@ -2767,9 +2765,9 @@ Les artisans juifs non munis d'un certificat doivent
 exercer leur métier à l'aide d'un contremaître dans un
 atelier leur appartenant.
 
-Ne sont pas considérés comme exerçant un métier manuel : les charpentiers, les terrassiers, les paveurs, les
+Ne sont pas considérés comme exerçant un métier manuel: les charpentiers, les terrassiers, les paveurs, les
 
-_ maçons et les bouchers.
+maçons et les bouchers.
 
 A la suite de ce décret cinq cents familles juives
 dont les chefs font partie de ces dernières catégories
@@ -2779,19 +2777,19 @@ délai de quinze jours.
 A Kief plusieurs juives avaient été admises comme
 
 (1) Pour faire partie de cette guilde il faut payer des impôts
-s'élevant à 1.000 roubles par an ; ces marchands forment naturellement une exception.
+s'élevant à 1.000 roubles par an; ces marchands forment naturellement une exception.
 
-infirmières à l'hôpital Kirilof : le gouverneur les fit
+infirmières à l'hôpital Kirilof: le gouverneur les fit
 - Quand vers le mois d'août 1890 la ligne du chemin de fer
 de Libau fut rachetée par l'État, tous les employés israélites
 dela Compagnie furent renvoyés successivement. L'un d'eux,
 M. Koiranski, ingénieur, dont le caractère et les mérites
 professionnels avaient gagné toutes les sympathies, y était
-employé depuis vingt-six ans : on lui fit savoir qu'il serait
+employé depuis vingt-six ans: on lui fit savoir qu'il serait
 éliminé à son tour s'il ne se faisait baptiser. Il préféra se
-tuer : son inhumation eut lieu à Vilna le 3 novembre 1890.
+tuer: son inhumation eut lieu à Vilna le 3 novembre 1890.
 Dans le courant de l'été 1893 les deux compagnies de navigation opérant sur le Dniéper ont été avisées d'avoir à
-chasser leurs employés de religion juive : ces malheureux,
+chasser leurs employés de religion juive: ces malheureux,
 au nombre de quatre-vingts environ, ont reçu leur congé
 en même temps que l'ordre de la police de partir immédiatement.
 Au moment où nous écrivons ces lignes, le ministre des à
@@ -2799,9 +2797,9 @@ voies et communications vient d'étendre la mesure à toutes
 les sociétés de chemins de fer concédés, ce sont encore huit
 mille israélites qui vont, sans avoir mérité l'ombre d'un
 reproche, être jetés demain sur le pavé. (1)
-Il va sans dire que les restrictions légales sont
+Il sans dire que les restrictions légales sont
 toujours appliquées d'une façon inique et brutale. En
-voici quelques exemples, entre mille :
+voici quelques exemples, entre mille:
 Un israélite de Nakhitchvan (Caucase) était venu à
 Kharkof pour subir une grave opération à l'hôpital municipal de cette ville. L'opération faite, il reçut, à la fois,
 l'ordre de quitter la ville sur le champ, malgré son état de
@@ -2819,13 +2817,13 @@ expulsés et au paiement des frais du procès. Ce jugement a
 A Kief, enfin, malgré les récents arrêts du Sénat relatifs
 aux abus de pouvoir dont s'est rendu coupable le commis- À
 saire de police de cette ville, celui-ci continue à interpréter
-et appliquer les lois selon ses fantaisies. :
+et appliquer les lois selon ses fantaisies.:
 
-Voici le texte de la dernière résolution prise par lui :
+Voici le texte de la dernière résolution prise par lui:
 
 Considérant que l'arrestation et le renvoi par voie administrative d'un juif qui n'a pas le droit de séjourner à Kief
 est conforme aux articles 29 et 89 de la loi qui fixe le droit
-de séjour des juifs ;
+de séjour des juifs;
 
 Considérant, d'autre part, que cette loi s'applique aux
 vagabonds, et que les juifs séjournant illégalement dans
@@ -2837,7 +2835,7 @@ Nous venons de montrer la persécution exercée
 contre les ouvriers. Disons quelques mots, pour être
 complet, des vexations dirigées contre les familles de
 
-_ la petite bourgeoisie, et des lois d'exception à leur
+la petite bourgeoisie, et des lois d'exception à leur
 égard. En 1880, les autorités commencèrent à réduire
 le nombre des juifs admis dans les Écoles supérieures.
 En 1882, le nombre des étudiants juifs à l'École de
@@ -2858,8 +2856,8 @@ cembre 1886 et du 26 juin 1887, le ministère de
 l'instruction publique fut autorisé à restreindre le
 nombre des juifs dans tous les établissements d'instruc- À
 tion. Là-dessus, le ministère réduisit, dans toutes les
-écoles et universités, le nombre des juifs à 10 oo
-dans l'intérieur du Territoire, et à 5 oo en dehors. |
+écoles et universités, le nombre des juifs à
+dans l'intérieur du Territoire, et à 5 en dehors.
 A Saint-Pétersbourg et à Moscou, on n'admit que
 3 oJo du nombre total des élèves dans chaque école
 ou à l'Université, et tout cela, sans avoir égard au
@@ -2868,18 +2866,18 @@ trouvent ces écoles ou universités. (1)
 
 Écartés des écoles publiques, les juifs de Russie
 pourraient demander avec raison le droit de créer des
-écoles supérieures à leur usage. |
+écoles supérieures à leur usage.
 
-D'ailleurs, le bénéfice net de la taxe spéciale mise |
+D'ailleurs, le bénéfice net de la taxe spéciale mise
 
-sur les animaux tués selon le rite juif est, par une |
+sur les animaux tués selon le rite juif est, par une
 disposition formelle de la loi, affecté à cet usage, mais
-en réalité il ne reçoit que rarement cette destination. |
-Le gouverneur de Kichinef a « emprunté » un jour |
+en réalité il ne reçoit que rarement cette destination.
+Le gouverneur de Kichinef a « emprunté » un jour
 100.000 roubles sur ces taxes pour se construire une
 résidence officielle. Dans plusieurs circonscriptions, les
 juifs essayèrent néanmoins de fonder des Écoles supé-
-rieures à leurs frais, mais un édit le leur interdit, sous |
+rieures à leurs frais, mais un édit le leur interdit, sous
 
 (1) Dans certaines villes, le nombre des juifs est de 80 0/0 de la
 population totale. À Berditchef, et dans d'autres villes, il atteint et
@@ -2888,14 +2886,14 @@ prétexte que les écoles publiques leur étaient ouvertes. (1)
 
 Après avoir atteint l'enfant, les lois restrictives
 appliquées aux juifs de Russie atteignent les hommes.
-Nous avons vu les mesures odieuses qui ont été prises
+Nous avons les mesures odieuses qui ont été prises
 à l'égard des ouvriers et des artisans, nous allons voir
-que les classes moyennes ne sont pas ménagées. #
+que les classes moyennes ne sont pas ménagées.
 
 Les professions d'avocat et d'avoué sont interdites aux
 juifs qui n'obtiendraient pas une autorisation spéciale
 du ministre de la justice (on deviné quel système de
-corruption il en résulte ; aussi la Russie est-elle, de l'avis
+corruption il en résulte; aussi la Russie est-elle, de l'avis
 de tous les voyageurs, le pays du pot-de-vin par excellence). D'après une décision du Conseil des ministres,
 l'exclusion complète des avocats juifs ne doit s'appliquer qu'aux tribunaux du ressort de la Cour d'äppel de
 
@@ -2908,12 +2906,12 @@ pauvres restent dans l'ignorance. »
 Ce refus est d'autant plus odieux que la population juive est
 extrémement mal desservie par les écoles primaires comme on
 
-_ peut en juger par les statistiques suivantes :
+peut en juger par les statistiques suivantes:
 
 Le district scolaire de Kief compte 295 écoles primaires juives,
 privées et communales avec un effectif de 13.115 élèves, dont
 10,529 garçons et 2,586 filles. En outre, dans les écoles chrétiennes
-privées, on compte 710 élèves juifs et, dans les écoles chrétiennes \
+privées, on compte 710 élèves juifs et, dans les écoles chrétiennes
 communales, 8.280 élèves juifs. Si l'on y ajoute les 4.010 élèves juifs
 des lycées et collèges, on arrive au total de 26.115, alors que dans le
 district de Kief 165.000 enfants juifs sont en âge de fréquenter
@@ -2938,38 +2936,38 @@ des avocats chrétiens. De plus, aucun juif ne pourra
 
 . plus désormais faire partie de l'ordre des avocats. (1)
 
-M Les israélites ne peuvent être élus membres des
-assemblées provinciales (zemstvos); bien mieux, quel }
-que soit leur nombre dans un district, ils ne peuvent |
+Les israélites ne peuvent être élus membres des
+assemblées provinciales (zemstvos); bien mieux, quel
+que soit leur nombre dans un district, ils ne peuvent
 pas même participer à l'élection de ces assemblées. (2)
-On ne peut les élire aux fonctions de maire, ni d'adjoint |
+On ne peut les élire aux fonctions de maire, ni d'adjoint
 au maire, (3) ni de président du conseil municipal, (4)
 ni de conseiller de police. (5) Dans les dix gouvernements de la Pologne ils ne peuvent être nommés « Anciens » d'un hameau, à moins que tous les habitants de
 ce hameau ne soient juifs. (6) Les comités de corporation composés de chrétiens et de juifs ne peuvent
-choisir un juif ni comme président, ni comme viceprésident. (7) Les juifs ne peuvent pas être nommés |
-membres de la commission de recrutement par les |
-habitants de la ville où ils demeurent. (8) |
+choisir un juif ni comme président, ni comme viceprésident. (7) Les juifs ne peuvent pas être nommés
+membres de la commission de recrutement par les
+habitants de la ville où ils demeurent. (8)
 
 A la Bourse d'Odessa ainsi qu'à celle de Varsovie,
-les juifs pouvaient faire partie du comité de la Bourse, |
+les juifs pouvaient faire partie du comité de la Bourse,
 être courtiers, experts et notaires. Il y avait en 1892,
 à Odessa, 65 0/0 de courtiers israélites et 35 ojo de
 
 (1) Kievlamin, 21 octobre-2 novembre 1892. Ce nombre a été un
 
-(2) Recueil des lois, numéro 63, $
+(2) Recueil des lois, numéro
 
 (4) Circulaire du ministre de l'intérieur, 12 octobre 1879, numéro 7795.
 
-G) Recueil des lois, volume IX, $
+Recueil des lois, volume IX,
 
-(6) Règlements civiques du royaume de Pologne, 1, $ 16; VII,
+(6) Règlements civiques du royaume de Pologne, 1, 16; VII,
 
-(7) Recueil des lois, volume XI, $
+(7) Recueil des lois, volume XI,
 
 (8) Ordre impérial du 20 mai 1874.
 
-chrétiens ; à Varsovie 75 oo d'israélites et 25 ojo
+chrétiens; à Varsovie 75 d'israélites et 25 ojo
 de chrétiens. Mais une loi de 1892 a diminué encore les
 droits des israélites; désormais, les présidents et les
 membres des comités des Bourses ne pourront être
@@ -2985,8 +2983,8 @@ municipale, sanctionnée par le tsar le 11 juin 1892, met
 électeurs municipaux et pouvaient faire partie des conseils dans la proportion d'un tiers, qui fut bientôt
 réduite à un cinquième. La loi nouvelle les prive de tout
 droit d'électeurs et ne leur permet plus d'être élus par
-leurs concitoyens : ils pourront seulement être désignés
-comme délégués-adjoints au conseil par l'autorité locale ; encore le nombre de ces désignés ne peut-il être
+leurs concitoyens: ils pourront seulement être désignés
+comme délégués-adjoints au conseil par l'autorité locale; encore le nombre de ces désignés ne peut-il être
 supérieur au dixième du nombre total des conseillers.
 Ainsi, dans certaines villes du nord-ouest de la Russie,
 où il y a parfois 70 0/0 d'israélites, et plus, les affaires
@@ -2999,12 +2997,12 @@ dit M. Léo Errera à qui nous empruntons ces renseignements,
 
 ont été dépouillés de ces droits déjà si réduits,
 on croira peut-être que cela tient à ce qu'ils se sont très
-mal acquittés des fonctions municipales là où ils en avaient
+mal acquittés des fonctions municipales où ils en avaient
 
 été investis. Or, c'est précisément le contraire qui est vrai.
 Voici un témoignage récent et peu suspect, emprunté à une
 publication oflicielle, les Annales du gouvernement de.
-Kopno : « Nous ne sommes pas habitués à chanter les éloges … $
+Kopno: « Nous ne sommes pas habitués à chanter les éloges …
 des juifs, cependant nous devons reconnaître que les con- Y
 seillers municipaux de confession israélite ont apporté
 beaucoup de soin dans la gestion des affaires municipales
@@ -3016,11 +3014,11 @@ faire partie du conseil d'administration de telle société
 sucrière, de posséder une seule action de l'Association des
 propriétaires fonciers, ou de la Société des places du marché de Moscou, et ainsi de suite. Le baptême ne leur confère
 pas même le droit de devenir actionnaires de cette dernière
-entreprise !.… Et les exclusions légales dont nous n'avons
+entreprise!.… Et les exclusions légales dont nous n'avons
 pas épuisé la liste, s'aggravent encore des interdictions
 prononcées par des corporations privées que le zèle ou
 légoïsme pousse à imiter le gouvernement. Parmi ces
-mesures il en est de tristes : les pharmaciens de SaintPétersbourg ont décidé en 1891 de ne plus accepter d'apprentis juifs et de fermer ainsi ce métier aux israélites. (2)
+mesures il en est de tristes: les pharmaciens de SaintPétersbourg ont décidé en 1891 de ne plus accepter d'apprentis juifs et de fermer ainsi ce métier aux israélites. (2)
 Il en est aussi de grotesques comme lorsqu'un club de
 joueurs d'échecs, dont les meilleurs joueurs sont israélites,
 décide de ne plus recevoir de juifs à l'avenir. (3)
@@ -3028,7 +3026,7 @@ Nous n'avons pas fini d'explorer ce maquis de lois
 restrictives. Le gouvernement russe a osé se plaindre
 de ce que, dans un pays essentiellement agricole, les
 juifs ne prennent aucune part aux travaux de la terre.
-Or d'après les lois sur la propriété immobilière les
+d'après les lois sur la propriété immobilière les
 juifs, à peu d'exceptions près, sont privés du droit
 (1) Annales du gouvernement de Kovno, reproduites dans Voskhod,
 : (2) Jewish Chronicle, 24 avril 1891. « (3) Les Juifs russes, Léo Errera.
@@ -3038,7 +3036,7 @@ hors des villes du Territoire.
 
 Les immeubles ruraux, y compris les terres concédées
 aux paysans à titre perpétuel, ne peuvent être vendus
-à des juifs. (Volume IX, loi sur le statut personnel, supplément I au $ 330, note, $ 3, 1887)
+à des juifs. (Volume IX, loi sur le statut personnel, supplément au 330, note, 3, 1887)
 
 Il est interdit aux juifs de posséder des terres d'aucune
 sorte dans les provinces Baltiques. (30 mai 1869,
@@ -3052,14 +3050,14 @@ Les juifs ne sont pas admis aux adjudications
 n'ont pas payé l'impôt du rachat du servage ou l'impôt
 foncier, ou, en Bessarabie, la taxe sur les terres. (Règlements sur les paysans, supplément au volume IX, etc.)
 
-Il est interdit à tous juifs sans exception d'acheter :
+Il est interdit à tous juifs sans exception d'acheter:
 des terres des propriétaires ou des paysans dans les
 neuf provinces de l'Ouest. (Volume IX, loi sur le statut
 
 Dans toute l'étendue du Territoire, l'exécution de
 
-| contrats pour l'achat des terres, de maisons ou de propriétés hypothéquées faits au nom de juifs est suspendue; de plus, aucun juif ne sera inscrit comme
-locataire de terres situées hors des villes ; il n'est pas
+contrats pour l'achat des terres, de maisons ou de propriétés hypothéquées faits au nom de juifs est suspendue; de plus, aucun juif ne sera inscrit comme
+locataire de terres situées hors des villes; il n'est pas
 permis non plus de donner procuration aux juifs en vue
 d'exploiter ce genre de propriétés et d'en disposer.
 
@@ -3074,7 +3072,7 @@ premier Département et du Département de Cassation
 du Sénat impérial, 1889, numéro 25), etc., etc., etc. (1)
 
 Après cela on peut comprendre la bonne foi de ceux
-qui déclarent que les juifs ne veulent pas s'occuper |
+qui déclarent que les juifs ne veulent pas s'occuper
 d'agriculture. Sous les règnes d'Alexandre premier et de
 Nicolas premier, on autorisa la fondation de quelques
 colonies agricoles dans des localités choisies par le
@@ -3085,11 +3083,11 @@ On objectera que ces interdictions ne se rencontrent
 qu'en Russie et qu'ailleurs le juif pourrait s'occuper
 d'agriculture. C'est, alors, qu'on ne tient pas compte des
 conditions antérieures de la vie juive. « Voilà bientôt
-deux mille ans qu'il a été déraciné du sol. Les lois |
-même l'ont, durant tout le Moyen-Age, emprisonné dans |
+deux mille ans qu'il a été déraciné du sol. Les lois
+même l'ont, durant tout le Moyen-Age, emprisonné dans
 les ghettos des villes. Or, l'on sait que les populations
 urbaines ne retournent jamais aux travaux des champs.
-Nulle part le citadin ne s'est refait paysan. C'est là une
+Nulle part le citadin ne s'est refait paysan. C'est une
 loi historique. Le dur labeur de la glèbe est de ceux
 auxquels l'homme ne se remet plus une fois qu'il la
 
@@ -3103,7 +3101,7 @@ Les autorités refusèrent et répondirent que les juifs seraient
 expulsés le jour même de l'échéance du bail, c'est-à-dire le
 
 quitté. Le juif n'en aurait même pas toujours la force
-physique. L'énergie musculaire a été affaiblie chez lui ;
+physique. L'énergie musculaire a été affaiblie chez lui;
 la vie urbaïne, la claustration du ghetto, la pauvreté
 héréditaire l'ont débilité depuis des générations. » (1)
 
@@ -3115,28 +3113,28 @@ est interdite aux juifs; mais il existe encore quelques
 agriculteurs, descendants de colons libres, qui sont
 allés s'établir dans ce pays, au commencement du
 siècle, à leurs risques et à leurs frais. Un document
-publié par le ministre des Domaines atteste officiellement leurs grandes qualités agricoles : « Tous ces
+publié par le ministre des Domaines atteste officiellement leurs grandes qualités agricoles: « Tous ces
 juifs, y est-il dit, sont dans une situation aisée; ils sont
 devenus de véritables laboureurs, ils font tous les
 travaux des champs et cultivent leurs terres d'une
 façon très convenable. Plusieurs d'entre eux, surtout
 dans les communes de Baïmolt et d'Isklims, peuvent
-même être cités comme des cultivateurs modèles ; ce }
+même être cités comme des cultivateurs modèles; ce
 sont eux qui donnent l'impulsion aux autres cultivateurs
 
-j pour l'introduction des machines perfectionnées et des
+pour l'introduction des machines perfectionnées et des
 instruments aratoires. Généralement ils sont à la tête
 de toutes les améliorations à appliquer à la culture des
 
 Il n'y a donc pas d'aversion congénitale, — comme
 disent quelques publicistes superficiels, — de la part des
-juifs contre l'agriculture. Veut-on d'autres exemples ?
+juifs contre l'agriculture. Veut-on d'autres exemples?
 
 (1) Leroy-Beaulieu. — L'Empire des Tsars, tome III, page
 
 (2) Matériaux pour l'étude de la population rurale en Sibérie
 
-En Bessarabie, on a eu besoin, pendant l'été de 1893,
+En Bessarabie, on a besoin, pendant l'été de 1893,
 de travailleurs agricoles, peut-être aussi s'est-on ému
 de la détresse affreuse qui règne parmi les israélites (1)
 et,malgré les lois de 1882, on s'est décidé à en embaucher
@@ -3144,9 +3142,9 @@ quelques milliers. Le journal russe qui apporte cette
 nouvelle remarque que l'émigration s'est immédiate-
 ment ralentie et s'arrête dans cette région « tantilest vrai
 qu'il suffit que le pauvre juif trouve à gagner son pain
-pour qu'il ne songe pas à quitter la Russie ». (2) Il en !
-est de même dans la province de Kief, où la baronne .
-israélites, et dans la Podolie, où la princesse Tcherbatof |
+pour qu'il ne songe pas à quitter la Russie ». (2) Il en!
+est de même dans la province de Kief, où la baronne.
+israélites, et dans la Podolie, où la princesse Tcherbatof
 en a pris autant sur ses terres, leur donnant en même
 temps des marques touchantes de sa sollicitude. (3)
 Partout ces ouvriers agricoles juifs se comportent
@@ -3159,7 +3157,7 @@ israélites sur les terres inoccupées de la Couronne.
 Mais, dit M. Errera, des ordres et des contre-ordres
 survinrent, les promesses qu'on avait faites ne furent
 pas tenues, l'argent destiné aux colonies naïissantes fut
-dilapidé par les fonctionnaires ; à ces obstacles s'ajoutèrent encore des. désastres : mauvaises récoltes,
+dilapidé par les fonctionnaires; à ces obstacles s'ajoutèrent encore des. désastres: mauvaises récoltes,
 épidémies, climat rigoureux, privations de toutes sortes.
 « Les colons juifs, disent les rapports officiels du temps,
 meurent de faim et de froid au milieu des steppes. »
@@ -3176,7 +3174,7 @@ Les colonies agricoles des gouvernements de Kherson
 et d''Ekaterinoslaf comptaient en 1892 près de quarante
 mille habitants. Un rapport russe, approuvé par la
 censure, où ces colonies sont étudiées en détail, nous
-apprend (2) que :
+apprend (2) que:
 
 Les colons russes sont bien mieux outillés que les paysans chrétiens, qui ne possèdent pas toujours une bonne
 charrue... En comparant les colonies juives avec les villages chrétiens les plus prospères de la région, les preuves
@@ -3201,35 +3199,35 @@ Donato, traduction française, page 32 et suivantes.
 gouvernement russe fait tout ce qu'il peut pour empê-
 cher les juifs de s'occuper d'agriculture. ne
 Aussi ne doit-on pas s'étonner de les voir s'adonner au
-commerce et au brocantage. Mais, là encore, ils sont en
+commerce et au brocantage. Mais, encore, ils sont en
 butte à des restrictions nombreuses.
 Ils ne peuvent sortir des localités où ils sont inscrits
 sans être munis d'un passeport. Dans les passeports
 accordés aux marchands, il est mentionné la religion à
-laquelle ils appartiennent. La police examine le passe- ,
+laquelle ils appartiennent. La police examine le passe-,
 port à l'arrivée pour constater si le juif peut visiter les
 capitales. Ils n'ont donc pas le droit d'aller et de venir
 accordé à tous les sujets russes, de n'importe quelle
 confession. La privation de ce droit n'est infligée aux
-non-juifs dans la législation russe ($$ 30 et 32, 48, 49 et
+non-juifs dans la législation russe 30 et 32, 48, 49 et
 51 du Code pénal, 1885) que pour divers crimes.
-En Sibérie, les patentes commerciales ne sont accordées qu'aux juifs des catégories suivantes : 1° aux enfants des déportés juifs qui y sont venus avec leurs parents ou qui y sont nés ; 2° aux déportés juifs qui ont été
+En Sibérie, les patentes commerciales ne sont accordées qu'aux juifs des catégories suivantes: 1° aux enfants des déportés juifs qui y sont venus avec leurs parents ou qui y sont nés; 2° aux déportés juifs qui ont été
 condamnés à la déportation sans perte de leurs droits
 Par conséquent les criminels juifs et leurs enfants
 sont les seuls juifs qui aient le droit de faire le commerce
 dans la Sibérie, dont certaines parties sont extrêmement prospères et renferment de grandes richesses naturelles. Dans les localités où les juifs possèdentle droit
 de séjour (le Territoire) il leur est interdit de faire des
 affaires le dimanche et aux printipales fêtes chrétiennes.
-(Volume IX, $ 959 ; volume XIV, Code de procédure pé-
-nale, $ 16, note) C'est une des fameuses Lois de mai
-1882. Elle crée de grandes difficultés dans les villes où |
-les juifs forment la majorité de la population. Dans beau108 à |
+(Volume IX, 959; volume XIV, Code de procédure pé-
+nale, 16, note) C'est une des fameuses Lois de mai
+1882. Elle crée de grandes difficultés dans les villes où
+les juifs forment la majorité de la population. Dans beau108 à
 
 coup de villes, le dimanche est le jour de marché légal
 et habituel; les musulmans et autres non chrétiens
 peuvent librement faire le commerce le dimanche, etc.
 
-Nous arrêtons cette série de lois et de règlements restrictifs. On les retrouve partout : dans les opérations
+Nous arrêtons cette série de lois et de règlements restrictifs. On les retrouve partout: dans les opérations
 industrielles, dans le service civil, dans les fonctions
 électives, dans le service militaire, dans la procédure,
 
@@ -3246,19 +3244,19 @@ devenu une source de revenus peur l'Etat, (1) et comme
 il faut qu'il se rattrape sur les prix qu'il fait payer au
 
 (1) Outre les impôts ordinaires, les juifs ont à payer les impôts
-spéciaux qui suivent :
+spéciaux qui suivent:
 
 L'impôt du tronc, qui se compose: 1° d'un droit fixe perçu sur
 chaque bête tuée selon le rite juif (kacher) et sur chaque livre de
-viande vendue comme kacher ; 2° d'un impôt particulier qui se compose d'un tant pour cent sur les loyers, les maisons, les boutiques,
-etc. des juifs ; d'un tant pour cent sur les bénéfices des fabriques,
-établissements industriels, etc, ; une taxe sur le costume spécial des
+viande vendue comme kacher; 2° d'un impôt particulier qui se compose d'un tant pour cent sur les loyers, les maisons, les boutiques,
+etc. des juifs; d'un tant pour cent sur les bénéfices des fabriques,
+établissements industriels, etc,; une taxe sur le costume spécial des
 juifs (cinq roubles argent par an pour porter une calotte!) — Voir
 
 L'impôt des bougies (sur les lumières du Sabbath).
 
 L'impôt sur les imprimeries qui est de vingt roubles pour chaque
-presse à main, de cent vingt roubles pour chaque petite presse à va109
+presse à main, de cent vingt roubles pour chaque petite presse à
 
 client, il se trouve chargé, en quelque sorte, de la fonction peu enviable de percevoir sur les pauvres les con- …
 tributions indirectes. L'instinct de la conservation estsi
@@ -3282,12 +3280,12 @@ nous assistons et qui ne semblent pas devoir finir de
 L'antisémitisme russe, comme l'antisémitisme fran-
 çais, — et, l'on peut dire, comme toute espèce connue
 peur, et de deux cents roubles pour chaque grande presse à vapeur.
-(Note sur le $ 158, volume XIV, loi sur la censure, 1886)
+(Note sur le 158, volume XIV, loi sur la censure, 1886)
 
 Nota bene. — L'impôt du tronc et l'impôt des bougies, ainsi que la
 taxe pour l'entretien des établissements d'instruction et le revenu
 de la fondation Gunsbourg destinée à fournir des subsides aux agriculteurs juifs, ne sont pas inscrits au budget du ministère. (Supplé-
-ment au $ 221, deuxième partie ; note 2, S1 et 3, volume I, partie
+ment au 221, deuxième partie; note 2, et 3, volume partie
 loi sur le Cabinet)
 
 (1) Extraits du Times, 9 et 13 octobre 1890.
@@ -3299,7 +3297,7 @@ concurrence vitale, déguisée sous des prétextes divers. (1)
 religion « orthodoxe » il s'agit d'une rivalité mercantile
 nettement affirmée dans les cas précis que nous avons
 
-Chez les artisans non juifs c'est le ressentiment na- |
+Chez les artisans non juifs c'est le ressentiment na-
 turel contre une catégorie de travailleurs, — les juifs
 pauvres, — dont la présence multipliée accentue la
 baisse des salaires.
@@ -3315,99 +3313,99 @@ pression de l'opinion, — nous voulons dire des éléments
 sus-nommés, — en partie de la crainte que l'on voie un
 jour le judaïsme contrebalancer la puissance « orthodoxe ». (2)
 
-@) Voir dans mon Enquête sur l'Antisémitisme (chez Stock) le
+Voir dans mon Enquête sur l'Antisémitisme (chez Stock) le
 chapitre sur la Signification de la Presse antisémitique.
 
-(2) M. Pobedonostzef, procurateur général du Saint-Synode, ancien précepteur du tsar, a dit publiquement ces paroles significatives : « Si les juifs continuent comme ils font, il y a quelques
+(2) M. Pobedonostzef, procurateur général du Saint-Synode, ancien précepteur du tsar, a dit publiquement ces paroles significatives: « Si les juifs continuent comme ils font, il y a quelques
 années, on doit craindre qu'ils n'arrivent à dépasser les Russes en
 tout. » D'ailleurs, Pobedonostzef s'est efforcé de combattre également et avec la même énergie l'influence des Polonais, des Finlandais, des Allemands; il poursuit sans distinction toutes les communautés qui n'appartiennent pas à l'Église orthodoxe, les luthériens,
 les catholiques romains, les raskolniks, les uniates; mais contre
-les juifs il a des griefs particuliers. Ils se convertissent plus difficilement que les autres à la religion dont Nicolas II est le Pape. Et
+les juifs il a des griefs particuliers. Ils se convertissent plus difficilement que les autres à la religion dont Nicolas est le Pape. Et
 Pobedonostzef considère cela comme une « dépravation ».…..
 
-Ces haines sont considérablement aggravées par les \
+Ces haines sont considérablement aggravées par les
 lois restrictives et particulières appliquées à la population israëlite. D'abord, elles jettent un discrédit moral
-sur cette. population et, par làä-même, donnent une apparence de justice à l'animosité latente qui se manifeste contre elle et dont elle est victime. Ensuite, en ‘
+sur cette. population et, par làä-même, donnent une apparence de justice à l'animosité latente qui se manifeste contre elle et dont elle est victime. Ensuite, en
 
-reléguant les juifs dans les villes, et dans certaines |
+reléguant les juifs dans les villes, et dans certaines
 villes, ces lois augmentent les difficultés d'existence
-non seulement des juifs, mais des non-juifs. La pauvreté de ce peuple augmente, et comme sa prolificité |
-est extrême, la concurrence des artisans et des bouti- |
+non seulement des juifs, mais des non-juifs. La pauvreté de ce peuple augmente, et comme sa prolificité
+est extrême, la concurrence des artisans et des bouti-
 quiers s'accentue, et rend plus diflicile les affaires de
 tous. D'où aggravation de l'animosité, persécutions,
 
 Cet état de choses ne pourrait s'améliorer que par
-l'application aux juifs de la législation commune. Ce |
+l'application aux juifs de la législation commune. Ce
 ne serait pas seulement une mesure d'équité, — ce langage n'est pas entendu des gouvernements, — mais une
-mesure de bonne politique. |
+mesure de bonne politique.
 
 L'oppression des juifs dans l'Europe orientale.
 Les massacres de Kichinef et la situation
-des prolétaires juifs en Russie . . . . ..
-Lois de mai 1882, texte ; tableau des persécu-
-| tions qui eurent lieu du mois de décembre 1881
-au mois de juin 1882; mouvement de protestation en Europe ; grand meeting du premier février
+des prolétaires juifs en Russie......
+Lois de mai 1882, texte; tableau des persécu-
+tions qui eurent lieu du mois de décembre 1881
+au mois de juin 1882; mouvement de protestation en Europe; grand meeting du premier février
 1882 convoqué par le Lord Maire de Londres au
 Mansion-House; appel du comité parisien, Victor
 Ordonnance du 22 avril 1890; les effets, lettre
 publiée par le Times du 5 mai; circulaire de
-M. Jurkovski, directeur de la police ; nouvelles
-É instructions du même; instructions exécutées ;
+M. Jurkovski, directeur de la police; nouvelles
+É instructions du même; instructions exécutées;
 expulsions, d'après le correspondant du Times
 du 5 mai; circulaire du gouverneur de SaintPétersbourg, datée du 15 mars 1891, portant sur
 les enseignes des magasins juifs; troubles à
-du commissaire M. Ivachenko ; graves émeutes
-à Starodoub ; autres persécutions ; le tribunal de
+du commissaire M. Ivachenko; graves émeutes
+à Starodoub; autres persécutions; le tribunal de
 Kief, Kievlamin du 23 janvier; autres émeutes,
 dans les gouvernements de Saratof et de Pensa,
 Neuseit du 15 janvier 1892, à Samozansk et à
 
-Kichinef et les juifs de Russie L=
+Kichinef et les juifs de Russie
 du 21 octobre-2 novembre; ordonnance du
-ministre de l'intérieur aux gouverneurs, 14-26 janvier 1893, Odesski Listok du 30 janvier-11 février .
-Les massacres de Kichinef, avril 1903 . . . . .
-Kichinef; l'assassinat de Rybalenko; campagne de Bessarabetz ; instruction ; commission ; |
+ministre de l'intérieur aux gouverneurs, 14-26 janvier 1893, Odesski Listok du 30 janvier-11 février.
+Les massacres de Kichinef, avril 1903.....
+Kichinef; l'assassinat de Rybalenko; campagne de Bessarabetz; instruction; commission;
 les massacres; lettre d'un correspondant des
 Novosti, numéro des 14-27 avril; récit d'un
-témoin oculaire ; récit du journal Viedomosti,
+témoin oculaire; récit du journal Viedomosti,
 numéro du 15-28 avril, correspondance de Kichinef; extraits d'une lettre particulière; détails
 la version de Bessarabetz; appréciations du
-Drapeau ; récit du journal Voskhod, numéro du
+Drapeau; récit du journal Voskhod, numéro du
 24 avril-; mai, interdit par une ordonnance du
-ministre de l'intérieur en date du 18 avril, dont ;
-la teneur ; passages de l'article incriminé; inter- |
+ministre de l'intérieur en date du 18 avril, dont;
+la teneur; passages de l'article incriminé; inter-
 diction du Pravo; extraits de lettres particu-
 lières, citées par Roubanovitch dans Pages
 Ordre du jour de la plupart des grands écrivains et publicistes russes; télégrammes des
 chrétiens de Moscou au maire de Kichinef;
 extrait d'une lettre adressée par Tolstoï à un
 israélite; opinion de Maxime Gorki; à Paris
-réunion du 15 mai, ordre du jour ; à Bruxelles,
-meeting ; appel du Bureau socialiste international; discours de M. Roosevelt.
-Les explications du gouvernement russe. . . .
+réunion du 15 mai, ordre du jour; à Bruxelles,
+meeting; appel du Bureau socialiste international; discours de M. Roosevelt.
+Les explications du gouvernement russe....
 Circulaire officielle adressée par M. de Plehwe
-5 aux gouverneurs, maires et chefs de police ; plu116
+5 aux gouverneurs, maires et chefs de police; plu116
 
-sieurs inexactitudes de cette circulaire ; sur la
+sieurs inexactitudes de cette circulaire; sur la
 situation économique des juifs, le Peterbourgskia
-Viedomosti ; sur les responsabilités, Voskhod ;
+Viedomosti; sur les responsabilités, Voskhod;
 sur l'inaction de la police et des autorités,
-d'après le Times du 18 mai, circulaire confidentielle que M. de Plehwe aurait adressée au gouverneur de Kichinef; les juifs de Doubossary ;
+d'après le Times du 18 mai, circulaire confidentielle que M. de Plehwe aurait adressée au gouverneur de Kichinef; les juifs de Doubossary;
 sur l'attitude de la police, extraits d'une lettre
 NrÉtaies des' troubles; 7. "Tr ".1#070
 L'accusation de meurtre rituel; résumé très
-sommaire de la question; Thomas de Cantimprey ; accusations contre les chrétiens dans l'antiquité ; apologie des chrétiens; exemples d'accusations politiques; interdiction biblique de
-consommer le sang; interdiction talmudique ;
+sommaire de la question; Thomas de Cantimprey; accusations contre les chrétiens dans l'antiquité; apologie des chrétiens; exemples d'accusations politiques; interdiction biblique de
+consommer le sang; interdiction talmudique;
 Les causes de l'antisémitisme en Russie. — La
-situation juridique des juifs . . . . . . . . .
-< Causes générales et économiques. — Conflit
-résumé très sommaire ; la rivalité mercantile et
+situation juridique des juifs.........
+Causes générales et économiques. — Conflit
+résumé très sommaire; la rivalité mercantile et
 concurrence des bas salaires; misère du prolé-
-ê Ytariat juif ; les juifs de Berditchef, la Gazette de
+ê Ytariat juif; les juifs de Berditchef, la Gazette de
 Causes particulières et administratives. —
 Situation juridique des juifs de Russie. — Les Lois
-de mai; le Territoire ; les artisans ; les habiles ;
+de mai; le Territoire; les artisans; les habiles;
 villes, bourgades, villages; une circulaire du
-préfet de police de Kief; exécutions ; les écoles ;
+préfet de police de Kief; exécutions; les écoles;
 professions libérales; interdictions; les juifs et
-l'agriculture ; essais de colonisation ; une attestation officielle; commerce ; interdiction de circuler ; impôts spéciaux ; résumé ; conclusion.
+l'agriculture; essais de colonisation; une attestation officielle; commerce; interdiction de circuler; impôts spéciaux; résumé; conclusion.

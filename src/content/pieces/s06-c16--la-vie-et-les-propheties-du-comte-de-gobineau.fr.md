@@ -15,7 +15,7 @@ paraissant vingt fois par an
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
 grand nombre de cahiers de lettres, — nouvelles,
-romans, drames, dialogues, poèmes et contes; — un st
+romans, drames, dialogues, poèmes et contes; — un
 grand nombre de cahiers d'histoire et de philosophie;
 et ces cahiers de lettres, d'histoire et de philosophie
 étaient si considérables que nous ne pouvons pas songer
@@ -30,24 +30,23 @@ analytique sommaire, 1900-1904, de nos cinq premières séries À
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une imag'e en bref, un raccourci,
 une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries ; tout y est classé
-dans l'ordre ; il suffit de le lire pour trouver, à leur
+rieures et de nos cinq premières séries; tout y est classé
+dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 
-Ce catalogue, in-18 grand jésus, forme un cahier
+Ce catalogue, grand jésus, forme un cahier
 très épais de XI1+-/08 pages très denses, marqué cinq
-francs ; ce cahier comptait comme premier cahier de la
+francs; ce cahier comptait comme premier cahier de la
 sixième série et nos abonnés l'ont reçu à sa date, le
 
 , 2 octobre 190%, comme premier cahier de la sixième
-série ; toute personne qui s'abonne à la sixième série le
+série; toute personne qui s'abonne à la sixième série le
 reçoit, par le fait méme de son abonnement, en tête de
-la série ; nous l'envoyons contre un mandat de cinq francs
+la série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
 la vie et les prophéties
 du comte de Gobineau
-44
 
 Nous adressons nos respectueux remerciements à
 madame la comtesse de la Tour, qui a bien voulu nous
@@ -73,43 +72,43 @@ La morale aristocratique du comte de Gohbineau
 Au mois de juillet 1902, le hasard me fit ouvrir un
 numéro de la Gazette de Francfort. Ce journal
 contenait une étude critique de M. le professeur
-Kretzer, de Francfort-sur-le-Mein. Elle était intitulée : « Gobineau, Nietzsche, Chamberlain.. » (1)
+Kretzer, de Francfort-sur-le-Mein. Elle était intitulée: « Gobineau, Nietzsche, Chamberlain.. » (1)
 
 C'est la première fois, je l'avoue, que je rencontrais le nom de Gobineau sur ma route. Je lus cet
 article, où je reconnus les preuves de l'action ignorée,
 
-| mais certaine, que la personne et la pensée de
+mais certaine, que la personne et la pensée de
 
 Gobineau ont exercée, voici près de trente ans,
 
-| sur l'évolution intellectuelle de Frédéric Nietzsche,
+sur l'évolution intellectuelle de Frédéric Nietzsche,
 
-| sur la formation de sa dernière et véritable philo-
+sur la formation de sa dernière et véritable philo-
 
-\ sophie. M. Kretzer annonçait la publication d'un
+sophie. M. Kretzer annonçait la publication d'un
 
-\ (:) Frankfurter Zeitung, 22 juillet 1902. — Ce Chamberlain n'est
+Frankfurter Zeitung, 22 juillet 1902. — Ce Chamberlain n'est
 
 1 point le politique anglais, mais l'écrivain wagnérien et impéria-
 
-à ms auteur du livre célèbre, Die Grundlagen des XIXe Jahrhun-
+à auteur du livre célèbre, Die Grundlagen des XIXe Jahrhun-
 
 la vie et les prophéties du comte de Gobineau
 
 volume entier sur la vie et l'œuvre de Gobineau. Je
 lui écrivis, et il voulut bien me faire envoyer son
-livre. (1) L'ayant lu, ma curiosité redoubla : je me
+livre. (1) L'ayant lu, ma curiosité redoubla: je me
 sentais conquis d'avance à l'originalité créatrice du
 comte de Gobineau. Je commençai à m'enquérir sur
 l'homme et à lire ses livres. Cest ce que j'ai fait
 
 A la vérité, ce n'était pas un pur hasard si ce nom
 de Gobineau m'était ainsi révélé par une publication
-allemande. M. de Gobineau fut un Français : un
+allemande. M. de Gobineau fut un Français: un
 diplomate, un homme de pensée. un homme de
 science, un artiste et un homme d'esprit. Mais, par
 une fortune ironique, ce Français très aristocrate,
-mais aussi très paradoxal, n'a pas su se gagner en
+mais aussi très paradoxal, n'a pas se gagner en
 France ceux de qui dépendaient, de son vivant, sa
 carrière d'ambassadeur et sa réputation d'homme de
 lettres. C'est par l'exil chez les peuples du Nord que
@@ -122,33 +121,33 @@ que Henri Heïine fut longtemps regardé dans notre
 pays comme une manière de compatriote par la
 plupart des Français, qui se sentaient ses congénè-
 res, de même les Allemands, tenant Gobineau pour
-un grand Germain « déraciné », ont adopté sa
+un grand Germain « déraciné ont adopté sa
 mémoire, et organisé autour d'elle ce culte intransigeant et méticuleux, qui est chez eux l'offrande
 
 . Voici déjà dix années qu'une Association-Gobineau, — la Gobineau-Vereinigung, — s'est constituée dans les pays de langue allemande. Elle
 fonctionne sous la direction de M. Ludwig Schemann, professeur à Fribourg-en-Brisgau, (1) et sous
-le patronage de deux wagnériens fort connus : le
+le patronage de deux wagnériens fort connus: le
 prince Philippe d'Eulenburg et le baron Hans de
 Wolzogen. A l'heure présente, la Gobineau-Vereinigung compte environ deux cents membres.
 M. Schemann nomme les plus notoires. Parmi ceux
 
-| qu'il nomme, (2) je ne relève que deux Français :
+qu'il nomme, (2) je ne relève que deux Français:
 MM. Édouard Schuré et Paul Bourget.
-X (1) On ne saurait trop admirer l'activité dépensée depuis dix
-| ans par M. Schemann, son dévouement à la tâche où il voit la raiRe. son d'être, le but suprême de sa propre vie. Il mest pas de
+(1) On ne saurait trop admirer l'activité dépensée depuis dix
+ans par M. Schemann, son dévouement à la tâche où il voit la raiRe. son d'être, le but suprême de sa propre vie. Il mest pas de
 ) fatigues, de démarches, de voyages, qu'il ait épargnés pour vaincre
 À Pindifférence -ou le scepticisme contemporains. La Gobineau- Ver-
 ï einigung, fondée par lui en 1854, a déjà réédité en France plusieurs
-4 livres de Gobineau ; elle en rééditera d'autres. En Allemagne, les
+4 livres de Gobineau; elle en rééditera d'autres. En Allemagne, les
 4 belles traductions de M. Schemann, accompagnées de préfaces
-} enthousiastes et intelligentes, ont assis la réputation de lécrivain
+enthousiastes et intelligentes, ont assis la réputation de lécrivain
 français. Et si, dans son propre pays, le nom de Gobineau échappe
 
 à l'oubli, sil parvient à naître à la gloire, c'est à M. Schemann
 
 qu'on le devra.
 
-(2) Reoue des Deux-Mondes, 15 octobre 1go2.
+(2) Reoue des Deux-Mondes, 15 octobre
 
 la vie et les prophéties du comte de Gobineau
 Maïs je sais d'autres connaisseurs en gobinisme
@@ -157,10 +156,10 @@ parmi nos compatriotes. Il y a M. Jacques de Boïs-
 
 jolin, auteur des Peuples de la France, travail excel-
 
-lent d' « ethnographie nationale » (1); M. Vacher de
-Lapouge, auteur de l'Aryen (2) et des Sélections |
+lent « ethnographie nationale » (1); M. Vacher de
+Lapouge, auteur de l'Aryen (2) et des Sélections
 sociales (3); le comte de Leusse, auteur des Études
-d'histoire ethnique depuis les temps préhistoriques jusqu'au commencement de la Renaissance (4); M. Jean Finot, directeur de la Repue ;
+d'histoire ethnique depuis les temps préhistoriques jusqu'au commencement de la Renaissance (4); M. Jean Finot, directeur de la Repue;
 
 . M. Cheramy, le spirituel avoué parisien, dont le
 dilettantisme, si j'en crois Leurs Figures, de Maurice Barrès, se partage entre M. de Stendhal et le
@@ -168,31 +167,31 @@ comte de Gobineau. Il y a le comte Joseph Primoli.
 
 Il y avait le comte de Basterot, ami et biographe de
 Gobineau, mort en Irlande depuis deux mois. Il y a
-eu M. Armand Hayem, l'un des premiers en date
+M. Armand Hayem, l'un des premiers en date
 parmi les fervents de Gobineau en France, comme
 bien voulu me communiquer madame Jules Comte.
 
 Il y a ceux aussi, — du moins, c'est une conjecture dont je demande la permission d'ajourner les
 preuves, — qui, selon toute apparence, ne peuvent
 
-{4) Strasbourg, F. Staat, 1899. Deux volumes in-8. — En soustitre : La Démocratie voilà l'Ennemi.
+{4) Strasbourg, F. Staat, 1899. Deux volumes — En soustitre: La Démocratie voilà l'Ennemi.
 
 ignorer entièrement ce Gobineau, dont ils sont
-comme imprégnés ; ceux qui paraissent avoir accommodé sa pensée à leur usage et contribuent à
-répandre incognito le « gobinisme », ou certains
+comme imprégnés; ceux qui paraissent avoir accommodé sa pensée à leur usage et contribuent à
+répandre incognito le « gobinisme ou certains
 éléments du gobinisme, en France; ceux qui semblent s'être approprié jusqu'aux tours de style, au
 vocabulaire et aux ties de feu le comte de Gobineau,
 mais en évitant, avec un soin déconcertant, de nous
 faire connaître à quelle source puissante et cachée
 ils s'alimentent et s'inspirent. Ceux-là, il est presque
 superflu que je les désigne plus positivement sur
-l'heure : j'aurai bien assez à m'occuper d'eux dans
+l'heure: j'aurai bien assez à m'occuper d'eux dans
 
 Pourtant, rien ne s'oppose à ce que j'annonce dès
 maintenant mon dessein, qui est d'étudier la parenté
 du « gobinisme » et des doctrines nationalistes con-
 
-- temporaines. (1) — Le « nationalisme intégral »,
+- temporaines. (1) — Le « nationalisme intégral
 selon moi, c'est exactement du gobinisme extravasé.
 
 Enfin, il y a ceux dont j'imite l'exemple, et qui
@@ -226,9 +225,9 @@ si la mémoire et l'œuvre entière du comte de Gobi-
 
 (1) Plon, 1903. — Ce volume est le premier d'une série consacrée
 par M. Ernest Seillière à La Philosophie de l'Impérialisme. Le
-second volume a pour titre Apollôn ou Dionysos ; étude sur Frédé-
-ric Nietzsche et l'utilitarisme impérialiste. — Sur la parenté de Gobineau et de Chamberlain, on lira avec profit les articles de '
-M. Seillière sur La Religion de l'Impérialisme (Revue des DeuxMondes, 1* et 15 décembre 1903 et 1* janvier 1904) et sur La Mission de l'empereur Guillaume II (Journal des Débats, 17 août 1904).
+second volume a pour titre Apollôn ou Dionysos; étude sur Frédé-
+ric Nietzsche et l'utilitarisme impérialiste. — Sur la parenté de Gobineau et de Chamberlain, on lira avec profit les articles de
+M. Seillière sur La Religion de l'Impérialisme (Revue des DeuxMondes, 1* et 15 décembre 1903 et 1* janvier 1904) et sur La Mission de l'empereur Guillaume (Journal des Débats, 17 août 1904).
 
 (3) Précurseurs et Révoltés, Perrin, 1904.
 
@@ -249,11 +248,11 @@ affaire à un original inconsistant et fantasque. Nul
 ne le prenait au sérieux. Hier encore, un grand
 écrivain, — le plus intelligent et le moins aveugle
 qu'il soit permis d'imaginer, car c'est M. Anatole
-France, — me faisait l'honneur de me dire : « Vous
-allez, paraît-il, nous parler de Gobineau ? Je l'ai
+France, — me faisait l'honneur de me dire: « Vous
+allez, paraît-il, nous parler de Gobineau? Je l'ai
 connu. Il venait chez la princesse Mathilde. C'était
-un grand diable, parfaitement simple et très spirituel. On savait qu'il écrivait des livres, mais personne ne les avait lus. Alors, il avait du génie ?
-Comme c'est curieux ! »
+un grand diable, parfaitement simple et très spirituel. On savait qu'il écrivait des livres, mais personne ne les avait lus. Alors, il avait du génie?
+Comme c'est curieux! »
 
 la vie et les prophéties du comte de Gobineau
 
@@ -283,18 +282,18 @@ d'une actualité, dont elle était dépourvue pour les
 contemporains du penseur. Et en ce sens, on voit
 bien pourquoi il nous est aisé d'en saisir le prix et
 d'en mesurer la portée, à nous autres gens de 1904,
-mieux que n'ont pu faire les propres compagnons de
+mieux que n'ont faire les propres compagnons de
 
 vie de M. de Gobineau, entre 1850 et 1580. C'est que
 nous retrouvons en elle, non seulement tout ce
 qu'elle enfermaït et ce qu'elle délimitait, mais tout
-ce qu'elle a engendré, suscité ou pressenti. Car Gobineau fut essentiellement un PRÉcURsEUR :ilne fut  ?
+ce qu'elle a engendré, suscité ou pressenti. Car Gobineau fut essentiellement un PRÉcURsEUR:ilne fut?
 peut-être rien de plus; maïs aussi il ne fut rien de
-moins. Ce fut sa faiblesse, et cela demeure son originalité. Dans l'ordre de l'intelligence, d'autres créateurs ont eu le pouvoir de propager leurs aflirma-
+moins. Ce fut sa faiblesse, et cela demeure son originalité. Dans l'ordre de l'intelligence, d'autres créateurs ont le pouvoir de propager leurs aflirma-
 tions spirituelles et de les faire adopter autour d'eux,
-ou tout au moins d'imposer, de leur vivant, la controverse sur elles : c'étaient des génies plus complets. Pour Gobineau, s'il ne fut pas l'homme de
+ou tout au moins d'imposer, de leur vivant, la controverse sur elles: c'étaient des génies plus complets. Pour Gobineau, s'il ne fut pas l'homme de
 son temps, c'est qu'il l'a devancé, mais sans le dominer. Trop de dons lui manquaient pour atteindre
-la foule et lui proposer sa philosophie : il avait plus
+la foule et lui proposer sa philosophie: il avait plus
 de fougue et de luxe d'expression que d'habileté
 professionnelle, plus de poésie que d'équilibre, plus
 d'invention concentrée et tourbillonnante que de
@@ -318,27 +317,27 @@ redoute d'être incomplet, si on entreprend de les
 énumérer toutes. En morale, elle a contribué à
 éveiller le génie de Nietzsche. En art, elle a fourni
 certaines directions théoriques aux dernières méditations de Wagner. En histoire, on a prétendu
-(à tort selon moi) que l'œuvre maîtresse de Gobineau avait influé sur certains travaux de Renan et de
+tort selon moi) que l'œuvre maîtresse de Gobineau avait influé sur certains travaux de Renan et de
 Taine. (1) En ethnologie, elle commande encore aux
 recherches de divers groupes d'anthropologistes. (2)
 En politique, j'espère vous montrer qu'elle contient, — en la dépassant, puis en y contredisant et en
 l'anéantissant, — toute la doctrine du nationalisme
 contemporain. Et en religion même, comment ou-
 
-() Voir Septième Causerie.
+Voir Septième Causerie.
 
-(2) J'ai déjà eu à signaler les travaux de M. Jacques de Boïisjolin,
+(2) J'ai déjà à signaler les travaux de M. Jacques de Boïisjolin,
 gobinien démocrate et humanitaire, et de M. Vacher de Lapouge,
 gobinien aryaniste et antisémite. En Allemagne, le célèbre Ammon est un disciple de Gobineau, et la Politisch-Anthropologische
 Revue, de Leipzig, peut être regardée comme appliquant la
 méthode gobinienne aux problèmes historiques et sociologiques.
-Chez nous, au contraire, en ces toutes dernières années, d'éminents anthropologistes ignoraient jusqu'au nom de Gobineau ;
+Chez nous, au contraire, en ces toutes dernières années, d'éminents anthropologistes ignoraient jusqu'au nom de Gobineau;
 il les étonnait. (Voir Manouvrier, l'indice céphalique et la pseudo-,
 sociologie, dans la Revue de l'École d'anthropologie de Paris, août
 
 blier la curiosité de Gobineau envers la talismanique
 orientale et sa sympathie pour ce « bäbisme » persan, qui s'épanouit présentement dans une manière
-de renouveau ?
+de renouveau?
 
 Lorsqu'il s'est agi pour moi de construire l'angle
 sous lequel je devais vous prier de considérer avec
@@ -354,7 +353,7 @@ vue d'un exposé d'ensemble. Partout, elle se refuse,
 elle échappe, elle déborde, elle envahit et elle inonde
 audacieux qui tente de l'emprisonner. J'ai pensé
 qu'il était honnête de vous en avertir, et de vous
-informer par là que le plan adopté par moi est forcément artificiel, à quelque degré : il répond surtout
+informer par que le plan adopté par moi est forcément artificiel, à quelque degré: il répond surtout
 aux nécessités d'un développement critique; mais
 rien ne supplée à la connaissance directe des livres
 de Gobineau.
@@ -373,7 +372,7 @@ projet d'étudier la « morale aristocratique du comte
 de Gobineau ».
 
 C'est que les préoccupations d'ordre éthique forment, à mon sens, la dominante dans l'œuvre de
-Gobineau. Elles en sont comme l « armature ».
+Gobineau. Elles en sont comme « armature ».
 Seules, elles y mettent cette unité d'inspiration qui
 sera notre guide un peu factice, mais indispensable.
 
@@ -392,7 +391,7 @@ ressé, le plus indépendant, le plus sincère, et aussi
 le plus paradoxal et le plus exceptionnel des aristocrates.
 
 Toute sa vie, l'effort permanent de ses méditations
-et de ses travaux s'est concentré sur ce problème :
+et de ses travaux s'est concentré sur ce problème:
 constituer scientifiquement et philosophiquement la
 morale de l'élite. Or, cette élite, il fallait bien la
 définir et mesurer sa notion, pour légiférer sur sa
@@ -406,7 +405,7 @@ anticiper sur l'ordre de ces causeries que d'ébaucher
 à présent la critique dessystèmes d'idées, simultanés
 ou successifs, mais toujours fort compliqués, qui
 composent ce que j'appelle la « morale » de Gobineau. Il me suflira de justifier très provisoirement
-l'épithète d' « aristocratique » que je viens d'attribuer à cette morale, et de vous faire entrevoir
+l'épithète « aristocratique » que je viens d'attribuer à cette morale, et de vous faire entrevoir
 l'harmonie et les phases du développement spirituel
 de Gobineau, — harmonie et phases auxquelles je
 tenterai de faire correspondre les principales divisions de ce cours.
@@ -414,23 +413,23 @@ tenterai de faire correspondre les principales divisions de ce cours.
 J'aurai d'abord à vous conter la vie du comte de
 
 la vie et les prophéties du comte de Gobineau
-| En effet, je ne puis m'empêcher de croire que
-| les créations de l'esprit, lorsqu'elles sont em-
-| preintes d'originalité, comme c'est ici le cas, sont
-| bien plutôt l'expression du tempérament secret que
-| de la froide raison du créateur. Et ce tempérament
-| nous devient bien plus intelligible, après que notre
+En effet, je ne puis m'empêcher de croire que
+les créations de l'esprit, lorsqu'elles sont em-
+preintes d'originalité, comme c'est ici le cas, sont
+bien plutôt l'expression du tempérament secret que
+de la froide raison du créateur. Et ce tempérament
+nous devient bien plus intelligible, après que notre
 curiosité s'est portée sur sa vie. Il n'est jamais d'une
 À très heureuse méthode critique d'isoler l'œuvre de
 l'homme. Mais que cette méthode serait mauvaise,
 lorsqu'il s'agit d'un Gobineau! Je sais une lettre
 adressée jadis à M. Hayem par la comtesse de la
 Tour, (1) qui est une admiratrice éclairée et fut une
-__amie excellente de Gobineau : « Lisez-le le plus pos-
+__amie excellente de Gobineau: « Lisez-le le plus pos-
 ! sible, disait madame de la Tour, car jamais homme
-| n'a mis autant de lui dans ses œuvres, et il est
-| impossible de le connaître si on n'est pas pénétré de
-| tout ce qu'il a écrit. » Réciproquement, je dirai qu'il
+n'a mis autant de lui dans ses œuvres, et il est
+impossible de le connaître si on n'est pas pénétré de
+tout ce qu'il a écrit. » Réciproquement, je dirai qu'il
 est pas possible de comprendre la philosophie de
 Gobineau, si on ne le connaît pas lui-même. Et nous
 serons aidés à le connaître par le spectacle de sa
@@ -438,9 +437,9 @@ serons aidés à le connaître par le spectacle de sa
 Cette vie fut errante, mais elle ne fut pas très
 aventureuse. Et je pourrais en mener d'un trait le
 récit, depuis la naissance du comte de Gobineau, en
-1816, jusqu'à sa mort, en 1882 : après quoi, j'aborde-
+1816, jusqu'à sa mort, en 1882: après quoi, j'aborde-
 
-G) Lettre de Carlsbad, 28 septembre 1883.
+Lettre de Carlsbad, 28 septembre 1883.
 
 rais séparément, et comme abstraitement, l'examen
 de sa philosophie. Maïs il me paraît préférable de
@@ -453,9 +452,9 @@ C'est ainsi que j'aurai grand soin de vous présenter les hérédités, les ant�
 l'éducation, le caractère, et tout ce que nous savons
 de la jeunesse de Gobineau, avant d'entreprendre
 avec vous l'étude de son premier grand ouvrage, et
-qui demeure vraiment son ouvrage capital : je veux
+qui demeure vraiment son ouvrage capital: je veux
 dire l'Essai sur l'inégalité des races humaines.
-C'est là que nous suivrons son effort pour constituer
+C'est que nous suivrons son effort pour constituer
 à-dire pour identifier la notion de l'élite avec la
 notion des races supérieures, ou (races de maîtres ».
 
@@ -514,9 +513,9 @@ bénies, frôla des races bigarrées, où il sut pourtant
 reconnaître et priser des individus de choix. En
 
 : même temps que sa sensibilité s'affinait et s'enrichissait d'émotions esthétiques et morales pour lesquelles il était doué, mais qu'il n'avait pas encore
-eu occasion de ressentir et de s'approprier, son in-
+occasion de ressentir et de s'approprier, son in-
 
-. telligence s'ouvrait : il comprenait peu à peu que,
+. telligence s'ouvrait: il comprenait peu à peu que,
 
 la vie et les prophéties du comte de Gobineau
 dans le développement de l'histoire du monde,
@@ -530,11 +529,11 @@ notre siècle, il renonçait à extraire de la mine ethnique, mais dont il avait
 impénitent qu'il était ne pouvait se passer, il se mit
 en quête de la découvrir parmi les individus et de
 substituer, ou plutôt de superposer, à sa « hiérarchie
-ethnique », une HIÉRARCHIE INDIVIDUELLE. Et cette
+ethnique une HIÉRARCHIE INDIVIDUELLE. Et cette
 nouvelle hiérarchie, pour être plus sûr qu'elle existait, il l'inventa. À
 Ce tournant de son esprit le mena tout naturellement à changer sa forme littéraire. Jusque-là, —
 car je néglige volontairement quelques écrits secondaires et dépourvus de signification véritable, —
-qu'était-il ? Un historien. Il avait commencé. par
+qu'était-il? Un historien. Il avait commencé. par
 construire sa philosophie de l'histoire et par l'amasser dans l'Æssai sur l'inégalité des races humaines.
 Plus tard, il prétendit illustrer cette philosophie, en
 l'appliquant à l'histoire concrète d'un peuple aryen,
@@ -554,7 +553,7 @@ de l'élite à la banqueroute de tant de races à travers
 l'histoire; du jour où il espéra que des individus
 choisis, même s'ils se trouvaient appartenir à des
 filiations variées et à des mixtures composites, sauraient constituer la noblesse nouvelle, — ce jour-là,
-l'histoire ne pouvait plus lui suflire, ni le satisfaire :
+l'histoire ne pouvait plus lui suflire, ni le satisfaire:
 il lui fallait s'annexer la littérature.
 
 Et de ce jour, en effet, Gobineau, sans abdiquer
@@ -565,9 +564,9 @@ homme de lettres.
 
 Certes, il se préoccupait toujours de se rester
 fidèle à lui-même et à sa doctrine, de maintenir
-intégralement le code de sa & hiérarchie ethnique »
+intégralement le code de sa hiérarchie ethnique »
 et de le combiner seulement avec le code complé-
-mentaire de sa & hiérarchie individuelle », mais
+mentaire de sa hiérarchie individuelle mais
 
 la vie et les prophélies du comte de Gobineau
 sans abroger l'un par l'autre. C'est ainsi que, dans
@@ -587,9 +586,9 @@ des Pléiades, en 1854, des Nouvelles asiatiques, en
 1876, et de la Renaissance, en 1877, — cet aristocra-
 
 _tisme tend à devenir bien plus philosophique que
-scientifique, et bien moins historique que moral. :
+scientifique, et bien moins historique que moral.:
 Même dans ceux de ses livres intermédiaires qui
-pe sont pas des œuvres d'imagination, — tels que
+sont pas des œuvres d'imagination, — tels que
 
 (1) Voir Meuvième Causerie.
 
@@ -603,9 +602,9 @@ s'agit pour lui de définir par des mots les catégories
 de valeurs humaines où il distribue de nos jours les
 êtres individuels, il ne trouve rien de mieux que
 de nous classer ainsi, tant que nous sommes, nous
-autres hommes : en premier lieu, les Fils de rois ;
-en second lieu, les /Zmbéciles ; en troisième, les
-Drôles; ei quatrièmement, les Prutes….
+autres hommes: en premier lieu, les Fils de rois;
+en second lieu, les /Zmbéciles; en troisième, les
+Drôles; quatrièmement, les Prutes….
 
 Brutes, drôles, imbéciles, fils de rois, c'est pour
 lui toute l'humanité, toute la symbolique de notre
@@ -628,13 +627,13 @@ En 1876, M. de Gobineau était ministre de France
 à Stockholm. Au mois de septembre, un grand
 voyage le conduisit en Russie, à Constantinople et
 en Grèce, où il accompagnait son ami dom Pedro,
-empereur du Brésil ; il revint par Rome. Wagner
+empereur du Brésil; il revint par Rome. Wagner
 s'y reposait alors des soucis et des fatigues que
 venaient de lui donner l'inauguration du théâtre
 de Bayreuth et les premières représentations inté-
 grales du Ring. Le comte de Gobineau vint s'offrir
 à transmettre les commissions dont Wagner voudrait le charger pour une de leurs amies communes,
-qui demeurait à Berlin. (x) Ce ne fut là qu'une visite
+qui demeurait à Berlin. (x) Ce ne fut qu'une visite
 de curiosité et de courtoisie, un premier contact.
 Mais quatre ans plus tard, en 1880, M. de Gobineau,
 qui s'était retiré en Italie, rencontra encore Wagner
@@ -648,18 +647,18 @@ Pascal, c'est qu'il l'avait déjà érouvé. Mais Wagner
 ignorait entièrement la mystérieuse originalité de
 son partenaire. Elle lui fut soudain révélée par une
 étincelle. On était venu à parler de Don Quichotte.
-M. de Gobineau lança cette sentence péremptoire :
-« Cervantès a commis là une mauvaise action ! »
+M. de Gobineau lança cette sentence péremptoire:
+« Cervantès a commis une mauvaise action! »
 Wagner stupéfait crut avoir affaire à un imbécile,
 et demanda à ce Français léger s'il pouvait à ce point
 méconnaître la « tragédie » qui est dans cette œuvre. (1) Mais Gobineau, sans se troubler, persévéra
 dans son paradoxe et prouva son dire avec ce luxe
 d'arguments, ce feu spirituel, qui ont enchanté et
 ébloui tous ceux qui ont souvenir de l'avoir entendu.
-Nous imaginons sans trop de peine ce qu'il sut assurément mieux dire : « Don Quichotte fut un fils de
+Nous imaginons sans trop de peine ce qu'il sut assurément mieux dire: « Don Quichotte fut un fils de
 roi. Done, c'est une bassesse de drôle, de démocrate
 et d'esclave, que d'avoir fait rire aux dépens de cet
-homme de cœur et d'honneur ! »
+homme de cœur et d'honneur! »
 
 Wagner fut séduit, surpris, intéressé, et se mit à
 lire avec emportement les livres de ce causeur
@@ -667,8 +666,6 @@ extraordinaire. Or, il se trouvait justement que ces
 livres embrassaient par leurs sujets tous les problèmes qui, en ce temps-là, importaient le plus à
 Wagner. Il médita sur Gobineau, et bénéficia de
 cette méditation. M. de Gobineau fut invité par lui
-
-25
 
 la vie et les prophéties du comte de Gobineau
 à venir à Bayreuth, et devint à deux reprises l'hôte
@@ -681,10 +678,10 @@ Blätter. (1) À diverses reprises, cette revue de
 VAssociation- Wagner a publié mainte analyse et
 maint commentaire des œuvres de Gobineau; elle
 lui a consacré, à sa mort, une notice nécrologique
-qui n'eut point son équivalent en France. (2) Plus |
-récemment, le prince Philippe d'Eulenburg (sous |
+qui n'eut point son équivalent en France. (2) Plus
+récemment, le prince Philippe d'Eulenburg (sous
 le pseudonyme de Philipp von Hertefeld) y a publié
-ses souvenirs personnels sur le comte de Gobi- ;
+ses souvenirs personnels sur le comte de Gobi-;
 neau, et les lettres qu'il reçut de son ami. (3) Tous
 les wagnériens de marque, en Allemagne, possèdent une tradition gobinienne et sont voués au
 culte de Gobineau. Je vous ai dit que le prince
@@ -702,13 +699,13 @@ devenir pour moi. Mais quand je me reporte aujourd'hui à
 ces heures sacrées, je ne puis les interpréter autrement que
 voici. Il semble que Wagner m'ait conduit vers ce solitaire,
 abattu loin de tout flot humain avec son drapeau de vérité,
-et m'ait dit : « Sauve-le! » (x)
+et m'ait dit: « Sauve-le! » (x)
 
 Je viens d'évoquer le commerce intellectuel de
 M. de Gobineau et de Richard Wagner. Il est moins
 aisé de retracer l'histoire de son influence sur Fré-
 
--  déric Nietzsche. C'est qu'ici, — et c'est grand dommage, comme vous allez voir, — les documents
+- déric Nietzsche. C'est qu'ici, — et c'est grand dommage, comme vous allez voir, — les documents
 positifs ne sont pas encore très nombreux.
 
 L'état de la question a été parfaitement reconnu
@@ -720,14 +717,14 @@ de posséder Gobineau, pour être frappé de leur
 accord sur la position des problèmes et le choix des
 
 ( L. Schemann, Den Manen Richard Wagners, en dédicace au
-tome IV de sa traduction allemande de lÆssai sur l'inégalité des
+tome de sa traduction allemande de lÆssai sur l'inégalité des
 
 la vie et les prophéties du comte de Gobineau
 solutions philosophiques. A cet égard, M. Kretzer
-concentre d'abord sa pensée en disant :
+concentre d'abord sa pensée en disant:
 
 Les thèses fondamentales des derniers livres de Nietzsche
-sont la distinction de la « morale des Maîtres » et de la « morale des Eselaves », et la doctrine de l''Uebermensch. — Or,
+sont la distinction de la « morale des Maîtres » et de la « morale des Eselaves et la doctrine de l''Uebermensch. — Or,
 ces deux pôles de la philosophie de Nietzsche ne procèdent
 point de Schopenhauer, ni du positivisme. Gobineau est le
 courant profond qui fait ondoyer, autour de Nietzsche, la
@@ -735,20 +732,20 @@ vie spirituelle contemporaine.
 
 Puis, M. Kretzer énumère les points de contact,
 et ils sont nombreux. Théorie de l'inégalité. Théorie
-gobinienne de la « dégénération », et, chez Nietzsche,
+gobinienne de la « dégénération et, chez Nietzsche,
 de la « décadence ». Théorie du « renversement des
 valeurs morales ». Théorie de la « volonté de puissance ».… Nous reviendrons à loisir sur ces éléments
 de comparaison, lorsqu'à la familiarité de Nietzsche
 nous aurons ajouté la familiarité de Gobineau. La
 parenté philosophique et morale de Gobineau et de
 Nietzsche est si remarquable, si évidente, que
-M. Kretzer conclut, après l'avoir dépeinte :
+M. Kretzer conclut, après l'avoir dépeinte:
 
 A priori, quiconque connaît les deux écrivains doit postuler entre eux un lien de fait.
 
 Et ce lien existe, ajoute M. le professeur
 
-À vrai dire, Nietzsche, — et c'est au moins singulier, s'il a lu Gobineau et s'il s'en est inspiré, — n'a
+À vrai dire, Nietzsche, — et c'est au moins singulier, s'il a Gobineau et s'il s'en est inspiré, — n'a
 
 nommé Gobineau dans aucun de ses ouvrages. En
 outre, on ne trouve point les livres de Gobineau
@@ -760,29 +757,27 @@ M. Kretzer n'a-t-il point considéré l'absence des
 œuvres de Gobineau, à Weimar, comme une preuve
 que Nietzsche ne les eût point lues. Il est allé plus
 avant. Il a consulté madame Elisabeth FôrsterNietzsche, sœur du philosophe. Elle n'a fait aucune
-difficulté de lui répondre sur-le-champ : € Certainement, mon frère a connu les écrits de Gobineau. Et
+difficulté de lui répondre sur-le-champ: Certainement, mon frère a connu les écrits de Gobineau. Et
 comme il l'a vénéré! » Madame Fôrster se souvenait
-d'avoir lu à haute voix l'EÆssai sur l'inégalité des
+d'avoir à haute voix l'EÆssai sur l'inégalité des
 races à son frère, à Bâle, pendant l'un des deux
 hivers 1875-56 ou 1877-78. Elle se souvenait aussi
 qu'après la mort de Gobineau, comme elle déplorait
-un jour la vie nomade de son frère, ses fréquentations d'hommes vulgaires, Nietzsche lui répondit :
-« Mais qui donc dois-je fréquenter ? » Et comme
+un jour la vie nomade de son frère, ses fréquentations d'hommes vulgaires, Nietzsche lui répondit:
+« Mais qui donc dois-je fréquenter? » Et comme
 elle lui rappelait Gobineau, Nietzsche reprit avec
-tristesse : € Oui, mais il n'est plus, et il ya peu
-d'hommes tels que lui ! »
+tristesse: Oui, mais il n'est plus, et il peu
+d'hommes tels que lui! »
 
 De cette parole, il résulte assez clairement, ce
-semble, que Nietzsche n'aurait pas seulement lu Gobineau : il l'aurait connu en personne. — M. Kretzer
-
-29
+semble, que Nietzsche n'aurait pas seulement Gobineau: il l'aurait connu en personne. — M. Kretzer
 
 la vie et les prophéties du comte de Gobineau
 a tenu à contrôler encore les souvenirs de madame
 Fôrster. Il s'est adressé à M. le professeur Overbeck, qui fut jadis l'intime ami de Nietzsche à Bâle.
 M. Overbeck se souvient qu'au temps de ses séjours
 
-à Bâle, Nietzsche connaissait déjà Gobineauettenait !
+à Bâle, Nietzsche connaissait déjà Gobineauettenait!
 en très haute estime cet écrivain français, dont luimême entendit ainsi parler pour la première fois.
 Mais il ne peut dire si les impressions de Nietzsche
 se référaient à ses lectures, à des relations personnelles et suivies avec Gobineau, ou à des communications de Wagner. A cette dernière hypothèse,
@@ -813,7 +808,7 @@ tachaïit pas à des lois biologiques et sociologiques.
 
 C'est ce rattachement qu'il crut pouvoir opérer,
 
-( ») Dans le dernier volume de sa Vie de Frédéric Nietzsche
+( Dans le dernier volume de sa Vie de Frédéric Nietzsche
 (Leipzig, Naumann, 1904), madame Fôrster semble avoir un peu
 regretté ses premières déclarations, qui pourtant ne SIGN
 nuire à la gloire, ni amoindrir le génie de son frère. Mais, malgré}
@@ -825,7 +820,7 @@ leur avait été familier à tous deux.
 
 Comparer du reste ce que madame Fôrster avait précédemment
 écrit elle-même, dans son /ntroduction à la traduction allemande
-du livre de M. Henri Lichtenberger sur {a Philosophie de
+du livre de M. Henri Lichtenberger sur Philosophie de
 
 la vie et les prophélies du comte de Gobineau
 en ne considérant plus l'individu dans la race,
@@ -836,19 +831,19 @@ qui, dans le temps, est comme un raccourci de race,
 un milieu ethnique plus resserré et plus concret.
 Ainsi, c'est par une sorte de combinaison entre ses
 deux conceptions antérieures de la hiérarchie humaine, — hiérarchie ethnique, hiérarchie individuelle, — que Gobineau en est venu à concevoir
-cet ordre définitif : la hiérarchie familiale. — Pour |
+cet ordre définitif: la hiérarchie familiale. — Pour
 l'établir, il décida de « contempler le noyau de la
 famille aryane, la famille aryane, une famille ». (x)
 Et son choix fut vite fait parmi les familles dont la
 généalogie lui pourrait servir d'exemple pour sa dé-
-monstration théorique : il porta ce choix sur la
-famille dont il connaissait le mieux, ou dont il pensait le mieux connaître l'histoire, savoir sur sa |
+monstration théorique: il porta ce choix sur la
+famille dont il connaissait le mieux, ou dont il pensait le mieux connaître l'histoire, savoir sur sa
 propre famille. M. de Gobineau écrivit l'Histoire
 d'Ottar Jarl, pirate norvégien, conquérant du pays
-ouvrage où il est dit : &« Le livre actuel continue
+ouvrage où il est dit: Le livre actuel continue
 l'Essai sur l'inégalité des races et l'Histoire des
 
-() Ottar Jarl, I, 5.— Pour faciliter le contrôle dans les diverses
+Ottar Jarl, 5.— Pour faciliter le contrôle dans les diverses
 éditions des ouvrages de Gobineau, je prends pour règle de
 citer, non la pagination qui change, mais le livre et le chapitre,
 qui demeurent.
@@ -857,46 +852,44 @@ Perses, qui n'ont été faits que pour lui servir de
 
 C'est en commentant cet ouvrage que, vers la fin
 de ce cours, nous étudierons à loisir l'achèvement
-et le sens final de l'aristocratisme du comte de Gobineau. C'est là que nous rencontrerons l'expression la plus hardie et la plus complète de sa morale, qui est une morale de l'honneur.
+et le sens final de l'aristocratisme du comte de Gobineau. C'est que nous rencontrerons l'expression la plus hardie et la plus complète de sa morale, qui est une morale de l'honneur.
 
 Années de jeunesse (1816-1855)
-L' « Essai sur l'inégalité »
+« Essai sur l'inégalité »
 
 Un savant allemand, à qui M. le professeur Kretzer, de Francfort-sur-le-Meiïn, (1) vantait le génie de
-feu le comte de Gobineau, doucha ainsi son interlocuteur :
+feu le comte de Gobineau, doucha ainsi son interlocuteur:
 
 — Je ne me sens point disposé, dit-il, à introduire
 si aisément de nouveaux dieux dans mon Panthéon!
 
 L'homme est ainsi fait et se défie beaucoup des
 génies ignorés. Gobineau, serait-ce un nouveau dieu
-à mettre dans notre Panthéon ?
+à mettre dans notre Panthéon?
 
 Défions-nous. Mais approchons-le.
 
 Ce savant allemand était bien osé de mettre en
 doute la divinité du comte de Gobineau. Lorsqu'on
 
-37
-
 la vie et les prophéties du comte de Gobineau
-priait ce gentilhomme de nommer son plus vieil |
-ancêtre, paisible, il disait :
+priait ce gentilhomme de nommer son plus vieil
+ancêtre, paisible, il disait:
 Atténuait-il d'un sourire la témérité d'une telle
-croyance ? C'est possible, il était très spirituel. Maïs
-c'est incertain : en pareille matière, il n'eût pas été |
-volontiers mystificateur. Ennemi méprisant du mé- |
+croyance? C'est possible, il était très spirituel. Maïs
+c'est incertain: en pareille matière, il n'eût pas été
+volontiers mystificateur. Ennemi méprisant du mé-
 lange des races et aristocrate de philosophie et de
 nature, je croirais plutôt qu'il prenait un plaisirinfini
-et presque sincère à se prévaloir d'une lignée si |
+et presque sincère à se prévaloir d'une lignée si
 exceptionnelle et si pure.
-Peut-être aussi donnait-il à sa réponse une sorte \
+Peut-être aussi donnait-il à sa réponse une sorte
 de sens symbolique. « Les intelligences modernes,
 disait-il, aiment à détailler les choses. » (x) Lui ne
 détaillait point, et se souciait peu que, sous ce nom
 d'Odin, se dressaät « un dieu, un éponyme, ou la
 personnification d'une race entière ». (2) Odin fut-il
-dieu, héros ou peuple ? M. de Gobineau n'en déci- |
+dieu, héros ou peuple? M. de Gobineau n'en déci-
 daït pas. Mais il tenait pour certain qu'un « souffle
 surnaturel » (3) eût présidé à la naissance et aux
 destinées de sa famille.
@@ -911,7 +904,7 @@ fort, navigua vers l'Angleterre, traversa la Manche,
 puis, s'étant fixé au pays de Bray, fit souche de la
 famille de Gournay, dont les Gobineau se déta-
 
-‘* chèrent au XV: siècle et formèrent une branche.
+chèrent au XV: siècle et formèrent une branche.
 M. de Gobineau accordait sur le tard à cette fantaisie une estime extrême. Ses ouvrages fondamentaux (tels que l'Essai sur l'inégalité des races
 humaines etl Histoire des Perses) n'étaient destinés,
 à l'en croire, qu'à servir de « préface » et de com-
@@ -939,27 +932,27 @@ le titre de comtes. (1) Lors de la Saint-Barthélemy,
 un Gobineau s'illustra par son zèle à piller et à massacrer les réformés de Bordeaux. En 1683, PierreJoseph de Gobineau, apparemment moins bon catholique et même libertin, faillit être roué pour avoir
 chansonné Dieu et les saints du Paradis. Un Gobineau fut orfèvre. Un autre fut jacobin, et mourut
 
-‘: maître d'école de village.
+maître d'école de village.
 
-En 1774, Thibaut-Joseph, comte de Gobimeau, :
+En 1774, Thibaut-Joseph, comte de Gobimeau,:
 ex-conseiller au Parlement de Bordeaux, qui venait
 d'être supprimé par M. le chancelier de Maupeou,
 épousa mademoiselle Victoire de la Haye, fille d'un
-souhaité des « réformes graduelles », (2) et bläma
+souhaité des « réformes graduelles (2) et bläma
 fort la convocation des États-Généraux. En 1907, il
-fait figure au club bordelais des Amis de la Paix et |
-de la Patrie. La Révoluiion triomphe. Thibaut- |
+fait figure au club bordelais des Amis de la Paix et
+de la Patrie. La Révoluiion triomphe. Thibaut-
 Joseph passe en Espagne, « où son fils aîné, grand
 chasseur, grand ami de tous les contrebandiers des
 
-(n Voir Dixième Causerie.
+Voir Dixième Causerie.
 
 Pyrénées, le fit entrer par des sentiers de chèvre ». (1)
 Mais bientôt, il rentre à Izon, où il attend la fin de la
 Terreur, sans être inquiété gravement. Le Directoire, puis le Consulat, sollicitent en vain les services
-__ de cet habile homme : il se refuse. Ni le Conseil des
+de cet habile homme: il se refuse. Ni le Conseil des
 Anciens, ni le Conseil d'État ne le séduisent. Et il
-meurt, € sans avoir eu aucun point de contact avec
+meurt, sans avoir aucun point de contact avec
 les gouvernements nouveaux ». (2)
 
 Thibaut-Joseph laissait deux fils.
@@ -970,10 +963,10 @@ sous le général Dugommier, s'associe à la réaction qui suivit à Bordeaux le
 méchants jacobins de la ville, qui fut tué à coups de
 
 pistolet sur les marches du théâtre ». (3) Sous l'Empire, il refuse une compagnie de cavalerie qui lui
-est offerte par le maréchal Duroc. Et, sous la Restauration, il se lie d'amitié avec le prince de Talleyrand, va le visiter chaque été à Valençay, mais
+est offerte par le maréchal Duroc. Et, sous la Restauration, il se lie d'amitié avec le prince de Talleyrand, le visiter chaque été à Valençay, mais
 rompt avec lui, lorsqu'il le voit se rallier à la mo-
 
-| narchie de Juillet.
+narchie de Juillet.
 
 Son cadet, Louis de Gobineau, émigre pendant
 les Cent-Jours, suit à Gand le comte d'Artois, rentre
@@ -982,17 +975,17 @@ la vie et les prophéties du comte de Gobineau
 en France avec Louis XVII, et devient capitaine à
 la gardé royale.
 
-C'est le père de notre écrivain. .
+C'est le père de notre écrivain..
 
 Joseph-Arthur, comte de Gobineau, vint au monde
 à Ville-d'Avray, le 14 juillet 1816, et grandit dans
 un entourage entièrement royaliste et dévot, peut-
 être assez libre d'esprit. N'a-t-il pas conté que son
 père croyait à Voltaire comme au diable, tenait
-Charles X pour un saint, — et les admiraït également ? (1)
+Charles pour un saint, — et les admiraït également? (1)
 
 On lui donna comme précepteur un étudiant de
-l'Université d'Iéna, qui lui fit aimer les Mille et une #
+l'Université d'Iéna, qui lui fit aimer les Mille et une
 Nuits, et laccoutuma de bonne heure aux difficultés de la langue allemande. Vers douze ans, ses parents l'envoient à Bienne, dans la Suisse française,
 pour y continuer son éducation. Les aspects imposants et doux du Jura, la tranquillité de cette petite
 ville proprette, le panorama des Alpes lointaines,
@@ -1010,8 +1003,8 @@ ans, les Français obéirent soudain aux ardeurs de
 la saison chaude, changèrent leur roï, chassèrent
 du trône les protecteurs de sa famille et de son
 
-Cette révolution de 1830, qui nous paraît si anodine, c'est un terrible événement pour ce jeune légitimiste !
-* Ilest pauvre; il est noble; il ne saurait sans trahison rien demander à la monarchie bourgeoise. Le
+Cette révolution de 1830, qui nous paraît si anodine, c'est un terrible événement pour ce jeune légitimiste!
+Ilest pauvre; il est noble; il ne saurait sans trahison rien demander à la monarchie bourgeoise. Le
 voici contraint de s'isoler chimériquement, avec les
 siens, dans l'attente inerte des réparations politiques qui ne viennent jamais. Seul, le métier militaire ne lui serait pas interdit. Son père, retiré au
 fond de la Bretagne, le destine à l'école Saint-Cyr.
@@ -1021,25 +1014,25 @@ pays d'Orient, n'aspire qu'à l'étude du persan et du
 
 Le jeune homme obtient de son père la permis-
 
-la vie et les prophéties du comte de Gobineau +
+la vie et les prophéties du comte de Gobineau
 sion de travailler à devenir un savant orientaliste
-et vient à Paris, où doit l'héberger son vieil oncle ;
+et vient à Paris, où doit l'héberger son vieil oncle;
 Thibaut-Joseph. Ce vieux garcon riche, irrité par
 la révolution récente, est tout occupé à dévorer les
 journaux de la bonne cause et à paperasser pour
-des conspirations falotes : il accueille sans plaisir,
+des conspirations falotes: il accueille sans plaisir,
 en intrus, ce gamin si amoureux de science, le remet aux soins d'un valet de chambre, fait mine de
-ne jamais lui parler. M: de Gobineau patiente trois
-semaines. Au bout de ce temps d'épreuve, il se pré- :
+ne jamais lui parler. de Gobineau patiente trois
+semaines. Au bout de ce temps d'épreuve, il se pré-:
 sente devant son bon oncle et fougueusement lui
 déclare que, plutôt que d'endurer plus longtemps
-son indifférence, il a résolu de se brûler la cervelle |
-dans sa maison ! (1)
+son indifférence, il a résolu de se brûler la cervelle
+dans sa maison! (1)
 Étonné et un peu inquiet, l'autre admire l'ingé-
 niosité énergique de cette menace, s'humanise pour
-son gentil neveu, et l'institue son héritier. !
-C'était vers 1833, année brillante dans la chronique des salons du faubourg Saint-Germain. JosephArthur de Gobineau devenait alors un grand jeune |
-homme pâle et mince, aux manières avantageuses, |
+son gentil neveu, et l'institue son héritier.!
+C'était vers 1833, année brillante dans la chronique des salons du faubourg Saint-Germain. JosephArthur de Gobineau devenait alors un grand jeune
+homme pâle et mince, aux manières avantageuses,
 candide, spirituel, et prodigieusement volontaire.
 
 Et nulle part mieux que dans ce grand Paris
@@ -1062,13 +1055,12 @@ de l'histoire.
 
 Ces quinze années de loisir morne que la monarchie de Louis-Philippe crée, en durant, aux gens de
 son parti, sa jeunesse ardente et sage les emploie à
-conquérir la maîtrise philologique, où il voit l'instrument de ses futures découvertes dans l'ordre dé
-la pensée : il s'approvisionne pour toute sa carrière.
+conquérir la maîtrise philologique, où il voit l'instrument de ses futures découvertes dans l'ordre
+la pensée: il s'approvisionne pour toute sa carrière.
 Ses études scientifiques l'absorbent à ce point que,
 chaque jour, il travaille couramment dix à quinze
 heures. Ce qui ne l'empêche point de vivre gaiment,
 
-1
 . la vie et les prophéties du comte de Gobineau
 d'avoir ses amis, et d'aller dans le monde. Il
 fréquente surtout les familles de Rémusat et de
@@ -1079,7 +1071,7 @@ Renan, qui se livrait alors à des travaux proches
 
 Entre temps, M. de Gobineau se délasse d'un
 labeur sévère en suivant sa veine poétique et en
-ébauchant sur l'Orient d'éblouissantes histoires :
+ébauchant sur l'Orient d'éblouissantes histoires:
 
 Il parlait volontiers par images,
 écrit madame la comtesse de la Tour, dans la bio-
@@ -1094,15 +1086,15 @@ de ses amusantes improvisations était intarissable, et cette
 gaieté brillante qui, tout en se transformant avec l'âge, ne
 l'abandonna jamais, fut le soleil de sa vie.
 
-( ») Plon, 1887. — Il existe deux sources originales de la biographie de Gobineau, excellentes toutes deux. La première est cette
+( Plon, 1887. — Il existe deux sources originales de la biographie de Gobineau, excellentes toutes deux. La première est cette
 Préface du poème posthume d'Amadis, édité par l'amitié pieuse de
-la comtesse de la Tour. L'autre se trouve en tête de la seconde |
+la comtesse de la Tour. L'autre se trouve en tête de la seconde
 édition de lPÆssai sur linégalité (Firmin-Didot, 1884); elle est
 l'œuvre de feu le comie de Basterot.
 
 (2) Marie-Caroline-Hippolyte de Gobineau. Entra en religion, et
 devint mère bénédictine à l'abbaye de Solesmes. Elle survécut à
-son frère, qui entretint avec elle, jusqu'à sa mort, une correspon- :
+son frère, qui entretint avec elle, jusqu'à sa mort, une correspon-:
 dance très détaillée et très intime.
 
 Ces traits de jeunesse ont leur intérêt... Dans
@@ -1116,7 +1108,7 @@ Vers la même époque, le jeune homme gagne
 quelque argent en publiant divers romans de chevalerie, au demeurant assez médiocres, (1) et compose une tragédie en cinq actes, Alexandre le
 Macédonien, (2) qui allait être représentée au
 Théâtre-Français, lorsque survint la Révolution de
-Février : elle arrêta tout.
+Février: elle arrêta tout.
 
 Dès 1841, la Revue des Deux-Mondes avait
 actueilli sous sa signature une étude sur Capo-
@@ -1131,9 +1123,9 @@ Adieux de Don Juan, drame romantique en un prologue et trois actes
 (Paris, Jules Labitte, 1844) sont aussi de cette époque.
 
 (2) On doit au Gobineau- Verein une édition française d'Alexandre
-le Macédonien (Strasbourg, Trübner, 1901) ; réédition en 1904. —
+le Macédonien (Strasbourg, Trübner, 1901); réédition en 1904. —
 De plus, M. Schemann a traduit cette tragédie de jeunesse en
-allemand. Elle a eu un très vif succès en Allemagne, et il en
+allemand. Elle a un très vif succès en Allemagne, et il en
 éxiste même une édition spéciale, avec commentaires, à l'usage
 des lycéens allemands.
 
@@ -1141,7 +1133,7 @@ des lycéens allemands.
 
 la vie et les prophéties du comte de Gobineau
 des partis déchus; quand l'ironie d'un Bonaparte
-appelle un Tocqueville au pouvoir : tout naturellement, par un retour imprévu, mais facile, à la vie
+appelle un Tocqueville au pouvoir: tout naturellement, par un retour imprévu, mais facile, à la vie
 active, le jeune érudit accompagne M. de Tocqueville aux Affaires étrangères et dirige son cabinet,
 dans ce ministère du 2 juin 1849, où l'auteur de la
 Démocratie en Amérique devenait le collaborateur
@@ -1149,7 +1141,7 @@ de MM. Odilon Barrot, Dufaure et de Falloux.
 
 Cette aventure dura peu.
 
-Le 31 octobre de la même année, le prince-président rompit avec les parlementaires : il congédia
+Le 31 octobre de la même année, le prince-président rompit avec les parlementaires: il congédia
 ses ministres conservateurs, et prit des ministres
 
 bonapartistes, ou disposés à le devenir. M. de Rayneval était alors ministre plénipotentiaire de la
@@ -1167,7 +1159,7 @@ la République offrit au fils de son camarade le poste
 de premier secrétaire à la légation de Berne, en
 compensation de son départ du ministère. (x)
 
-M. de Gobineau n'eut garde de faire le délicat :
+M. de Gobineau n'eut garde de faire le délicat:
 se séparant de son parti, il rallia désormais sa
 fortune à la fortune de l'Élysée. Il n'avait pas réflé-
 chi quinze ans sur le destin des empires, sans s'être
@@ -1179,14 +1171,14 @@ doute pas entièrement répudié une certaine soumission occulte à la direction
 qui ne détournait pas encore ses fidèles de servir le
 « régime d'ordre » improvisé au lendemain des journées de Juin. Mais les intrigues de ses amis royalistes
 ne tardèrent pas à lui paraître hésitantes et fort
-surannées ; il se sentait des préférences pour la mé-
+surannées; il se sentait des préférences pour la mé-
 
 Il avait un certain goût pour la force,
 écrit son ami et biographe le comte de Basterot, (2)
 
 et la basse et féroce
 population métisse des grandes villes lui inspirait un profond dégoût.
-() Anecdote contée par M. Jacques Morland.
+Anecdote contée par M. Jacques Morland.
 (2) Biographie de la seconde édition de lPÆssai. — Cette biographie est signée d'un simple
 
 la vie et les prophéties du comte de Gobineau
@@ -1205,21 +1197,21 @@ tomes de l'Essai sur l'inégalité des races humaines.
 Cet ouvrage rencontra tout de suite plus de faveur
 auprès des Germaiïins que des Celtes. À Francfort,
 M. de Prokesch-Osten, diplomate autrichien et luimême éminent égyptologue, s'émerveille de la
-science de l'auteur :
+science de l'auteur:
 
-— Ge monsieur de Gobineau, qui a écrit sur les
+— monsieur de Gobineau, qui a écrit sur les
 races humaines, est-il de vos parents?
 
 — C'est moi, monsieur.
 
 Tandis qu'en France M. Drouyn de Lhuys, son
-ministre et chef bienveillant, lui fait part de ses inquiétudes :
+ministre et chef bienveillant, lui fait part de ses inquiétudes:
 
 — Un livre scientifique de cette portée ne vous
-sera pas utile pour votre carrière ; il peut, au contraire, vous faire beaucoup d'ennemis. (1)
+sera pas utile pour votre carrière; il peut, au contraire, vous faire beaucoup d'ennemis. (1)
 
-Mais que lui importait sa carrière ? — L'année
-suivante, tous ses désirs sont exaucés : il est nommé
+Mais que lui importait sa carrière? — L'année
+suivante, tous ses désirs sont exaucés: il est nommé
 premier secrétaire à la légation de France en Perse.
 
 Les troisième et quatrième tomes de l'Essai
@@ -1229,7 +1221,7 @@ L'Essai sur l'inégalité des races humaines estun
 livre aventureux et grandiose.
 
 Pour-oser l'écrire, il fallait naître à la vie scientifique et littéraire en un temps où l'histoire, ambitieuse de philosophie, ne s'étranglait pas encore dans
-ces « réduits de l'érudition », dont parle Littré. Un
+ces « réduits de l'érudition dont parle Littré. Un
 écrivain qui, de nos jours, sans renoncer à faire
 œuvre positive, entreprendrait de discourir sur
 l'histoire universelle et de questionner le passé des
@@ -1245,27 +1237,27 @@ la vie et les prophéties du comte de Gobineau
 suprême réussite est peut-être de savoir caracté-
 riser, par une symbolique d'idées majestueuses et
 claires, les tendances cachées et fortes qui, menant
-certaines catégories d'hommes, le possèdent luimême, aucun philosophe, — mieux que ce fils d'émigrés et « petit-fils d'Odin », — n'a assimilé la science
+certaines catégories d'hommes, le possèdent luimême, aucun philosophe, — mieux que ce fils d'émigrés et « petit-fils d'Odin — n'a assimilé la science
 de son siècle, pour en extraire une pensée si docilement obéissante aux appels de sa nature.
 
 M. de Gobineau a regardé l'histoire du monde et
 s'est pénétré, en la contemplant, « de cette évi-
 
--  dence, que la question ethnique domine tous les
+- dence, que la question ethnique domine tous les
 
 autres problèmes de l'histoire ». (1)
 
 L'histoire humaine, — je reproduis ici ses propres
-images, (2) — lui paraît comparable à une € toile
+images, (2) — lui paraît comparable à une toile
 immense ». Les « variétés inférieures de notre
 espèce » (type noir et type jaune) en sont le
 « fond grossier, le coton et la laine ». Certaines
-« familles secondaires de la race blanche » (entendez : les peuples sémitiques) € assouplissent cette
+« familles secondaires de la race blanche » (entendez: les peuples sémitiques) assouplissent cette
 laine en y mêlant leur soie ». Enfin, le « groupe
 arian, (3) faisant circuler ses filets à travers les
 
-(0) Essai, Dédicace à Sa Majesté Georges V, roi de Hanovre.
-(3) Je note ici que M. de Gobineau, dans tous ses ouvrages, |
+(0) Essai, Dédicace à Sa Majesté Georges roi de Hanovre.
+(3) Je note ici que M. de Gobineau, dans tous ses ouvrages,
 orthographie « Arian » ou « Aryan ne non pas « Aryen ». Dans
 
 générations ennoblies, applique à leur surface,
@@ -1274,13 +1266,13 @@ en éblouissant chef-d'œuvre, ses arabesques d'argent et d'or ».
 La portée de ce thème est infinie.
 
 Et d'abord, — contrairement aux leçons du christianisme et de la Révolution française, — les hommes
-ne sont pas égaux entre CU QT EMENt ; ils ne
+ne sont pas égaux entre EMENt; ils ne
 sont pas frères. Loin de là! il existe une certaine
 hiérarchie donnée, primitive, des hommes et des
 races. Certaines races sont belles, énergiques et
 nobles. D'autres races sont laides, paresseuses et
 
-. viles. Certaines races sont races d'« esclaves »,
+. viles. Certaines races sont races d'« esclaves
 et les autres races de « maîtres ». Ces mots, rendus plus glorieux par Frédéric Nietzsche, courent
 déjà, avec leur sens plein, sous la plume de
 
@@ -1290,13 +1282,13 @@ personnage des rois et des maitres. Les plus faibles se contenteront des bas emp
 Mais il advient que les races se mêlent, sur place
 et par des mariages.
 
-Le mélange des races ! voilà, selon Gobineau, le
+Le mélange des races! voilà, selon Gobineau, le
 mot du problème que suscite, devant l'observateur,
 son Zistoire des Perses (1, 1), il fait entendre qu'il adopte cette prononciation et cette écriture pour des raisons d'étymologie, et aussi
 afin d'éviter toute confusion possible avec les sectateurs dArius.
 — On sait que son orthographe n'a pas prévalu.
 
-la vie et les prophéties du comte de Gobinean |
+la vie et les prophéties du comte de Gobinean
 l'alternance des civilisations qui brillent, puis
 s'éclipsent, sur toute l'étendue de la planète, le long
 des siècles échelonnés. Dans ces combinaisons ethniques qui gouvernent en secret les oscillations de l'humanité sans cesse en mouvement, les hautes races
@@ -1305,7 +1297,7 @@ jouent le rôle exclusif d'agents fécondants, civilisa-
 perdent en composant avec les races viles, de beaucoup les plus nombreuses. Tandis que, par cette
 fusion, ces dernières ne s'élèvent jamais qu'à une
 très médiocre qualité humaine.
-Aïnsi, la hiérarchie s'efface par degrés ; l'égalité
+Aïnsi, la hiérarchie s'efface par degrés; l'égalité
 se réalise, mais dans le composite et le stérile. Et
 l'humanité dégénère, à mesure qu'elle se civilise.
 Car sa loi l'emporte vers l'uniformité ethnique, qui
@@ -1319,21 +1311,21 @@ d'autres historiens (Boulainvilliers, Augustin Thierry, Henri Martin) avaient ac
 mélange des races n'avait pas retenu leur attention.
 Pour Gobineau, c'est le tout de l'histoire.
 
-Fièrement, il écrit : « Je ne calcule que par séries
+Fièrement, il écrit: « Je ne calcule que par séries
 de siècles. » (1) Dix grandes civilisations (il les
 compte) « émergent des annales universelles ».
 Toutes sont mortes, ou en voie de périr. Une loi les
-domine : c'est la loi de la mort. Maïs l'explication
+domine: c'est la loi de la mort. Maïs l'explication
 de cette mort?
 
 : D''ordinaire, le bon sens des hommes se contente
-d'un mot pour réponse. Dégénération ! a-t-on dit,
+d'un mot pour réponse. Dégénération! a-t-on dit,
 — les peuples meurent, lorsqu'ils sont dégénérés….
 
 La réponse était fort bonne, étymologiquement et de
 toute manière; il ne s'agissait plus que de définir ce qu'il
-faut entendre par ces mots : nation dégénérée. C'est là qu'on
-fit naufrage : on expliqua un peuple dég'énéré par un peuple qui, mal gouverné, abusant de ses richesses, fanatique
+faut entendre par ces mots: nation dégénérée. C'est qu'on
+fit naufrage: on expliqua un peuple dég'énéré par un peuple qui, mal gouverné, abusant de ses richesses, fanatique
 ou irréligieux, a perdu les vertus caractéristiques de ses
 premiers pères. Triste chute! Ainsi une nation périt sous
 les fléaux sociaux parce qu'elle est dégénérée, et elle est
@@ -1353,34 +1345,34 @@ ancêtres, c'est, en un mot enfin, qu'ils sont dégénérés.
 L'expression, encore une fois, est fort bonne; mais il faut
 l'expliquer un peu mieux et lui donner un sens. Comment
 et pourquoi la vigueur se perd-elle? Voilà ce qu'il faut dire.
-Comment dégénère-t-on? C'est là ce qu'il s'agit d'exposer.
+Comment dégénère-t-on? C'est ce qu'il s'agit d'exposer.
 Jusqu'ici on s'est contenté du mot, on n'a pas dévoilé la chose.
 C'est ce pas de plus que je vais essayer de faire. (1)
 Son problème capital, on le voit, c'est justement
 le problème que Frédéric Nietzsche nommera, plus
 tard, le problème de la décadence.
 A ce problème, voici comment Gobineau détermine
-et formule sa réponse :
+et formule sa réponse:
 Je pense que le mot dégénéré, s'appliquant à un peuple,
 doit signifier et signifie que ce peuple n'a plus la valeur
 intrinsèque qu'autrefois il possédait, parce qu'il n'a plus
 dans les veines le même sang, dont des alliages successifs
-ont graduellement modifié la valeur ; autrement dit, qu'avec
+ont graduellement modifié la valeur; autrement dit, qu'avec
 le même nom, il n'a pas conservé la même race que ses fondateurs; enfin, que l'homme de la décadence, celui qu'on
-appelle l'homme dégénéré, est un produit différent, au point |
+appelle l'homme dégénéré, est un produit différent, au point
 de vue ethnique, du héros des grandes époques. Je veux bien
 qu'il possède quelque chose de son essence; mais, plus il
 dégénère, plus ce quelque chose s'atténue. Les éléments
 hétérogènes qui prédominent désormais en lui composent
 une nationalité toute nouvelle et bien malencontreuse dans
-son originalité; il n'appartient plus à ceux qu'il dit encore |
-être ses pères, qu'en ligne très collatérale. Il mourra définiti- |
+son originalité; il n'appartient plus à ceux qu'il dit encore
+être ses pères, qu'en ligne très collatérale. Il mourra définiti-
 vement, et sa civilisation avec lui, le jour où l'élément eth-
 
 nique primordial se trouvera tellement subdivisé et noyé
 dans des apports de races étrangères, que la virtualité de
 cet élément n'exercera plus désormais d'action suflisante,
-Elle ne disparaîtra pas, sans doute, d'une manière absolue ;
+Elle ne disparaîtra pas, sans doute, d'une manière absolue;
 mais, dans la pratique, elle sera tellement combattue, tellement affaiblie, que sa force deviendra de moins en moins
 sensible, et c'est à ce moment que la dégénération pourra
 être considérée comme complète, et que tous ses effets
@@ -1412,10 +1404,10 @@ En effet, si j'entreprends de démontrer que la décadence est le produit du mé
 j'aurai d'abord établi la réalité de ces valeurs, à
 l'état de données distinctes? — Je devrai prouver,
 au préalable, que le limon humain n'est pas fait
-d'une substance homogène ; que les races d'hommes
+d'une substance homogène; que les races d'hommes
 sont dissemblables, plus encore qu'elles ne sont
 
-| parentes ; que l'humanité est multiple à ses origines,
+parentes; que l'humanité est multiple à ses origines,
 comme dans son histoire.
 
 En un mot, je devrai prendre parti sur le problème de l'unité ou de la multiplicité primitive du
@@ -1425,7 +1417,7 @@ l'inégalité. Je vous indiquerai comment M. de Gobineau l'aborde et le résout,
 bien plus remarquable, — avec quelle ingéniosité
 réaliste il le transforme et l'esquive.
 
-Le problème de l'unité ou de la multiplicité primilive du genre humain !
+Le problème de l'unité ou de la multiplicité primilive du genre humain!
 
 Cette difficulté primordiale et terrible a dépassé
 jusqu'ici et dépassera sans doute toujours la compé-
@@ -1438,8 +1430,8 @@ des types ethniques, aux périodes d'apparition de
 l'espèce humaine sur la planète Terre. Mais, soit
 soumission concertée à la cosmogonie de la Genèse, soit réserve prudente et doute scientifique,
 auteur de l'Æssai n'a osé nulle part l'assertion
-catégorique, dont le croyant, le savant, et le philosophe auraient pu sévèrement lui demander
-compte, à des titres divers : il a eu l'esprit de fortifier sa méthode, en prohibant à ses recherches les
+catégorique, dont le croyant, le savant, et le philosophe auraient sévèrement lui demander
+compte, à des titres divers: il a l'esprit de fortifier sa méthode, en prohibant à ses recherches les
 brumes de la préhistoire.
 
 Cette précaution lui a permis de demeurer un
@@ -1461,14 +1453,14 @@ ne fut pas plus la même dans les grands compartiments du globe que n'y furent l
 raison et de la bonté parmi les hommes, non de
 l'identité prétendue de leur type originel, cette
 « grande idée d'une humanité mère et protectrice
-de tous », qui sert d'assise à la « morale du genre
+de tous qui sert d'assise à la « morale du genre
 
-Reconnaissons-le : l'aristocrate Gobineau se
+Reconnaissons-le: l'aristocrate Gobineau se
 montre ici bien plus circonspect que l'humanitaire
 Littré. Ce problème de l'origine des types humains,
 qui est insondable, il s'en délivre et le ramène au
 problème de leur permanence, qui est susceptible
-de contrôle :
+de contrôle:
 
 On n'aura pas manqué de s'apercevoir que la question de permanence est, ici, la clef de la discussion. S'il est
 démontré que les races humaines sont, chacune, enfermées dans une sorte d'individualité d'où rien ne les peut
@@ -1480,29 +1472,29 @@ tement et inébranlablement partagée que si les distinctions
 spécifiques prenaient leur source dans une diversité prèmitive d'origine. (1)
 
 Cette permanence est, selon Gobineau, un fait
-d'expérience, une loi de la nature : elle se constate
+d'expérience, une loi de la nature: elle se constate
 aux seules lumières des investigations historiques
 et physiologiques.
 
-Voyez les juifs !
+Voyez les juifs!
 
-Ils ont quitté depuis vingt siècles la Palestine, leur patrie première : ils ont émigré vers les
-contrées les plus variées ; ils ont oublié leurs lois,
+Ils ont quitté depuis vingt siècles la Palestine, leur patrie première: ils ont émigré vers les
+contrées les plus variées; ils ont oublié leurs lois,
 leurs coutumes anciennes, et jusqu'à leur religion.
 Mais tantôt hostiles aux alliances avec les non-juifs
 et tantôt repoussés s'ils sollicitaient ces alliances,
 ils ont maintenu pendant vingt siècles la pureté
-relative de leur type ethnique :
+relative de leur type ethnique:
 
 Tels on voit les belliqueux Réchabites des déserts
 arabes, tels nous apparaissent aussi les pacifiques Israélites
-portugais, français, allemands et polonais. J'ai eu occasion
+portugais, français, allemands et polonais. J'ai occasion
 d'examiner un homme appartenant à cette dernière catégorie. La coupe de son visage trahissait parfaitement son origine. Ses yeux surtout étaient inoubliables, Cet habitant du
 Nord, dont les ancêtres directs vivaient, depuis plusieurs
 générations, dans la neige, semblait avoir été bruni, de la
 veille, par les rayons du soleil syrien. (1)
 
-| Plus démonsiratif que tout autre, l'exemple des
+Plus démonsiratif que tout autre, l'exemple des
 juifs permet d'isoler la part irréductible de la race,
 son indépendance à l'égard du climat, des institu-
 
@@ -1517,11 +1509,11 @@ de leur histoire.
 
 Selon Gobineau, l'humanité {out entière éprouve
 contre le croisement un instinct premier, une
-« répulsion secrète ». Mais tout le travail civilisateur est précisément de dompter cette résistance :
+« répulsion secrète ». Mais tout le travail civilisateur est précisément de dompter cette résistance:
 
 Ainsi le genre humain se trouve soumis à deux lois,
 l'une de répulsion, l'autre d'attraction, agissant, à différents
-degrés, sur ses races diverses ; deux lois, dont la première
+degrés, sur ses races diverses; deux lois, dont la première
 n'est respectée que par celles de ces races qui ne doivent
 jamais s'élever au-dessus des perfectionnements tout à fait
 élémentaires de la vie de tribu, tandis que la seconde, au
@@ -1531,11 +1523,11 @@ de développements. (1)
 
 Cette répulsion contre le croisement est invincible
 chez certaines familles humaines. Telles, les tribus
-nègres, qui dépassent si malaisément l « organisa- |
-ton parcellaire ». D'autres la dominent partielle- |
+nègres, qui dépassent si malaisément « organisa-
+ton parcellaire ». D'autres la dominent partielle-
 ment. Enfin, divers groupes humains, sans jamais
 
-la secouer toute, parviennent à mieux s'en affranchir :
+la secouer toute, parviennent à mieux s'en affranchir:
 
 forment ce qui est civilisable dans notre
 
@@ -1548,15 +1540,15 @@ de l'histoire. Mais vous apercevez déjà son très apparent désaccord avec la 
 « dégénération ». Car si l'aptitude au croisement est
 cipilisatrice (donc heureuse), — par quelle étrangeté l'effet des croisements tourne-t-il du favorable
 au pernicieux, et devient-il soudain l'instrument de
-la décadence ?
+la décadence?
 
 M. de Gobineau n'est nullement embarrassé de
-nous procurer les explications suivantes :
+nous procurer les explications suivantes:
 
 Je viens de prendre un peuple à l'état de famille, d'embryon; je l'ai doué de l'aptitude nécessaire pour passer
 à l'état de nation. Ou il sera conquérant, ou il sera
 
-Je le suppose conquérant ; je lui fais la plus belle part; il
+Je le suppose conquérant; je lui fais la plus belle part; il
 
 la vie et les prophéties du comte de Gobineau
 
@@ -1566,8 +1558,8 @@ domine, gouverne et civilise tout à la fois; il n'ira pas, dans
 et l'incendie; les monuments, les institutions, les mœurs,
 lui seront également sacrés; ce qu'il changera, ce qu'il
 trouvera bon et utile de modifier, sera remplacé par des
-créations supérieures ; la faiblesse deviendra force dans ses
-mains ; il se comportera de telle façon que, suivant le mot
+créations supérieures; la faiblesse deviendra force dans ses
+mains; il se comportera de telle façon que, suivant le mot
 de l'Écriture, il sera grand devant les hommes.
 
 .…… Dans le tableau que je trace, et qui n'est autre, à certains égards, que celui présenté par les Hindous, les Égyptiens, les Perses, les Macédoniens, deux faits me paraissent
@@ -1583,13 +1575,13 @@ intime avec une race dont l'infériorité n'est pas seulement
 démontrée par la défaite, mais encore par le défaut des
 qualités visibles chez les vainqueurs. Voilà donc, à dater
 précisément du jour où la fusion commence, une modification sensible dans le sang des maitres. Si la nouveauté
-devait s'arrêter là, on se trouverait, au bout d'un laps de |
-temps d'autant plus considérable que les nations superpo- |
+devait s'arrêter là, on se trouverait, au bout d'un laps de
+temps d'autant plus considérable que les nations superpo-
 sées auraient été originairement plus nombreuses, avoir en
 face une race nouvelle, moins puissante, à coup sûr, que le
 meilleur de ses ancètres, forte encore cependant, et faisant
 preuve de qualités spéciales résultant du mélange même, et
-inconnues aux deux familles génératrices. Mais il n'en va
+inconnues aux deux familles génératrices. Mais il n'en
 pas ainsi d'ordinaire, et l'alliage n'est pas longtemps borné
 à la double race nationale seulement... (1)
 
@@ -1617,46 +1609,44 @@ les hommes médiocres, tout à l'heure formés aux dépens
 de ce qui était grand, s'unissent à de nouvelles médiocrités,
 et que de ces mariages, de plus en plus avilis, naît une con-
 
-| fusion qui, pareille à celle de Babel, aboutit à la plus com-
-| plète impuissance, et mène les sociétés au néant auquel rien
+fusion qui, pareille à celle de Babel, aboutit à la plus com-
+plète impuissance, et mène les sociétés au néant auquel rien
 ne peut remédier. (1)
 
 Je suis loin de méconnaître ce que ces explications brillantes ont d'ingénieux et même de
 fort. Cependant, je ne puis les tenir pour victorieuses. Et je crois permis de penser que l'aventure
 
-65
-
-la vie et les prophéties du comte de Gobineau ;
-intellectuelle de M. de Gobineau fut peut-être ici la |
-Sa sincérité d'historien l'avertit d'abord que la ;
-victoire sur l'exclusivisme ethnique est accessible É |
-* aux seules rages douces pour le progrès humain : il | |
+la vie et les prophéties du comte de Gobineau;
+intellectuelle de M. de Gobineau fut peut-être ici la
+Sa sincérité d'historien l'avertit d'abord que la;
+victoire sur l'exclusivisme ethnique est accessible
+aux seules rages douces pour le progrès humain: il
 découvre ainsi une vue scientifique d'un grand
 prix. Mais cette vue tend à déboucher sur une philosophie de l'histoire qui risquerait d'être une apo-
 logie de la mésalliance.. Son idiosynerasie nobi-
-liaire s''éveille à ce péril; elle se révolte; elle lui |
-commande de déshonorer le « mélange », par où
+liaire s''éveille à ce péril; elle se révolte; elle lui
+commande de déshonorer le « mélange par où
 s'oblitère la pureté des races de héros, et de nier le
 progrès, — füt-ce au prix d'un désaccord, — plutôt
 que de convenir qu'il soit le résultat du mélange...
 Et voici fondé, selon le triomphe ordinaire
-de nos préférences instinctives sur les idées . qui |
+de nos préférences instinctives sur les idées. qui
 les gênent, tout le pessimisme historique de Gobineau.
 L'auteur de l'Essai est un moraliste aristocrate, à
 la recherche d'une hiérarchie. Parlant sur le tard
 de ce livre qui est à la base de toute son œuvre et
 de toute sa pensée, il n'hésitera pas à faire devant
-nous cet aveu :
-Je Lai en quelque sorte commencé dès mon enfance. C'est |
+nous cet aveu:
+Je Lai en quelque sorte commencé dès mon enfance. C'est
 L'expression des instincts apportés par moi en naissant. J'ai
 
 été avide, dès le premier jour où j'ai réfléchi, et j'ai réfléchi
-de bonne heure, de me rendre compte de ma propre nature, parce que fortement saisi par cette maxime : « Connais-toi toi-même », je n'ai pas estimé que je pusse me
+de bonne heure, de me rendre compte de ma propre nature, parce que fortement saisi par cette maxime: « Connais-toi toi-même je n'ai pas estimé que je pusse me
 connaître, sans savoir ce qu'était le milieu dans lequel je
 vénais vivre et qui, en partie, mattirait à lui par la sympathie la plus passionnée et la plus tendre, en partie me
 dégoûtait et me remplissait de haine, de mépris et d'horreur. (1)
 
-Son temps est rebelle à la notion de hiérarchie :
+Son temps est rebelle à la notion de hiérarchie:
 il sera l'ennemi de son temps, et verra dans les
 âges où nous vivons comme un spectacle avancé de
 boue et de pourriture. Mais dans un passé très lointain, une hiérarchie lui apparaît, noble et belle. C'est
@@ -1664,17 +1654,17 @@ la hiérarchie des races. Sa tâche sera de comprendre à fond l'effacement de c
 d'interpréter ethnologiquement l'avènement de la
 
 Et la théorie des mélanges de races le mènera
-à justifier sa doctrine de la « dégénération »,
-— tout comme elle l'aurait pu conduire à construire
-une philosophie du « progrès », s'il s'était senti des
+à justifier sa doctrine de la « dégénération
+— tout comme elle l'aurait conduire à construire
+une philosophie du « progrès s'il s'était senti des
 
-(:) Avant-propos de la deuxième édition de l'Essai (FirminDidot. 1884).
+Avant-propos de la deuxième édition de l'Essai (FirminDidot. 1884).
 
 Inefficacité des mœurs, des lois, du climat, des croyances
 Efficacité du « mérite relatif des races »
 
 L'Essai sur l'inégalité est dédié à Sa Majesté
-Georges V, roi de Hanovre. (1) Aux débuts de sa
+Georges roi de Hanovre. (1) Aux débuts de sa
 carrière diplomatique, M. de Gobineau avait connu
 ce monarque.
 
@@ -1682,22 +1672,22 @@ Cette Dédicace ne laisse point d'être fort caracté-
 ristique. L'auteur de l'Essai dévoile hardiment son
 but, qui est d'être un prophète.
 
-() L'Essai sur l'inégalité a eu jusqu'ici deux éditions en France.
-L'une et l'autre ont élé publiées chez Firmin-Didot. L'édition originale est en 4 tomes in-octavo : les deux premiers de 1853 ; les deux
+L'Essai sur l'inégalité a jusqu'ici deux éditions en France.
+L'une et l'autre ont élé publiées chez Firmin-Didot. L'édition originale est en 4 tomes in-octavo: les deux premiers de 1853; les deux
 derniers, de 1855. La seconde édition (1884) est en deux volumes.
 Elle contient un Avant-Propos écrit par M. de Gobineau peu de
 temps avant sa mort, et sa Biographie par le comte de Basterot. Le
-texte des deux éditions est identique. ‘
+texte des deux éditions est identique.
 
 la vie et les prophéties du comte de Gobineau
-Il écyit, sans que sa plume tremble :
+Il écyit, sans que sa plume tremble:
 
 Je ute avec les premiers peuples qui furent jadis,
 pour chercher jusqu'à ceux qui ne sont pas encore. (1)
 
-Mais Mu bien grue ses prophéties soient établies sul science :
+Mais bien grue ses prophéties soient établies sul science:
 
-Personne n'est Mu autorisé à expliquer le jeu compliqué des rapports sociaux, les motifs des élévations et
+Personne n'est autorisé à expliquer le jeu compliqué des rapports sociaux, les motifs des élévations et
 des décadences nationales avec l'unique secours des considérations abstraites qu'une philosophie sceptique peut fournir. Puisque les faits positifs abondent désormais, qu'ils
 surgissent de partout, se relèvent de tous les sépulcres, et
 se dressent sous la main de qui veut les interroger, il n'est
@@ -1712,13 +1702,13 @@ fantasmagories contre-révolutionnaires. Elle arrê-
 tera peut-être ceux qui seraient tentés de confondre
 un Gobineau avec un Bonald, un Joseph de Maistre,
 et de présumer qu'il n'a rien ajouté de son cru
-aux lectures qu'il en a pu faire. Comme Gobineau,
+aux lectures qu'il en a faire. Comme Gobineau,
 
 — si ce n'est pas avec la même indépendance d'esprit,
 ni avec la même immensité de connaissances, —
-la jeune école « réaliste » et « néo-monarchiste »,
+la jeune école « réaliste » et « néo-monarchiste
 présentement groupée autour de M. Charles Maurras et de l'Action française, tente la tâche que,
-plus loin, l'auteur de l'Essai définit et nomme :
+plus loin, l'auteur de l'Essai définit et nomme:
 
 Je fais en un mot,
 
@@ -1731,26 +1721,24 @@ je vous aurai rapporté les tristesses de l'auteur.
 L'énergie est passée de l'homme à la vapeur. » Du
 moins, les nations modernes, si dégénérées, si dé-
 
-| chues, peuvent-elles attendre leur « rajeunissement »
-de l'avenir ? L'auteur de l'Essai en désespère, car
+chues, peuvent-elles attendre leur « rajeunissement »
+de l'avenir? L'auteur de l'Essai en désespère, car
 l'histoire lui a livré son secret...
 
-Voici ce secret :
+Voici ce secret:
 
 terre, en fait de créations humaines, la science, l'art, la
 civilisation, ramène l'observateur vers un point unique,
 n'est issu que d'un seul germe, n'a résulté que d'une seule
-
-73
 
 la vie et les prophéties du comte de Gobineau
 pensée, n'appartient qu'à une seule famille dont les diffé-
 rentes branches ont régné dans toutes les contrées policées
 
 Cette famille est la race aryenne. Or, de nos
-jours, elle est presque éteinte. Georges V, roi de
+jours, elle est presque éteinte. Georges roi de
 Hanovre, est un des très rares Aryens qui survivent
-encore : car il descend des ducs saxons. En Angleterre comme en Hanovre, sa maison souveraine
+encore: car il descend des ducs saxons. En Angleterre comme en Hanovre, sa maison souveraine
 puise ainsi « ses droits glorieux aux sources lointaines de la plus héroïque origine ». (2)
 
 Au fond et bien qu'il s'en taise, c'est la vraie raï-
@@ -1763,12 +1751,12 @@ L'Essai sur l'inégalité des races humaines est
 divisé en six livres, auxquels s'annexe une Conclusion générale.
 
 Le Livre Premier est proprement une introduction consacrée à la recherche de la méthode. Les
-cinq livres suivants contiennent la matière de l'histoire universelle. La Conclusion générale est un |
+cinq livres suivants contiennent la matière de l'histoire universelle. La Conclusion générale est un
 couronnement, une philosophie.
 
-Voici la table de ces six livres :
+Voici la table de ces six livres:
 
-LIVRE PREMIER. — Considérations préliminaires; définitions ; recherche et exposition des lois naturelles qui
+LIVRE PREMIER. — Considérations préliminaires; définitions; recherche et exposition des lois naturelles qui
 régissent le monde social.
 
 Livre seconp. — Civilisation antique rayonnant de l'Asie
@@ -1788,15 +1776,15 @@ comment les théories de l'Essai sont construites,
 d'où elles surgissent, ce qu'elles révèlent, où elles
 tendent, et par quelle filière naturelle (ou par quelle
 
-| dénaturation) elles se sont propagées jusqu'à nous.
-| A cet égard, ce qui me paraît essentiel et durable
+dénaturation) elles se sont propagées jusqu'à nous.
+A cet égard, ce qui me paraît essentiel et durable
 dans ce livre énorme, c'est, d'une part, l'exposé
 étendu et réfléchi que l'auteur nous donne sur les
 règles de sa méthode. Et c'est, d'autre part, le pessimisme que dans les moindres développements
-de l'Essai : ce pessimisme qui anime, soutient,
+de l'Essai: ce pessimisme qui anime, soutient,
 maîtrise et motive toute l'architecture de l'œuvre,
 
-| la vie et les prophéties du comte de'Gobineau
+la vie et les prophéties du comte de'Gobineau
 puis qui se ramasse, et jaillit avec une force volcanique de la Conclusion générale.
 
 Je m'attacherai donc aux premières et aux dernières pages de l'Æssai, de plus près qu'aux livres
@@ -1805,20 +1793,20 @@ En cela, je crois bien que M. de Gobineau m'eût
 donné raison. Dans l'Avant-propos destiné à la
 seconde édition de l'Essai, — qui parut après sa
 
-. mort, — ne disait-il pas expressément :
+. mort, — ne disait-il pas expressément:
 
 Je laisse ces pages telles que je les ai écrites à l'époque
 où la doctrine qu'elles contiennent sortait de mon esprit,
 comme un oiseau met la tête hors du nid et cherche sa
-route dans l'espace où il n'y a pas de limites. Ma théorie a |
+route dans l'espace où il n'y a pas de limites. Ma théorie a
 
-| été ce qu'elle était, avec ses faiblesses et sa force, son exac- |
+été ce qu'elle était, avec ses faiblesses et sa force, son exac-
 titude et sa part d'erreurs, pareille à toutes les divinations
 de l'homme. Elle a pris son essor, elle le continue. Je n'essaierai ni de raccourcir, ni d'allonger ses ailes, ni moins
 encore de rectifier son vol. Qui me prouverait qu'aujourd'hui je le dirigerais mieux et surtout que j'atteindrais plus
-haut dans les parages de la vérité ?
+haut dans les parages de la vérité?
 
-Et ceci encore : |
+Et ceci encore:
 
 Mes convictions d'autrefois sont celles d'aujourd'hui.
 
@@ -1828,13 +1816,13 @@ aise. Ils n'ont rien altéré des constatations acquises. Je suis
 satisfait que les témoignages acquis par l'expérience aient
 encore plus démontré la réalité de l'inégalité des Races.
 
-Aïnsi, ce à quoi il tenait, c'était à sa divination :
+Aïnsi, ce à quoi il tenait, c'était à sa divination:
 la « réalité de l'inégalité des Races ». Il tenait
 à la notion de Aiérarchie ethnique, plutôt qu'aux
 applications immédiates et finies de cette idée. Et par
 là, me voici justifié dans mon projet de m'attacher
-à son « aristocratisme », à la genèse et à la symbolique de ses préférences morales, plutôt qu'à l'usage
-incertain et faillible qu'il en a pu faire en contemplant le passé.
+à son « aristocratisme à la genèse et à la symbolique de ses préférences morales, plutôt qu'à l'usage
+incertain et faillible qu'il en a faire en contemplant le passé.
 
 J'aborde le Livre Premier de l'Essai, qui est consacré à la recherche de la méthode.
 
@@ -1846,8 +1834,8 @@ la dégénération.
 En effet, le point de départ de l'Æssai, c'est la
 mort de toutes les sociétés d'hommes, qui, jusqu'à
 présent, se sont développées sur la terre. Pas une
-n'a eu une durée illimitée : elles ont toutes péri.
-— Comment expliquer ce phénomène ?
+n'a une durée illimitée: elles ont toutes péri.
+— Comment expliquer ce phénomène?
 
 Est-ce pur accident, renouvelé à chaque reprise,
 comme le supposaient les anciens, dont « l'esprit
@@ -1856,24 +1844,24 @@ religieux, ému comme d'une apparition anormale
 la vie et les prophéties du comte de Gobineau
 par le spectacle des grandes catastrophes politiques,
 les attribuaït à la colère céleste frappant les péchés
-d'une nation » ? (1) — Si la mort des sociétés avait |
-ce caractère accidentel, il serait donc licite |
+d'une nation »? (1) — Si la mort des sociétés avait
+ce caractère accidentel, il serait donc licite
 d'imaginer en raison une société d'hommes, qui,
 plus experte que ses pareilles à éluder les « conflits
 de circonstances » (2) où les autres s'engloutirent
 avant elle, serait susceptible de durer autant que
-notre globe ? M. de Gobineau, vous l'entendez bien,
+notre globe? M. de Gobineau, vous l'entendez bien,
 ne balance pas à rejeter une opinion qui lui paraît si
 peu scientifique. D'après lui, les civilisations historiques périssent « en vertu des lois qui, dans leur
 imperturbable régularité, gouvernent la nature animée comme la nature inorganique ». Elles périssent,
 non par accident, mais comme étant naturellement
 et essentiellement périssables. De même que l'on
-dit : tous les hommes sont morts, donc l'homme
-est mortel ; de même, il faut dire: toutes les sociétés
-sont mortes, donc les sociétés sont mortelles. Chez .
-{ Gobineau, c'est un axiome. Les nations meurent,
-| parce qu'elles dégénèrent. — Bon; maïs pourquoi |
-| dégénèrent-elles ?
+dit: tous les hommes sont morts, donc l'homme
+est mortel; de même, il faut dire: toutes les sociétés
+sont mortes, donc les sociétés sont mortelles. Chez.
+Gobineau, c'est un axiome. Les nations meurent,
+parce qu'elles dégénèrent. — Bon; maïs pourquoi
+dégénèrent-elles?
 Le problème étant ainsi posé, il est clair que la
 tâche de Gobineau sera double.
 En premier lieu, il lui faudra contredire et élimi-
@@ -1887,7 +1875,7 @@ Malgré bien des digressions tumultueuses et qui
 le Livre Premier de l'Æssai est construit solidement
 sur ce double thème.
 
-Qu'est-ce, tout d'abord, qu'une société ?
+Qu'est-ce, tout d'abord, qu'une société?
 
 Ce que j'entends par société, c'est une réunion, plus ou
 moins parfaite au point de vue politique, mais complète au
@@ -1896,10 +1884,10 @@ d'idées semblables et avec des instincts identiques. (1)
 
 Déjà, cette formule permet d'apercevoir à quelle
 
-- infériorité l'auteur de |' Essai abaïssera les idées, en
+- infériorité l'auteur de Essai abaïssera les idées, en
 comparaison des tendances instinctives. Pour qu'il
-y ait « société », au sens gobinien, il faut que les
-instincts soient « identiques » ; il suffit que les idées
+y ait « société au sens gobinien, il faut que les
+instincts soient « identiques »; il suffit que les idées
 soient « semblables ». — La cohésion véritable est
 inscrite dans la communauté d'instincts.
 
@@ -1909,7 +1897,7 @@ la vie et les prophélies du comte de Gobineau
 champ sa besogne d'élimination. Il discerne quatre
 facteurs, auxquels on assigne d'ordinaire une
 action déterminante sur le sort des groupements
-historiques : savoir, les mœurs, les institutions et les
+historiques: savoir, les mœurs, les institutions et les
 lois, le climat, les croyances philosophiques ou religieuses.
 
 Gobineau les scrute tour à tour et s'attache à dé-
@@ -1917,14 +1905,14 @@ montrer que leur influence à tous est inopérante,
 si on la compare à l'action d'un autre facteur, seul
 interne et réel, qui est la race.
 
-Premièrement, il examine l'influence des mœurs :
+Premièrement, il examine l'influence des mœurs:
 
 « Le fanatisme, le luxe, les mauvaises mœurs et
 l'irréligion, assure-t-il, n'amènent pas nécessairement
 la chute des sociétés. » (x) Il n'y a pas de lien
 entre la moralité et la vitalité sociales. Je passe
 sur cette démonstration, qui est relativement
-facile. Chacun de nous peut y suppléer par ses con- |
+facile. Chacun de nous peut y suppléer par ses con-
 naissances historiques et son jugement personnel.
 
 La négation de l'efficacité civilisatrice des lois, du
@@ -1932,15 +1920,14 @@ climat, des croyances, me paraît plus neuve et plus
 
 Selon Gobineau, les institutions et les lois ne
 
-3
-portent pas en elles-mêmes leur vertu. Là où elles
+portent pas en elles-mêmes leur vertu. où elles
 sont une création arbitraire de l'esprit, non modelée
 aux réalités qu'elles prétendent régir, elles sont
-mauvaises et n'agissent point. Là où elles sont
+mauvaises et n'agissent point. où elles sont
 bonnes et paraissent agissantes, c'est que leur ingé-
 niosité s'adapte aux besoins profonds des groupements qui s'en accommodent. Donc, en aucun
 cas, les lois ne commandent. Elles obéissent. Et tout
-leur rôle est d'obéir :
+leur rôle est d'obéir:
 
 Dans tout pays autonome, on peut dire que la loi émane
 toujours du peuple; non pas qu'il ait constamment la faculté
@@ -1961,13 +1948,13 @@ isolé des rêveries d'un individu, nul peuple ne saurait s'en
 accommoder longtemps. On ne peut donc admettre que les
 institutions ainsi trouvées et façonnées par les races fassent
 les races ce qu'on les voit être. Ce sont des effets, non des
-causes. Leur influence est grande évidemment : elles conser-
+causes. Leur influence est grande évidemment: elles conser-
 
 la vie et les prophéties du comte de Gobineau
 
 vent le génie national, elles lui frayent des chemins, elles
 
-ë lui indiquent son but, et même, jusqu'à un certain point, .
+lui indiquent son but, et même, jusqu'à un certain point,.
 échauffent ses instincts, et lui mettent à la main les meilleurs instruments d'action; mais elles ne créent pas leur
 créateur, et, pouvant servir puissamment ses succès en
 l'aidant à développer ses qualités innées, elles ne sauraient
@@ -1985,10 +1972,10 @@ l'implanter par les armes, ils se mettaient également à côté
 du vrai.
 
 … Mais quand Ferdinand le Catholique institua contre les
-Maures d'Espagne ses terribles el nécessaires moyens de
-destruction ; quand Napoléon rétablit en France la religion,
-flatta l'esprit militaire, organisa le pouvoir d'une manière à |
-la fois protectrice et restrictive, l'un et l'autre de ces poten- |
+Maures d'Espagne ses terribles nécessaires moyens de
+destruction; quand Napoléon rétablit en France la religion,
+flatta l'esprit militaire, organisa le pouvoir d'une manière à
+la fois protectrice et restrictive, l'un et l'autre de ces poten-
 tats avaient bien écouté et bien compris le génie de leurs
 sujets, et ils bâtlissaient sur le terrain pratique. En un mot,
 les fausses institutions, très belles souvent sur le papier,
@@ -1997,10 +1984,10 @@ travers nationaux, ne conviennent pas à un État, bien que
 pouvant faire fortune dans le pays voisin. Zlles ne créent
 que le désordre et l'anarchie, fussent-elles empruntées à la
 législation des anges. Les autres, tout au rebours, qu'à tel
-ou tel point de vue, et même d'une manière absolue, le théo- |
+ou tel point de vue, et même d'une manière absolue, le théo-
 ricien et le moraliste peuvent blämer, sont bonnes pour les
 raisons contraires.Les Spartiates étaient petits de nombre,
-grands de cœur, ambitieux et violents ; de fausses lois n'en
+grands de cœur, ambitieux et violents; de fausses lois n'en
 
 auraient tiré que de pâles coquins; Lycurgue en fit d'hé-
 
@@ -2008,7 +1995,7 @@ Qu'on n'en doute pas. Comme la nation est née avant la
 loi, la loi tient d'elle et porte son empreinte avant de lui
 donner la sienne. (1)
 
-Et l'auteur de l'Essai dit encore :
+Et l'auteur de l'Essai dit encore:
 
 Avec les mélanges de sang, viennent les modifications
 dans les idées nationales. (2)
@@ -2017,15 +2004,15 @@ On reconnaît ici les vues de nos « traditionnistes »
 français, si opposées à l'idéalisme révolutionnaire
 ou réformateur.
 
-Ainsi, c'est un point vidé : les idées, les institu-
+Ainsi, c'est un point vidé: les idées, les institu-
 
 tions et les lois sont l'armure du génie national;
-j mais ce génie vit en dehors d'elles.
+mais ce génie vit en dehors d'elles.
 
-Où prend-il naissance ?
+Où prend-il naissance?
 
 Sera-t-il le produit du climat, du sol, de la
-configuration géographique et atmosphérique ?
+configuration géographique et atmosphérique?
 
 Renan fut jadis sur le chemin de cette pensée, au
 temps où, dans son désir d'expliquer pourquoi
@@ -2035,16 +2022,16 @@ contentait d'indiquer: « Le désertest monothéiste.… »
 
 la vie et les prophéties du comte de Gobineau
 être assez artificiel, fit, plus tard, M. Taïne de la
-« théorie des milieux » :
+« théorie des milieux »:
 
 Suivant cetie doctrine, une île ne verra point, en fait
-de prodiges sociaux, ce que connaîtra un continent ; au
+de prodiges sociaux, ce que connaîtra un continent; au
 nord, on ne sera pas ce qu'on est au midi; les bois ne permettront pas ce que favorise la plaine découverte; que
-sais-je ? l'humidité d'un marais fera pousser une civilisation que la sécheresse du Sahara aurait infailliblement
+sais-je? l'humidité d'un marais fera pousser une civilisation que la sécheresse du Sahara aurait infailliblement
 étouffée. Quelque ingénieuses que soient ces petites hypothèses, elles ont contre elles la voix des faits. Malgré le
 
-l vent, la pluie, le froid, le chaud, la stérilité, la plantureuse
-abondance, partout le monde a vu fleurir tour à tour, et sur
+vent, la pluie, le froid, le chaud, la stérilité, la plantureuse
+abondance, partout le monde a fleurir tour à tour, et sur
 les mêmes sols, la barbarie et la civilisation. Le fellah
 abruti se calcine au même soleil qui brülait le puissant
 prêtre de Memphis; le savant professeur de Berlin enseigne
@@ -2057,27 +2044,27 @@ Romains, des Juifs, Gobineau entreprend de prou-
 indépendante, au fond, des conditions climatériques
 et géographiques qui l''envirônnent.
 
-Et voici comment il esquisse, à ce propos, l'histoire des Juifs :
+Et voici comment il esquisse, à ce propos, l'histoire des Juifs:
 
-Les Juifs se trouvaient entourés de tribus parlant des |
+Les Juifs se trouvaient entourés de tribus parlant des
 dialectes d'une langue parente de la leur, et dont la plupart
-leur tenait d'assez près par le sang ; ils devancèrent pourtant tous ces groupes. On les vit guerriers, agriculteurs, |
+leur tenait d'assez près par le sang; ils devancèrent pourtant tous ces groupes. On les vit guerriers, agriculteurs,
 
-commerçants ; on les vit, sous ce gouvernement singulièrement compliqué, où la monarchie, la théocratie, le pouvoir
+commerçants; on les vit, sous ce gouvernement singulièrement compliqué, où la monarchie, la théocratie, le pouvoir
 patriarcal des chefs de famille et la puissance démocratique
 du peuple, représentée par les assemblées et les prophètes,
 s'équilibraient d'une manière bien. bizarre, traverser de
 longs siècles de prospérité et de gloire, et vaincre, par un
 système d'émigration des plus intelligents, les difficultés
 qu'opposaient à leur expansion les limites étroites de leur
-domaine. Et qu'était-ce encore que ce domaine ? Les voyageurs modernes savent au prix de quels efforts savants les
+domaine. Et qu'était-ce encore que ce domaine? Les voyageurs modernes savent au prix de quels efforts savants les
 agronomes israëlites en entretenaient la factice fécondité.
 Depuis que cette race choisie n'habite plus ses montagnes
 et ses plaines, le puits où buvaient les troupeaux de Jacob
 est comblé par les sables, la vigne de Naboth a été envahie
 par le‘désert, tout comme l'emplacement du palais d'Achab
 par les ronces. Et dans ce misérable coin du monde, que
-furent les Juifs ? Je le répète, un peuple habile en tout ce
+furent les Juifs? Je le répète, un peuple habile en tout ce
 qu'il entreprit, un peuple libre, un peuple fort, un peuple
 intelligent, et qui, avant de perdre bravement, les armes à
 la main, le titre de nation indépendante, avait fourni au
@@ -2085,18 +2072,18 @@ monde presque autant de docteurs que de marchands. (r)
 
 Les juifs! une « race choisie ».….
 
-Si je vous ai lu à dessein cette page, c'est que,
+Si je vous ai à dessein cette page, c'est que,
 venant de l'écrivain en qui je compte vous montrer
 prochainement le précurseur involontaire de l'antisémitisme de race, elle ne peut manquer de piquer
 votre curiosité et de vous faire sentir à l'avance
 combien nos antisémites modernes dénaturent, —
 
-| lorsqu'ils s'en servent, — les théories d'un Gobineau.
+lorsqu'ils s'en servent, — les théories d'un Gobineau.
 
 la vie et les prophéties du comie de Gobineau
 Revenons à notre sujet, et ne forçons point son
-| dogmatisme. M. de Gobineau ne rejette pas
-entièrement de l'histoire l'influence des lieux :
+dogmatisme. M. de Gobineau ne rejette pas
+entièrement de l'histoire l'influence des lieux:
 
 Ma pensée n'est pas de nier l'importance de la situation
 pour certaines villes, soit entrepôts, soit ports de mer, soit
@@ -2105,20 +2092,20 @@ Constantinople et d'Alexandrie notamment, sont incontestables. Il est certain qu
 que l'on peut appeler les clefs du monde, et ainsi lon con-
 çoit que, dans le cas du percement de l'isthme de Panama,
 la puissance qui posséderait la ville encore à construire
-sur ce canal hypothétique aurait un grand rôle à jouer |
+sur ce canal hypothétique aurait un grand rôle à jouer
 dans les affaires de l'univers. Mais ce rôle, une nation
 le joue bien, le joue mal, ou même ne le joue pas du tout,
 suivant ce qu'elle vaut. (1)
 
 « Suivant ce qu'elle vaut ».. Nous voici ramenés
-au point de départ : ni les institutions sociales, ni
+au point de départ: ni les institutions sociales, ni
 
 : les hasards de la nature physique ne confèrent aux
 nations leur « valeur ».
 
-Mais la philosophie? La religion ?
+Mais la philosophie? La religion?
 
-L'auteur de l'Essai tient les croyances philoso- |
+L'auteur de l'Essai tient les croyances philoso-
 phiques ou religieuses pour expressives des groupes
 humains qui les adoptent. Mais, elles aussi, il les
 prive de « puissance déterminante ». Et partout,
@@ -2134,7 +2121,7 @@ Car enfin, si la promesse évangélique ouvre à tous
 les hommes (sans distinguer leur origine) l'accès
 de la religion du Christ, ne donne-t-elle pas à
 penser que ses bienfaits sont capables de procurer
-aux races inférieures les aptitudes qui leur manquent, et de suppléer ainsi à leur indigence native ?
+aux races inférieures les aptitudes qui leur manquent, et de suppléer ainsi à leur indigence native?
 
 Voilà un problème respectable pour un chrétien.
 Or, M. de Gobineau faisait profession d'être un
@@ -2142,13 +2129,13 @@ excellent catholique. Cest pourquoi il s'occupe
 tout au long à vaincre cette difficulté. Mais à travers
 ses explications assez gênées et fort subtiles, on discerne surtout son aversion dissimulée, maïs insurmontable, à l'encontre de la morale chrétienne. La
 raison s'en devine. Le christianisme préfère « aux
-forts les petits et les humbles ». (2) Rien de si con- |
+forts les petits et les humbles ». (2) Rien de si con-
 traire aux préférences d'un Gobineau. Etilme suftira
 ici d'évoquer, dans votre souvenir, les fureurs de
 Nietzsche contre cette même morale chrétienne, —
 « morale de souffrants, morale de malades, morale
 
-_ d'esclaves, principe de dégénérescence de la race
+d'esclaves, principe de dégénérescence de la race
 
 ,
 
@@ -2165,7 +2152,7 @@ civilisation. Le sauvage converti par le missionnaire fera son salut dans le cie
 sauvage sur terre...
 
 C'est ce qui permet à M. de Gobineau de conclure,
-sur ce délicat problème :
+sur ce délicat problème:
 
 Encore une fois, le christianisme n'est pas civilisateur, et
 il a grandement raison de ne pas l'être. (7)
@@ -2181,7 +2168,7 @@ mieux faire que de vous lire ce court passage où
 M. de Gobineau, se reposant à une fin de chapitre,
 
 fait lui-même un retour sur le chemin parcouru et
-annonce le chemin à parcourir :
+annonce le chemin à parcourir:
 
 J'ai posé d'abord cette vérité,
 
@@ -2194,12 +2181,12 @@ püt les dénoncer constamment, et servir à constater, dans
 tous les cas, leur existence, j'ai trouvé l'aptitude à créer
 la civilisation, mise en regard de l'impossibilité de concevoir
 cet état. C'est de cette recherche que je sors en ce moment.
-Maintenant, quel est le premier point dont je dois m'occuper ? C'est incontestablement, après avoir reconnu en ellemême la cause latente de la vie ou de la mort des sociétés
+Maintenant, quel est le premier point dont je dois m'occuper? C'est incontestablement, après avoir reconnu en ellemême la cause latente de la vie ou de la mort des sociétés
 à un signe naturel et constant, d'étudier la nature intime
 de cette cause. J'ai dit qu'elle dérivait du mérite relatif des
 races. La logique exige donc que je précise immédiatement
 ce que j'entends par le mot race, et c'est ce qui fera l'objet
-* du chapitre suivant. (1)
+du chapitre suivant. (1)
 
 C'est aussi ce qui fera l'objet de notre réunion
 
@@ -2211,28 +2198,28 @@ M. de Gobineau rejette de sa philosophie de l'histoire
 l'action de la nature physique et l'action des forces
 morales. Ces influences, à l'entendre, n'enfoncent
 point, demeurent en surface. La vraie raison de vie
-ou de mort des sociétés est ailleurs : elle est latente,
+ou de mort des sociétés est ailleurs: elle est latente,
 elle est centrale, elle est interne. Elle se confond
 avec les aptitudes cachées, spontanées, spéciales,
 des groupements humains au destin desquels ‘elle
 
-_ commande. — Cette véritable raison de vie ou de
-mort, c'est le & mérite relatif des races ».
+commande. — Cette véritable raison de vie ou de
+mort, c'est le mérite relatif des races ».
 
-la vie et les prophéties du comte de Gobineau |
+la vie et les prophéties du comte de Gobineau
 Or, cette tentative d'interprétation générale des
 
-phénomènes de l'histoire enferme en elle deux propositions distinctes : il faut les prouver.
+phénomènes de l'histoire enferme en elle deux propositions distinctes: il faut les prouver.
 
-La première, c'est qu'il y a des races. La seconde, |
+La première, c'est qu'il y a des races. La seconde,
 c'est que chaque « race » atteint à un certain degré
-de mérite relatif ; autrement dit, que les races sont
+de mérite relatif; autrement dit, que les races sont
 comparables entre elles et hiérarchisées. — M. de
 Gobineau devra donc justifier d'abord son assertion
 de l'existence séparée des races. Ensuite, il lui sera
-loisible de comparer les races entre elles; de les |
-ordonner en série continue, selon leurs aptitudes et |
-leur valeur ; de dresser devant nous le tableau de
+loisible de comparer les races entre elles; de les
+ordonner en série continue, selon leurs aptitudes et
+leur valeur; de dresser devant nous le tableau de
 la hiérarchie des races.
 
 Mon dessein est de le suivre dans cette double
@@ -2242,7 +2229,7 @@ Ce problème de la race est, sans contredit, un
 des plus obscurs et des plus bizarres que la sociologie connaisse. Dans une lumineuse conférence prononcée l'an dernier par M. Salomon Reinach à la
 Société des études juives, (1) vous trouverez la con-
 
-(:) La prétendue race juive, conférence donnée à la Société des
+La prétendue race juive, conférence donnée à la Société des
 études juives, le 6 décembre 1903, par M. Salomon Reinach,
 membre de l'Institut. — Cette conférence a été publiée par la Revue
 des études juives, dans son fascicule doctobre-décembre 1908.
@@ -2252,11 +2239,11 @@ sur l'attitude actuelle des anthropologistes en
 renom, à l'endroit de la « théorie des races ». —
 M. Salomon Reinach, qui est un savant israélite,
 rappelait combien cette théorie s'est montrée funeste à la « prétendue race juive ». Mais sa loyauté
-guidait ainsi ses auditeurs juifs :
+guidait ainsi ses auditeurs juifs:
 s'écriait-il,
 
 la théorie fausse et absurde des. races nous a fait
-el nous fait encore le plus grand mal. Elle est exploitée
+nous fait encore le plus grand mal. Elle est exploitée
 contre nous en toute occasion, dans les entretiens, dans les
 journaux, au théâtre. Mais nous fût-elle mille fois plus
 funeste encore, je dirais, moi, que je l'adopterais tout le
@@ -2270,7 +2257,7 @@ suivre chez Gobineau. Pourtant, vous me permetirez de concentrer devant vous les
 de M. Salomon Reinach, afin de montrer, — si je
 puis, — que, malgré les apparences, elles sont peut-
 
-_ être moins éloignées des théories de Gobineau que
+être moins éloignées des théories de Gobineau que
 nous ne serions tentés de croire.
 
 À première vue, cette assertion peut paraître
@@ -2278,12 +2265,12 @@ paradoxale. M. de Gobineau est un théoricien de
 
 la vie et les prophéties du comte de Gobineau
 la race. Et M. Salomon Reinach nie qu'il y ait des
-races. — Quoi de plus contraire ?
+races. — Quoi de plus contraire?
 
 Mais regardons-y mieux.
 
-En quel sens M. Salomon Reinach nie-til l'existence et la vie séparée des races ? C'est au sens que
-l'on donne à ce mot de « race », lorsqu'on pré-
+En quel sens M. Salomon Reinach nie-til l'existence et la vie séparée des races? C'est au sens que
+l'on donne à ce mot de « race lorsqu'on pré-
 tend discerner une race sémitique, une race aryenne,
 ou encore une race germanique, une race juive, une
 race slave, une race gauloise. Mais il accorde,
@@ -2293,28 +2280,28 @@ que l'humanité, — en dépit de son unité d'ensemble,
 dont la science ignore le mode de formation, mais
 dont elle constate à la fois l'existence et la perpé-
 
-Ces types généraux, — quels sont-ils ?
+Ces types généraux, — quels sont-ils?
 
-tout le monde est d'accord : ce sont les blancs
+tout le monde est d'accord: ce sont les blancs
 
 d'Europe, les jaunes d'Asie, les rouges d'Amérique, lesnoirs
 d'Afrique et d'Océanie... Malgré les différences individuelles
 et celles qui subsistent entre les différents groupes de
-blancs, de noirs, de rouges et de jaunes, ces quatre grandes hi
+blancs, de noirs, de rouges et de jaunes, ces quatre grandes
 divisions de l'espèce humaine offrent, chacune, en dehors
 
 même de la couleur, des caractères qui peuvent être définis
 
-et rigoureusement constatés. |
+et rigoureusement constatés.
 
 En conséquence, M. Salomon Reinach estime que
 
 le nom de races devrait être réservé à ces quatre
-types généraux, que « l'analyse nous fait découvrir », mais qu'il y faudrait renoncer « pour tous les
+types généraux, que « l'analyse nous fait découvrir mais qu'il y faudrait renoncer « pour tous les
 types de troisième ou de quatrième ordre, que nous
 créons par une vue de l'esprit, sans base et sans
 critérium scientifique ». Et il se plaint qu'on nomme
-races, par abus de langage, ces types tardifs, composites, également privés de pureté et de permanence. En effet, là où ces types semblent définitivement fixés, leur persistance apparente est un simple
+races, par abus de langage, ces types tardifs, composites, également privés de pureté et de permanence. En effet, où ces types semblent définitivement fixés, leur persistance apparente est un simple
 résultat de conditions historiques particulières. —
 
 Tel est justement le cas des juifs, qui depuis des
@@ -2334,47 +2321,47 @@ réservât l'appellation de races. Ensuite, il convient que les prétendues race
 en réalité, que des types « tertiaires ou quater-
 
 la vie et les prophéties du comte de Gobineau
-naires ». (1) Enfin, il ramène à n'être que des métis- |
-sages plus où moins compliqués, jamais purs, très |
-rarement fixés par l'endogamie prolongée, — c'est- |
-à-dire par l'intermariage, — les races prétendues |
-de la langue vulgaire. |
-C'est l'essentiel, à ce qu'il semble. Et voici main- |
+naires ». (1) Enfin, il ramène à n'être que des métis-
+sages plus où moins compliqués, jamais purs, très
+rarement fixés par l'endogamie prolongée, — c'est-
+à-dire par l'intermariage, — les races prétendues
+de la langue vulgaire.
+C'est l'essentiel, à ce qu'il semble. Et voici main-
 tenant la seule divergence.
-A l'intérieur des grands types généraux, selon la |
-couleur, Gobineau paraît admettre l'existence séparée et durable de types spéciaux. Et il les nomme : |
-ce seront les Sémites, ce seront les Aryens. Tandis |
-que, pour M. Salomon Reïnach, il n'y a point |
-d'« Aryens », point de « Sémites », devant la science.
+A l'intérieur des grands types généraux, selon la
+couleur, Gobineau paraît admettre l'existence séparée et durable de types spéciaux. Et il les nomme:
+ce seront les Sémites, ce seront les Aryens. Tandis
+que, pour M. Salomon Reïnach, il n'y a point
+d'« Aryens point de « Sémites devant la science.
 Les vrais savants ont renoncé à faire mouvoir ces
 fantômes, qui peuplent seulement les polémiques de
-presse et la pensée des gens du monde : il ya beau
-temps qu'un Ernest Renan, un Max Müller, après |
-avoir, « dans leur jeunesse, partagé et propagé l'erreur commune, n'ont pas hésité, quand ils ont vu la |
+presse et la pensée des gens du monde: il beau
+temps qu'un Ernest Renan, un Max Müller, après
+avoir, « dans leur jeunesse, partagé et propagé l'erreur commune, n'ont pas hésité, quand ils ont la
 Consultons ici Gobineau. Je n'en disconviens
-pas : il nomme les Aryens, il nomme les Sémites ; À
-il en fait les agents permanents, eflicaces, civilisa- |
+pas: il nomme les Aryens, il nomme les Sémites; À
+il en fait les agents permanents, eflicaces, civilisa-
 teurs, — les moteurs de l'histoire du monde. Mais
 quelle notion se fait-il au juste de l'Aryen et du
 
-Sémite purs ? À quel endroit les fait-il apparaître
+Sémite purs? À quel endroit les fait-il apparaître
 dans sa différenciation ethnologique des familles
 
 Pour Gobineau, l'individu adamite, ou de type
 primaire, contemporain de l'apparition de l'homme
 sur la terre, échappe, — vous le savez, — aux
 prises de la science: « Laïssons-le, tout-à-fait, ditil, en dehors de la controverse. » (1) Quels seront
-les types secondaires ? Gobineau les identifie avec
+les types secondaires? Gobineau les identifie avec
 les « races bien caractérisées » (2) par la couleur.
 Puis, à l'intérieur de ces races proprement dites, il
 isole certains types particuliers, tels que l'Aryen pur
 et le Sémite pur. — Mais ce Sémite et cet Aryen
 immaculés, ose-t-il affirmer leur persistance jusqu'à
-nous, jusqu'à notre siècle ? Loin de là !'ils lui apparaissent comme des personnages héroïques, et,
+nous, jusqu'à notre siècle? Loin de!'ils lui apparaissent comme des personnages héroïques, et,
 
 ù comme tels, il les relègue dans un passé proprement
 légendaire, qu'il imagine, bien plutôt qu'il ne le
-reconstitue. Et il écrit expressément :
+reconstitue. Et il écrit expressément:
 
 Nous n'avons qu'une très faible connaissance historique
 des races tertiaires. (3)
@@ -2385,15 +2372,15 @@ la vie et les prophéties du comte de Gobineau
 son livre) les combinaisons ethniques se multipliant
 avec une rapidité si vertigineuse que, s'il fallait
 donner un chiffre, les prétendues races contemporaines, à base aryenne ou sémitique, ne seraient
-point des types de « troisième ou quatrième ordre »,
-mais d'ordre innombrable, à entendre sa pensée .
+point des types de « troisième ou quatrième ordre
+mais d'ordre innombrable, à entendre sa pensée.
 comme il convient.
 
 Si bien qu'à pousser plus loin la comparaison
 et si je ne craignais d'abuser d'une numération
 que M. Salomon Reinach donne seulement en manière d'exemple, mais aux chiffres de laquelle il ne
 tient certainement pas, je serais tenté de trouver ici
-Gobineau plus nuancé, plus circonspect, plus |
+Gobineau plus nuancé, plus circonspect, plus
 sévère, dans sa désignation numérique des mélanges
 ethniques. — Et M. Salomon Reïinach lui-même,
 s'il admet l'existence de types de troisième, de
@@ -2414,7 +2401,7 @@ Cependant, il reste vrai que la théorie gobinienne
 des races, dans la mesure où elle est connue, a été
 détournée de son vrai sens.
 
-J'ai déjà eu à vous dire que je tenais M. de Gobineau pour l'involontaire précurseur de l'antisémitisme de race. Jadis et pendant des siècles, on connut
+J'ai déjà à vous dire que je tenais M. de Gobineau pour l'involontaire précurseur de l'antisémitisme de race. Jadis et pendant des siècles, on connut
 l'antisémitisme religieux de l'Église et du moyen-
 âge. Puis, il y eut l'antisémitisme des gens d'esprit,
 survivance des préjugés dont ils se croyaient fort
@@ -2437,17 +2424,17 @@ ethnologique, vers 1880, dans l'Allemagne impériale
 et pangermaniste, où le cosmopolitisme et le libéralisme juifs semblaient une puissance de destruction. (1) C'est la vérité, en ce sens que l'antisémitisme de race s'est constitué en Allemagne, a rayonné
 d'abord en Allemagne, a pris en Allemagne sa force
 d'expansion. Mais je serais bien surpris si, depuis
-1880, les théoriciens de l'antisémitisme ethnologique n'avaient pas lu et s'ils n'avaient pas dénaturé
+1880, les théoriciens de l'antisémitisme ethnologique n'avaient pas et s'ils n'avaient pas dénaturé
 
-Voyez comme la tâche leur était facile !
+Voyez comme la tâche leur était facile!
 
-I1 leur suffisait d'introduire un anachronisme
+leur suffisait d'introduire un anachronisme
 dans les théories d'abord si nuancées et si mesurées de lÆssai. M. de Gobineau relègue dans la
 préhistoire l''Aryen et le Sémite purs. Il les tient
 pour deux personnages blancs de l'époque héroïque,
 supérieurs à tous les hommes nés ou à naître. Mais
 
-‘ dans notre temps, il ne nomme pas une seule nation
+dans notre temps, il ne nomme pas une seule nation
 où se soient intégralement conservées les manières
 d'être du Sémite et de l'Aryen originaires. Comment
 
@@ -2471,9 +2458,9 @@ Mais qu'importe au théoricien antisémite? De
 Gobineau, il retiendra que l'Aryen originaire surpasse en noblesse le Sémite originaire. Et il transposera dans le présent, en l'exagérant, cette hiérarchie imaginée pour un passé à jamais mort. Le
 théoricien antisémite sait bien où sont à présent les
 
-| Sémites. Ce sont les juifs, évidemment ! Si tout juif
+Sémites. Ce sont les juifs, évidemment! Si tout juif
 
-| estun Sémite, qui n'est pas juif ne peut manquer
+estun Sémite, qui n'est pas juif ne peut manquer
 d'être un Aryen... Puis, ces deux propositions également erronées et simplistes admises, rien n'empèê-
 chera plus le théoricien antisémite d'opposer à la
 prétendue race juive, si mêlée pourtant, une pré-
@@ -2482,20 +2469,20 @@ est aux trois quarts sémitisée.
 Transposition étrangement facilitée (cela est certain) par l'exemple de M. de Gobineau en personne!
 Ce littérateur impétueux, lorsqu'il s'est agi pour
 lui d'appliquer sa théorie du mélange des races aux
-données de l'histoire, n'a pas su résister au plaisir
+données de l'histoire, n'a pas résister au plaisir
 de substituer, à la gamme délicate et difficile des
 combinaisons ethniques sans cesse changeantes, des
 
 la pie et les prophéties du comte de Gobineau
-tonalités vigoureuses, colorées, brutales ; il a distribué les qualificatifs de Sémite et d'Aryen avec un
+tonalités vigoureuses, colorées, brutales; il a distribué les qualificatifs de Sémite et d'Aryen avec un
 entrain léger et parfaitement arbitraire. Sous sa
 plume paradoxale, les Grecs du temps de Périclès
 sont devenus des métis infâmes. Avant eux, l'Ulysse
 d'Homère s'était montré le type accompli de l'Aryen
 sémitisé.… Demeurant fidèle à mon propre commentaire, peut-être devrais-je me contenter de découvrir, en ces assertions d'ordre historique, une
 preuve nouvelle de l'immémorialité des mélanges
-ethniques, selon Gobineau. Mais jy reconnais
-aussi une assurance despotique qui a bien dû encourager et confirmer, dans leur aveuglement passionné,
+ethniques, selon Gobineau. Mais reconnais
+aussi une assurance despotique qui a bien encourager et confirmer, dans leur aveuglement passionné,
 les méchants rhéteurs de l'antisémitisme allemand.
 
 Ces éclaircissements sur la parenté du « gobinisme » et de l'antisémitisme ethnologique contemporain m'ont paru nécessaires, à cette place, comme
@@ -2509,38 +2496,38 @@ fut fondée en 1839. Et Broca fonda la Société d'anthropologie de Paris en 185
 
 années après la publication de l'Æssai. Rien n'indique
 que M. de Gobineau aït jamais pris une part quelconque aux travaux de cette société. IL n'était pas
-un spécialiste de lethnologie et de l'anthropologie :
+un spécialiste de lethnologie et de l'anthropologie:
 il était un historien. Mais parmi les historiens, je
 crois bien qu'il fut le plus original dans sa volonté
 d'extraire de ces sciences une rénovation de la mé-
-thode historique et de la philosophie de l'histoire :
+thode historique et de la philosophie de l'histoire:
 « Il s'agit, écrivait-il dans la Conclusion générale de
 l'Essai, de faire entrer l'histoire dans la famille des
-sciences naturelles. » Et parlant de l'ethnologie :
+sciences naturelles. » Et parlant de l'ethnologie:
 « En réalité, elle n'est autre chose que la racine et
 la vie même de l'histoire. »
 L'histoire gobinienne sera une ethnologie à face
-double : l'une physique, et l'autre morale. M. de
+double: l'une physique, et l'autre morale. M. de
 . Gobineau établira son ethnologie physique sur les
-recherches des spécialistes : il sera endigué, enserré
+recherches des spécialistes: il sera endigué, enserré
 par elles. Il sera plus libre, mais aussi bien plus
-| aventureux, en fait d'ethnologie morale.
-| Bien entendu, je n'aborderai point le détail de
-| l'analyse à laquelle M. de Gobineau soumet les doctrines anthropologiques accréditées de son temps,
+aventureux, en fait d'ethnologie morale.
+Bien entendu, je n'aborderai point le détail de
+l'analyse à laquelle M. de Gobineau soumet les doctrines anthropologiques accréditées de son temps,
 notamment les systèmes de Camper, de Blumenbach, de Morton, d'Owen, de Carus, de Prichard,
 et de plusieurs autres. (1) Ces discussions seraient
 
 la pie et les prophéties du comte de Gobineau
-pour nous d'un caractère trop spécial : il me suffira
+pour nous d'un caractère trop spécial: il me suffira
 d'indiquer qu'aucune des acquisitions réalisées où
 des conjectures ébauchées de son temps, dans le
-l'ethnologie, n'a échappé à Gobineau ; et je signalerai, après M. Kretzer, (1) l'abondance de sa documentation en fait d'ouvrages étrangers, et surtout
-d'ouvrages allemands. Mais il est temps que |
+l'ethnologie, n'a échappé à Gobineau; et je signalerai, après M. Kretzer, (1) l'abondance de sa documentation en fait d'ouvrages étrangers, et surtout
+d'ouvrages allemands. Mais il est temps que
 j'achève d'édifier devant vous son propre système
 ethnologique et les conséquences qu'il en tire au
 sujet de l'histoire.
 
-Nous verrons par là que ses vues à la fois larges
+Nous verrons par que ses vues à la fois larges
 et subtiles lui ont permis de simplifier les conceptions trop méticuleuses, et parfois puériles, de ses …
 prédécesseurs immédiats, les savants que je viens
 de nommer; de devancer ainsi, sans être lui-même
@@ -2556,12 +2543,12 @@ ni les sept variétés cataloguées par Prichard.(r)
 Refusani de s'intéresser à l'individu adamite (ou de
 formation originelle), il rencontre les « races bien
 caractérisées » (2) au nombre de trois seulement,
-qui sont la blanche, la noire ei la jaune. En effet,
+qui sont la blanche, la noire la jaune. En effet,
 les Peaux-Rouges de l'Amérique lui apparaissent
 comme un métissage de noirs et de jaunes.
 Et voici comment il commente la classification
-qu'il adopte :
-| Si je me sers de dénominations empruntées à la couleur de la peau, ce n'est pas que je trouve lexpression
+qu'il adopte:
+Si je me sers de dénominations empruntées à la couleur de la peau, ce n'est pas que je trouve lexpression
 juste ni heureuse, car les trois catégories dont je parle n'ont
 pas précisément pour trait distinctif la carnation, toujours
 très multiple dans ses nuances. Mais, à moins d'inventer
@@ -2581,26 +2568,26 @@ et primitifs de l'humanité. (3)
 
 la vie et les prophéties du comie de Gobineau
 Ainsi, l'espèce humaine se partage naturellement
-en trois grandes catégories, où variétés principales :
-| les blancs, les noirs et les jaunes. Chacune d'elles unifie relativement plusieurs genres. M. de Gobineau
+en trois grandes catégories, où variétés principales:
+les blancs, les noirs et les jaunes. Chacune d'elles unifie relativement plusieurs genres. M. de Gobineau
 consent même que ces « variétés » et ces « genres »
-aient pu se différencier sous l'action des grandes
+aient se différencier sous l'action des grandes
 causes cosmogoniques, contemporaines de la forma-
-tion du globe et de la naissance de l'homme, car |
-limmensité de ces causes ne permet point qu'on les : |
+tion du globe et de la naissance de l'homme, car
+limmensité de ces causes ne permet point qu'on les:
 assimile à la mesquine influence des ambiances
-Il ny eut pas besoin de croisements ethniques pour
+Il eut pas besoin de croisements ethniques pour
 amener ces modifications spéciales; elles préexistèrent à
 tous les alliages. C'estvainement qu'onchercherail aujourd'hui
 à les constater dans l'agglomération métisse qui constitue Ce
-qu'on nomme la race blanche. (1) |
-Autrement dit, au commencement était l Espèce.
+qu'on nomme la race blanche. (1)
+Autrement dit, au commencement était Espèce.
 Après elle se constituèrent les trois Variétés,
 comprenant les Genres. Ensuite intervinrent les
-croisements ethniques. Et la série des métissages ne \
+croisements ethniques. Et la série des métissages ne
 s'arrête plus.
 C'est à cette série de métissages qu'il convient
-de rapporter les prétendues races contemporaines. Elles sont simplement les branches « d'une |
+de rapporter les prétendues races contemporaines. Elles sont simplement les branches « d'une
 ou plusieurs souches primitives perdues, que les
 
 temps historiques n'ont jamais connues, dont nous
@@ -2613,13 +2600,13 @@ la puissance des croisements ». (2) Mais, au vrai, ce
 ne sont pas des races. Car ces combinaisons provisoires sont justement dépourvues de la caractéristique essentielle de la race, si la &race » se définit par
 la pureté.
 
-| Ce seront tout au plus des succédanés, — des
+Ce seront tout au plus des succédanés, — des
 
-équivalents de races. Écoutons ici Gobineau :
+équivalents de races. Écoutons ici Gobineau:
 
 La transmission intégrale du type dans les différents
 individus n'indique pas la pureté de la race, mais seulement
-ceci : que les éléments, plus ou moins nombreux, dont cette
+ceci: que les éléments, plus ou moins nombreux, dont cette
 race est composée, sont arrivés à se fondre parfaitement
 ensemble, de manière à ce que la combinaison en est, à la
 fin, devenue homogène, et que chaque individu de l'espèce
@@ -2629,15 +2616,13 @@ que les frères et les sœurs se ressemblent souvent, comme
 provenant d'éléments semblables, ainsi, lorsque deux races
 productrices sont parvenues à s'amalgamer si complètement
 
-109
-
 la vie et les prophéties du comte de Gobineau Le
 qu'il »'y à plus dans la nation de groupes ayant plus de
 l'essence de l'une que de l'autre, il s'établit, par équilibre,
 une sorte de pureté fictive, un type artificiel, et tous les
 nouveau-nés en apportent l'empreinte. (1)
-Et un peu plus bas, il ajoute : À
-jl est encore une loi à signaler avant d'aller plus loin
+Et un peu plus bas, il ajoute: À
+est encore une loi à signaler avant d'aller plus loin
 les croisements n'amènent pas seulement la fusion de deux
 variétés. Ils déterminent la création de caractères nouveaux;
 qui deviennent dès lors le côté le plus important par lequel
@@ -2645,7 +2630,7 @@ on puisse envisager un sous-genre: (2)
 Bref, il se crée un amalgame, sans pureté ethnique, mais doué d'une « originalité nouvelle ». (3)
 Cette originalité se maintient tant que ne surviennent
 pas de nouveaux croisements avec des types étrangers. L'auteur de l'Æssai confère à ces amalgames,
-faute d'un meilleur mot, le nom de « races », Car; à
+faute d'un meilleur mot, le nom de « races Car; à
 défaut de la pureté, ils possèdent ces deux attributs:
 Si derrière les mots on regarde les choses, vous
 apercevez combien la théorie gobinienne des races
@@ -2653,25 +2638,25 @@ approche des conclusions acceptées par les savants
 contemporains les moins suspects de « gobinisme ».
 En faisons-nous, par exemple, application à la®
 
-| raison, ce n'est pas une race. Mais M. de Gobineau
-| n'a pas tort : tant que les juifs n'auront pas réussi à |
-| se fondre avec les masses ambiantes, par des unions
-| multipliées, ils seront un équivalent de race.
+raison, ce n'est pas une race. Mais M. de Gobineau
+n'a pas tort: tant que les juifs n'auront pas réussi à
+se fondre avec les masses ambiantes, par des unions
+multipliées, ils seront un équivalent de race.
 
 Mais n'oublions point que le problème gobinien
 est surtout un problème moral. Quelle sera la valeur
-de chaque amalgame ?
+de chaque amalgame?
 
 L'amalgame vaudra tout d'abord ce que valent
 
 les éléments ethniques qui le forment, dans la proportion où ces éléments seront intervenus pour le
-former. D'autre part, il sera pourvu de cette « originalité nouvelle », qui est, selon Gobineau, le produit
+former. D'autre part, il sera pourvu de cette « originalité nouvelle qui est, selon Gobineau, le produit
 spécifique des combinaisons de races, et vaudra ce
 qu'elle vaut.
 . Si vous acceptez ces principes et concédez à Gobineau que les noirs ne palent pas les jaunes, que les
 jaunes ne valent pas les blancs, que le Sémite origi-
 {naire ne valait point l'Aryen originaire, — voici
-Idessinée toute l'échelle de la hiérarchie ethnique :
+Idessinée toute l'échelle de la hiérarchie ethnique:
 fil ne reste plus qu'à peindre en couleur la multi-
 [tude de ses échelons. Au resle, je ne vous sollicite
 (point de vous rallier à ces théories, mais seuleiment de les comprendre, et de consentir, en consé-
@@ -2684,20 +2669,20 @@ Quand l'histoire,
 
 antagonisme entre les races et leur mode de culture, il est
 bien évident que la dissemblance et l'inégalité résident au À
-fond de ces répugnances constitutives. (1) |
+fond de ces répugnances constitutives. (1)
 Gardons-nous toutefois de prendre une idée forcée de son inégalitarisme. Préoccupé d'établir ici
 de grandes divisions humaines et de construire une
-morale historique, M. de Gobineau n'envisage nullement les individus, mais les masses :
+morale historique, M. de Gobineau n'envisage nullement les individus, mais les masses:
 
 Je me refuse absolument à cette façon d'argumenter à
-qui consiste à dire: Tout nègre est inepte, êt ma principale
+qui consiste à dire: Tout nègre est inepte, ma principale
 raison pour men abstenir, c'est que je serais forcé de
 reconnaître, par compensation, que tout Européen est intel.
 ligent, et je me tiens à cent lieues d'un pareil paradoxe.
 Je n'atitendrai pas que les amis de l'égalité des races
 
-| viennent me montrer tel passage de tel livre de missionnaire ou de navigateur, d'où il conste (2) qu'un Yolof s'est
-montré charpentier vigoureux, qu'un Hottentot est devenu |
+viennent me montrer tel passage de tel livre de missionnaire ou de navigateur, d'où il conste (2) qu'un Yolof s'est
+montré charpentier vigoureux, qu'un Hottentot est devenu
 bon domestique, qu'un Cafre danse et joue du violon, et
 qu'un Bambara sait l'arithmétique...
 
@@ -2707,7 +2692,7 @@ ne révoque pas en doute qu'un bon nombre de chefs nègres]
 (2) Consrer, dit Littré, v. n. et impersonnel. Terme de jurispru
 dence. Etre bien établi d'une façon certaine. — « Par lesquelle;
 
-P lettres il constera qu'il fait rémission. » (Bossuet, Déf)— Vieux.
+lettres il constera qu'il fait rémission. » (Bossuet, Déf)— Vieux.
 
 dépassent, par la force et l'abondance de leurs idées, par la
 puissance de combinaison de leur esprit, par l'intensité de
@@ -2726,7 +2711,7 @@ puissances des hommes vulgaires de tous les types, on s'enquerra des côtés par
 par où elles se priment. Ce travail difficile et délicat ne
 pourra s'accomplir tant qu'on n'aura pas balancé de la manière la plus exacte, et, en quelque sorte, par des procédés
 mathématiques, la situation relative des races. Je ne sais
-même si jamais on obtiendra des résultats d'une clarté incontestable, et si, libre de ne plus prononcer uniquement |
+même si jamais on obtiendra des résultats d'une clarté incontestable, et si, libre de ne plus prononcer uniquement
 sur des faits généraux, on se verra maitre de serrer les
 nuances de si près que l'on puisse définir, reconnaître et
 classer les couches inférieures de chaque nation et les individualités passives. Dans ce cas, on prouvera sans peine
@@ -2737,20 +2722,20 @@ l'énergie, l'activité des sujets correspondants produits par les
 Voici donc l'humanité partagée en deux fractions très
 dissemblables, très inégales, (1) ou, pour mieux dire, en
 
-G) On reconnaît ici les « maîtres » et les « esclaves » de
+On reconnaît ici les « maîtres » et les « esclaves » de
 
-la vie et les prophéties du comie de Gobineau |
+la vie et les prophéties du comie de Gobineau
 une série de catégories subordonnées les unes aux autres et
 où le degré d'intelligence marque le degré d'élévation.
 
 Dans cette vaste hiérarchie... (1)
 
-Jarrête ici la lecture de cette page, où s'écha- ”
+Jarrête ici la lecture de cette page, où s'écha-
 faude si hardiment la pyramide de l'aristocratisme
-gobinien. Et grâce à elle, je vous signale comme élu :
-par M. de Gobineau lui-même ce mot de « hiérarchie », que je vous ai donné pour la clef de toute son
+gobinien. Et grâce à elle, je vous signale comme élu:
+par M. de Gobineau lui-même ce mot de « hiérarchie que je vous ai donné pour la clef de toute son
 
-j œuvre. Plus loin, nous le rencontrons encore
+œuvre. Plus loin, nous le rencontrons encore
 
 La hiérarchie des langues correspond rigoureusement à
 
@@ -2761,20 +2746,20 @@ théorie des mélanges ethniques à la matière de.
 l'histoire, — c'est-à-dire aux grandes civilisations
 humaines. M. de Gobineau se fera donc historien
 de la civilisation.
-Qu'est-ce qu'une « civilisation » ?
-Après une critique spirituelle et sévère des définitions offertes avant lui par M. Guizot eë pan
+Qu'est-ce qu'une « civilisation »?
+Après une critique spirituelle et sévère des définitions offertes avant lui par M. Guizot pan
 
 W. de Humboldt, M. de Gobineau arrête la formule
 
 Un état de stabilité relative, où des mullitudes s'efforcent
 de chercher pacifiquement la satisfaction de leurs besoins et
-raffinent leur intelligence et leurs mœurs. (1) {
+raffinent leur intelligence et leurs mœurs. (1)
 
 Dans cette acception, M. de Gobineau discerne
-d'elles fut composée de diverses « sociétés », groupant des peuples plus ou moins nombreux. L'auteur de l'Essai se propose de synthétiser les causes
+d'elles fut composée de diverses « sociétés groupant des peuples plus ou moins nombreux. L'auteur de l'Essai se propose de synthétiser les causes
 
-| de leur éclat, invariablement éphémère, et de leur
-| De ce concours de tableaux également émouvants et
+de leur éclat, invariablement éphémère, et de leur
+De ce concours de tableaux également émouvants et
 grandioses, je tirerai,
 pour établir l'inégalité des races humaines et la prééminence d'une seule sur toutes les autres,
 des preuves incorruptibles comme le diamant, et sur lesquelles la dent vipérine de l'idée démagogique ne pourra
@@ -2809,20 +2794,20 @@ M. de Gobineau, s'il est toujours très systématique, ne cesse jamais d'être n
 fais paraître sans nuances, dites-vous que je l'aurai
 
 Des noirs, des jaunes et des blancs, des Aryens
-et des Sémites, — c'est pour lui toute l'humanité !
+et des Sémites, — c'est pour lui toute l'humanité!
 
 En bas de l'échelle humaine est l'homme noir.
 Créature instable, toute d'emportement bestial et de
 désir. Le développement excessif de ses instincts est
-la marque de son infériorité spirituelle. Mais sou- |
-dain l'auteur de l'Essai ajoute ce correctif imprévu :
+la marque de son infériorité spirituelle. Mais sou-
+dain l'auteur de l'Essai ajoute ce correctif imprévu:
 c'est au nègre qu'on doit les arts...
 
-Admirez ce portrait du nègre :
+Admirez ce portrait du nègre:
 
 Ce n'est cependant pas une brute pure et simple, que ce
 nègre à front étroit et fuyant, qui porte, dans la partie
-moyenne de son crâne, les indices de certaines énergies |
+moyenne de son crâne, les indices de certaines énergies
 grossièrement puissantes. Si ses facultés pensantes sont
 médiocres où même nulles, il possède dans le désir, et par
 suite dans la volonté, une intensité souvent terrible... (1)
@@ -2833,19 +2818,19 @@ Cest, dira-t-on, une bien belle couronne que je pose
 sur la tête difforme du nègre, et un bien grand honneur à
 lui faire que de grouper autour de lui le chœur harmonieux
 des Muses. L'honneur n'est pas si grand. Je n'ai pas dit que
-toutes les Piérides fussent là réunies, il y manque les pius
+toutes les Piérides fussent réunies, il y manque les pius
 nobles, celles qui s'appuient sur la beauté préférablement à
 la passion... Qu'on lui traduise des vers de l'Odyssée, et notamment la rencontre d'Ulysse avec Nausicaa, le sublime de
-l'inspiration réfléchie : il dormira. Il faut chez tous les êtres,
+l'inspiration réfléchie: il dormira. Il faut chez tous les êtres,
 pour que la sympathie éclate, qu'au préalable l'intelligence
-ait compris, et là est le dificile avec le nègre. La sensitivité artistique de cet être, en elle-même puissante au-delà
+ait compris, et est le dificile avec le nègre. La sensitivité artistique de cet être, en elle-même puissante au-delà
 de toute expression, restera donc nécessairement bornée
 aux plus misérables emplois. Aussi, parmi tous les arts
 que la créature mélanienne préfère, la musique tient la première place, en tant qu'elle caresse son oreille par une succession de sons, et qu'elle ne demande rien à la partie pensante de son cerveau. Le nègre l'aime beaucoup, il en jouit
-avec excès ; pourtant, combien il reste étranger à ces conventions délicates par lesquelles l'imagination européenne
-a appris à ennoblir les sensations !
-Dans l'air charmant de Paolino du Mariage seeret :
-Pria che spunii in ciel l'aurora, etc...
+avec excès; pourtant, combien il reste étranger à ces conventions délicates par lesquelles l'imagination européenne
+a appris à ennoblir les sensations!
+Dans l'air charmant de Paolino du Mariage seeret:
+Pria che spunii ciel l'aurora, etc...
 la sensualité du blanc éclairé, dirigée par la science et la
 réflexion, va, dès les premières mesures, se faire, comme
 où dit, un tableau. La magie des sons évoque autour de lui
@@ -2857,36 +2842,36 @@ Les fleurs s'ouvrent, secouent la rosée, répandent discrètement leurs parfums
 
 la vie et les prophélies du comte de Gobineau
 déjà de leurs pétales. La porte du jardin s'ouvre, et sous les
-clématites et les pampres dont elle est à demi cachée, |
-paraissent, appuyés l'un sur l'autre, les deux amants qui ;
-vont s'enfuir. Rêve délicieux ! les sens y soulèvent douce- |
+clématites et les pampres dont elle est à demi cachée,
+paraissent, appuyés l'un sur l'autre, les deux amants qui;
+vont s'enfuir. Rêve délicieux! les sens y soulèvent douce-
 ment l'esprit et le bercent dans les sphères idéales où le
-goût et la mémoire lui offrent la part la plus exquise deson |
-Le nègre ne voit rien de tout cela. Il n'en saisira pas la |
-moindre part; et cependant, qu'on réussisse à éveiller ses |
-instincts : l'enthousiasme, l'émotion, seront bien autrement ;
+goût et la mémoire lui offrent la part la plus exquise deson
+Le nègre ne voit rien de tout cela. Il n'en saisira pas la
+moindre part; et cependant, qu'on réussisse à éveiller ses
+instincts: l'enthousiasme, l'émotion, seront bien autrement;
 intenses que notre ravissement contenu et notre satisfaction à
-Il me semble voir un Bambara assistant à l'exécution d'un $
+Il me semble voir un Bambara assistant à l'exécution d'un
 des airs qui lui plaisent. Son visage s'enflamme, ses yeux
 brillent. Il rit, et sa large bouche montre, étincelantes au
-milieu de sa face ténébreuse, ses dents blanches et aiguës. }
+milieu de sa face ténébreuse, ses dents blanches et aiguës.
 La jouissance vient... Des sons inarticulés font effort pour
 sortir de sa gorge, que comprime la passion; de grosses
-larmes roulent sur ses joues proéminentes ; encore un mo- à
-ment, il va crier : la musique cesse, il est accablé de %
+larmes roulent sur ses joues proéminentes; encore un mo- à
+ment, il crier: la musique cesse, il est accablé de
 Dans nos habitudes raffinées, nous nous sommes fait de
 l'art quelque chose de si intimement lié avee ce que les
-méditations de l'esprit et les suggestions de la science ont *
+méditations de l'esprit et les suggestions de la science ont
 de plus sublime, que ce n'est que par abstraction, et avec
 un certain effort, que nous pouvons en étendre la notion
-jusqu'à la danse. Pour le nègre, au contraire, la danse est, “a
-avec la musique, l'objet de la plus irrésistible passion. C'est }
-parce que la sensualité est pour presque tout, sinon tout,, |
-dans la danse... {
-Ainsi le nègre possède au plus haut degré la faculté sen- :
+jusqu'à la danse. Pour le nègre, au contraire, la danse est,
+avec la musique, l'objet de la plus irrésistible passion. C'est
+parce que la sensualité est pour presque tout, sinon tout,,
+dans la danse...
+Ainsi le nègre possède au plus haut degré la faculté sen-:
 suelle sans laquelle il n'y a pas d'art possible; et, d'autre à
-part, l'absence des aptitudes intellectuelles le rend complète- £
-ment impropre à la culture de l'art, mème à l'appréciation :
+part, l'absence des aptitudes intellectuelles le rend complète-
+ment impropre à la culture de l'art, mème à l'appréciation:
 de ce que cette noble application de lintelligence des
 
 humains peut produire d'élevé. Pour mettre ses facultés en
@@ -2905,7 +2890,7 @@ C'est d'abord une page de M. Paul Adam que je
 veux vous lire. Cet observateur magistral, qui
 semble créer tout ce qu'il voit, envoyait cette année
 au Temps d'admirables correspondances sur l'Exposition de Saint-Louis. L'une d'elles contrôle pour
-nous sur place les assertions dé Gobineau :
+nous sur place les assertions Gobineau:
 
 Quels que soient les défauts propres à la descendance de
 
@@ -2927,32 +2912,32 @@ pédagogues adroits inculqueraient vite à ce peuple le goût
 d'un art subtil, très éducateur de la mentalité. Le sensualisme
 de la race aïderait fort le développement du goût musical. (1)
 
-N'est-ce point là du pur Gobineau ?
+N'est-ce point du pur Gobineau?
 
 Ensuite, j'évoquerai ce début du Cas Wagner,
 où Nietzsche, prenant congé « du nord humide, de
-toutes les brumes de l'idéal wagnérien », oppose et
-préfère la musique de Carmen à celle de Wagner :
+toutes les brumes de l'idéal wagnérien oppose et
+préfère la musique de Carmen à celle de Wagner:
 
 Ici s'exprime une sensualité différente, une sensibilité
 différente, une autre gaieté. Cette musique est gaie; mais
 non pas d'une gaieté française ou allemande. Sa gaieté est
-vraiment africaine ; la fatalité est en elle, la joie y est de
+vraiment africaine; la fatalité est en elle, la joie y est de
 courte durée, soudaine, sans rémission. Bizet est enviable
-pour avoir eu le courage de cette sensibilité qui n'avait pas
+pour avoir le courage de cette sensibilité qui n'avait pas
 jusqu'alors trouvé d'expression dans la musique de l'Europe
 civilisée, — je peux dire cette sensibilité méridionale, cuivrée, ardente…
 
-Pour un peu, Nietzsche eût ajouté : cette sensibilité nègre... M. de Gobineau, s'il avait assez vécu
+Pour un peu, Nietzsche eût ajouté: cette sensibilité nègre... M. de Gobineau, s'il avait assez vécu
 
-pour lire le Cas Wagner, n'eût pas manqué d'accepter cette interprétation : le génie de Bizet ennoblissant et stylisant l''ardeur du désir africain, de la
+pour lire le Cas Wagner, n'eût pas manqué d'accepter cette interprétation: le génie de Bizet ennoblissant et stylisant l''ardeur du désir africain, de la
 
 En écrivant sur Carmen ces remarques si particulières, Nietzsche avait-il oublié la lecture que lui
-fit sa sœur de l'Essai sur l'inégalité des races humaines ? (1)
+fit sa sœur de l'Essai sur l'inégalité des races humaines? (1)
 
 Au moral comme au physique, l'homme jaune
 
-est l'antithèse du noir :
+est l'antithèse du noir:
 . Les jaunes sont des gens pratiques dans le sens étroit du
 mot. Ils ne rêvent pas, ne goûtent pas les théories, inventent peu, mais sont capables d'apprécier et d'adopter ce
 qui sert. Leurs désirs se bornent à vivre le plus doucement et le plus commodément possible. On voit qu'ils sont
@@ -2962,20 +2947,20 @@ bourgeoisie que tout civilisateur désirerait choisir pour
 (1) Un dernier rapprochement, fort piquant, m'a été signalé par
 mon maître M. Jalliffier; il se rapporte à la théorie esthétique
 offerte par lÆssai. Cette théorie, ainsi qu'on vient de voir,
-consiste à tenir le « génie artistique » pour « également étranger aux trois grands types », et naissant de l « hymen des
+consiste à tenir le « génie artistique » pour « également étranger aux trois grands types et naissant de « hymen des
 blancs avec les noirs ». Or, on retrouve exactement la même
 théorie chez Viollet-le-Duc (Dictionnaire raisonné de l'architecture
 française. Tome VIII. Paris, 1866. Article Sculpture). Viollet-le-Duc,
 qui a beaucoup écrit pour un artiste, faisait des emprunts à sa
 convenance. Il connaissait M. de Gobineau, et M. André Hallays a
 
-\ même signalé leur commerce épistolaire (Journal des Débats,
+même signalé leur commerce épistolaire (Journal des Débats,
 25 avril 1903). Bien que Viollet-le-Duc ne cite point lEssai, il west
 pas douteux qu'il Pait mis à contribution. En effet, après avoir
 déclaré que « toute explosion d'art, et la sculpture en première
 
-_ la vie et les prophéties du comte de Gobineau
-base de sa société : ce n'est cependant pas de quoi créer
+la vie et les prophéties du comte de Gobineau
+base de sa société: ce n'est cependant pas de quoi créer
 cette société ni lui donner du nerf, de la beauté et de laction. (1)
 
 Seuls, les peuples blancs engendrent ces facteurs
@@ -2983,24 +2968,24 @@ essentiels. La beauté physique, la puissance intellectuelle, l'énergie réflé
 instinct extraordinaire de l'ordre, non plus seulement comme gage de repos et de paix, mais comme
 moyen indispensable de conservation, ef, en même
 temps, un goût prononcé pour la liberté, même
-extrême », (2) — tels sont les attributs du blanc. Et
+extrême (2) — tels sont les attributs du blanc. Et
 ces dons ont assuré sa suprématie sur le globe. Enfin, la caractéristique de l'homme blanc est son
 aptitude à agir en vertu d'un mobile également
 étranger aux noirs et aux jaunes. Ce ressort, — si
 noble qu'il en devient proprement indéfinissable,
-— c'est l''Aonneur :
+— c'est l''Aonneur:
 
 Les blancs, se distinguent encore par un amour singulier
 de la vie. Il paraît que, sachant mieux en user, ils lui
 ligne, ne se produit jamais en histoire qu'au contact de deux races
-différentes », et que « Part n'est jamais que le résultat d'une sorte |
-de fermentation intellectuelle de natures pouroues d'aptitudes diverses », il annonce son dessein d'expliquer ainsi, dans le détail,
+différentes et que « Part n'est jamais que le résultat d'une sorte
+de fermentation intellectuelle de natures pouroues d'aptitudes diverses il annonce son dessein d'expliquer ainsi, dans le détail,
 les « singulières évolutions de Part de la sculpture pendant le
 moyen-âge ». Ensuite, il esquisse un portrait des blancs, des noirs
 et des jaunes, des Aryens et des Sémites, copié dans l'Essai à ce
 point que, seul avec M. de Gobineau peut-être, il orthographie
-partout « Aryans? », et non pas « Aryens ». — En chemin, cette
-phrase donne à rêver : « La philologie, écrit Viollet-le-Duc, a dé-
+partout « Aryans? et non pas « Aryens ». — En chemin, cette
+phrase donne à rêver: « La philologie, écrit Viollet-le-Duc, a dé-
 montré que les Sémites ne sont pas des Aryans…. »
 
 attribuent plus de prix, ils la ménagent davantage, en
@@ -3013,12 +2998,12 @@ le commencement de l'espèce. Je n'ai pas besoin d'ajouter
 que ce mot d'honneur et la notion civilisatrice qu'il renferme
 sont, également, inconnus aux jaunes et aux noirs. (1)
 
-Entre tous les blancs, les Aryens (ou « Arians »)
+Entre tous les blancs, les Aryens (ou « Arians
 sont nobles. Leur nom même est le plus beau
 qu'une race d'hommes püût s'arroger, car il signifie
-honorable. (Rapprochez la racine Ar du grec 'Apns
+honorable. (Rapprochez la racine du grec 'Apns
 « qui personnifie l'être honorable par excellence, le
-dieu des batailles, le héros parfait », (2) et de l'allemand Æhre, synonyme d'honneur. On la retrouve
+dieu des batailles, le héros parfait (2) et de l'allemand Æhre, synonyme d'honneur. On la retrouve
 encore dans le grec àpert, c'est-à-dire « vertu »). —
 vigueur musculaire, carnation blonde, voilà l'Aryen!
 M. de Gobineau n'hésite que sur la couleur des
@@ -3026,9 +3011,9 @@ yeux. La raison de ce doute ne serait-elle point que
 lui-même, bien qu'il se tint pour un Aryen, il
 n'avait pas les yeux bleus? (3)
 
-* (3) Explication proposée par M. Ernest Seillière, Le Comte de
+(3) Explication proposée par M. Ernest Seillière, Le Comte de
 Gobineau et l''Aryanisme historique, page 46. — M. de Gobineau
-avait les yeux « brun doré », dit la préface d'Amadis.
+avait les yeux « brun doré dit la préface d'Amadis.
 
 la pie et les prophéties du comte de Gobineau
 
@@ -3042,16 +3027,16 @@ ayant débordé sur le continent africain, fusionna
 par des mariages avec les Chamites mélanisés, tout
 Sémite est un peu nègre. C'est une parenté qui ne
 
-, va pas sans déchéance. Comparé à l'Aryen pur, le
+, pas sans déchéance. Comparé à l'Aryen pur, le
 
-| Sémite a le teint moins clair, et sa structure est plus
+Sémite a le teint moins clair, et sa structure est plus
 
-| chétive. En politique, son génie le pousse à « l'abso-
+chétive. En politique, son génie le pousse à « l'abso-
 
-| lutisme complet ». (r) Ce génie fut inventeur d'uné
+lutisme complet ». (r) Ce génie fut inventeur d'uné
 
 soumission avilissante et insupportable à ces deux
-monstres fictifs : la Patrie ; la Loi.
+monstres fictifs: la Patrie; la Loi.
 
 La Patrie, selon l'aryaniste Gobineau, est une
 invention tyrannique du génie de Sem, à laquelle
@@ -3060,11 +3045,11 @@ aryen. Certes, j'ignore comment nos antisémites
 
 ? modernes, adaptateurs ignorants de l'Essai sur les
 races, accueilleront cette vérité historique... Mais
-qu'y pouvons-nous? Elle est certifiée par l & antisémite » Gobineau. Apprenez de lui comment les
+qu'y pouvons-nous? Elle est certifiée par antisémite » Gobineau. Apprenez de lui comment les
 Sémites, en infusant leur sang aux Hellènes, impor-
 
-tèrent cette « monstruosité chananéenne », — l'idée
-de patrie, — dans la Grèce sémitisée :
+tèrent cette « monstruosité chananéenne — l'idée
+de patrie, — dans la Grèce sémitisée:
 
 Le citoyen se flattait hautement d'être libre, parce qu'il
 n'était pas soumis à un homme, et que, s'il rampait avec
@@ -3090,7 +3075,7 @@ Tels qu'ils sont, Aryens et Sémites ont civilisé
 
 le monde. Ces deux nobles familles blanches
 
-la vie et les prophéties du comte de Gobineau .
+la vie et les prophéties du comte de Gobineau.
 ont façonné l'immense tourbe des noirs et des
 
 L'Inde du brahmanisme et des castes fut jadis une
@@ -3101,14 +3086,14 @@ phénicienne et juive, est la seule civilisation proprement sémitique qu'ait co
 tique société chinoise est née d'une alluvion aryenne
 sur couches jaunes. Dans les temps modernes, les
 Chinois ont été deux fois conquis. Mais ils ont éliminé leurs vainqueurs mongols, et élimineront de
-même leurs vainqueurs mandchoux :
+même leurs vainqueurs mandchoux:
 
-Is leur ont imposé le respect de leurs mœurs; ils leur ont
+leur ont imposé le respect de leurs mœurs; ils leur ont
 beaucoup donné, et n'en ont presque rien reçu. Une fois,
 ils ont expulsé les premiers envahisseurs, et, dans un temps
 donné, ils en feront autant des seconds. (1)
 
-À moins, objecterez-vous, qu'ils ne soient subjugués par de nouveaux maîtres ?.. — Voici venir
+À moins, objecterez-vous, qu'ils ne soient subjugués par de nouveaux maîtres?.. — Voici venir
 les Russes. Voici venir le Japon. Cest ici, je
 le sens, que vous guettez Gobineau. Déjà, vous songez que les événements actuels d'Extrême-Orient,
 en témoignant, pour le moins, de l'équivalence des
@@ -3120,7 +3105,7 @@ et mondiale des blancs sur les jaunes... Mais ne
 triomphez pas si vite! Ce diable d'homme a tout
 prévu. Consultez l'Essai. Puis, vous déciderez si
 les Russes ne seraient pas ici les jaunes, — tandis
-que les Japonais seraient presque des blancs :
+que les Japonais seraient presque des blancs:
 Au Japon, les apparences sont chinoises, et un grand
 nombre d'institutions ont été apportées par plusieurs colonies venues originairement, et à différentes époques, du
 Céleste-Empire. Il y existe aussi des éléments ethniques
@@ -3131,15 +3116,15 @@ laïque et ecclésiastique ne se fait pas obéir sans peine. La
 politique soupçonneuse de la Chine, à l'égard des étran-
 . gers, a été adoptée par le Koubo, qui prend grand soin d'isoler ses sujets du contact de l'Europe. Il paraît que l'état des
 esprits lui donne raison, et que, taillés sur un tout autre
-| modèle que ceux de la Chine, ses administrés, doués d'une
+modèle que ceux de la Chine, ses administrés, doués d'une
 Jaçon dangereuse, sont âpres aux nouveautés. Le Japon
 semble donc entraîné dans le sens de la civilisation chinoise par les résultats des nombreuses immigrations jaunes,
-et en même temps ül y résiste par l'effet de principes ethniques qui n'appartiennent pas au sang finnois. En effet, il
-‘ existe certainement dans la population japonaise une forte
+et en même temps y résiste par l'effet de principes ethniques qui n'appartiennent pas au sang finnois. En effet, il
+existe certainement dans la population japonaise une forte
 dose d'alliage noir, et peut-être mème quelques éléments
 blancs dans les hautes classes de la société. Ce qui confirj merait l'idée que des colonies de race blanche ont civilisé
 : primitivement la population malaise qui fait le fond de ce
-() Écrit en 1853, C'est-à-dire quinze années avant la Révolution
+Écrit en 1853, C'est-à-dire quinze années avant la Révolution
 
 la vie et les prophélies du comte de Gobineau
 
@@ -3158,7 +3143,7 @@ témoignage des annales écrites pour établir le même fait.
 Ainsi s'expliqueraient les particularités physiologiques et
 morales qui créent l'originalité japonaise. (1)
 
-Et les Russes ? — Ce sont des Slaves, et, comme
+Et les Russes? — Ce sont des Slaves, et, comme
 tels, Qune des familles les plus vieilles, les plus usées,
 les plus mélangées, les plus dégénérées qui existent ».
 Réduits « à la condition d'annexes et d'écoliers de
@@ -3179,14 +3164,14 @@ des Européens. — De telles fantaisies me paraissent
 surtout de nature à prouver combien il est peu loisible de faire fond sur la science des races, à
 l'époque de chaos ethnique où l'humanité est dès
 maintenant parvenue. Mais, sur le point qui nous
-occupe, M. de Gobineau est paré : l'issue du conflit
+occupe, M. de Gobineau est paré: l'issue du conflit
 russo-japonais, quelle qu'elle soit, ne saurait infirmer ses prévisions.
 
 Quittons ces jaunes, et regardons les Grecs.
 
 Les Grecs furent d'abord des Aryens. Mais ils se
 sémitisèrent. Et, s'étant sémitisés, ils déchurent.
-Ulysse fut l'enfant de ces métissages :
+Ulysse fut l'enfant de ces métissages:
 
 Voilà bien le type du Grec trempé de phénicien; voilà
 lhomme qui nommerail certainement, dans sa généalogie,
@@ -3196,49 +3181,47 @@ plaider est séduit. Nul mensonge ne l'effraye, nulle fourberie
 ne l''embarrasse, aucune perfidie ne lui coûte. Il sait tout.
 EÉloquent, artiste, fourbe et dangereux, c'est un compatriote,
 
-133
-
 la vie et les prophéties du comte de Gobineau
-un émule du pirate-marchand né à Sidon, du sénateur qui
+un émule du pirate-marchand à Sidon, du sénateur qui
 gouvernera Carthage, tandis qu'ingénieux à trouver des
 idées, inébranlable dans ses vues, habile à gouverner ses passions autant qu'à tempérer celles des autres, modéré quand
-il le veut, modeste parce que l'orgueil est une enflure mala- |
-droite de la raison, ©'est un Arian. (1) |
-Plus tard, les guerres médiques paraissent opposer la Grèce à l'Asie, et barrer la puissance perse. |
-Semblant trompeur ! En réalité, les Hellènes sémitisés valaient la cohue asiatique. Eschyle ne l'igno- |
+il le veut, modeste parce que l'orgueil est une enflure mala-
+droite de la raison, ©'est un Arian. (1)
+Plus tard, les guerres médiques paraissent opposer la Grèce à l'Asie, et barrer la puissance perse.
+Semblant trompeur! En réalité, les Hellènes sémitisés valaient la cohue asiatique. Eschyle ne l'igno-
 rait point, lorsqu'il évoquait, par le songe d'Atossa,
-la vierge dorienne et la vierge persane, étrangères |
-selon leurs parures, mais sœurs selon la race : |
+la vierge dorienne et la vierge persane, étrangères
+selon leurs parures, mais sœurs selon la race:
 Xerxès... rassembla une cohue de 700.000 hommes, leur
-fit passer l'Hellespont sur des ouvrages gigantesques, s'ir- |
+fit passer l'Hellespont sur des ouvrages gigantesques, s'ir-
 rita contre la turbulence des flots, et alla se faire battre, à
 la stupéfaction générale, par des gens plus étonnés que lui
-de leur bonheur et qui n'en sont jamais revenus. ‘
+de leur bonheur et qui n'en sont jamais revenus.
 Dans les pages des écrivains grecs, cette histoire des
 Thermopyles, de Marathon, de Platées, donne lieu à des
 récits bien émouvants. L'éloquence a brodé sur ce thème
-avec une abondance qui ne peut pas surprendre de la part \
+avec une abondance qui ne peut pas surprendre de la part
 d'une nation si spirituelle. Comme déclamation, c'est enthou- à
-siasmant; mais à parler sensément, tous ces beaux triom- hi
+siasmant; mais à parler sensément, tous ces beaux triom-
 phes ne furent qu'un accident, et le courant naturel des à
 choses, c'est-à-dire l'effet inévitable de la situation ethnique, Hi]
-n'en fut pas le moins du monde changé... |
+n'en fut pas le moins du monde changé...
 Malgré l'issue inespérée de la guerre persique, la Grèce ce
-était contrainte par la puissance sémitique de son sang de |
+était contrainte par la puissance sémitique de son sang de
 
 se rallier tôt ou tard aux destinées de l'Asie, elle qui avait
 subi si longtemps l'influence de cette contrée. (1)
 
 Les Macédoniens introduisent pourtant leur
 apport aryen dans la société grecque. Mais, si peu
-nombreux, comment pourraient-ils la rajeunir ?
-Attaqué en Grèce, ce réactif se dissout totalement :
-après la conquête de la Perse :
+nombreux, comment pourraient-ils la rajeunir?
+Attaqué en Grèce, ce réactif se dissout totalement:
+après la conquête de la Perse:
 
 Le grand esprit d'Alexandre dut comprendre qu'après son
 triomphe, c'en était fait de l''Hellade; que son épée venait
 
-._  d'accomplir l'œuvre de Darius et de Xerxès, en renversant
+._ d'accomplir l'œuvre de Darius et de Xerxès, en renversant
 seulement les termes de la proposition; que, si la Grèce
 n'avait pas été asservie lorsque le grand roi avait été à elle,
 elle l'était maintenant qu'elle‘avait marché vers lui; elle se
@@ -3247,12 +3230,12 @@ engloutissait tout. Marathon et Platées s'effaçaient sous les
 vénéneux triomphes d'Arbelles et d'Issus, et le conquérant
 grec, le roi macédonien, se transfigurant, était devenu le
 grand roi lui-même. Plus d'Assyrie, plus d'Egypte, plus de
-Perside, mais aussi plus d'Hellade : l'univers occidental
+Perside, mais aussi plus d'Hellade: l'univers occidental
 n'avait désormais qu'une seule civilisation. (2)
 
 L'unité spécieuse du monde hellène se réalise
 ainsi dans la déchéance politique et morale, consé-
-querce du déséquilibre ethnique :
+querce du déséquilibre ethnique:
 
 En substituant l'orgueil factice du citoyen au légitime
 sentiment de dignité de la créature pensante, le système
@@ -3265,43 +3248,43 @@ l'approbation, la sanction de ce maître. Toutes les questions
 de conscience demeuraient irrésolues dans l'esprit aussi
 longtemps qu'on ne savait ce que la patrie ordonnait qu'on
 en pensät. On n'était pas libre de suivre là-dessus une donnée plus sérieuse, plus rigoureuse, moins variable, qu'à
-défaut d'une loi religieuse épurée, l'homme arian eût trouvée |
+défaut d'une loi religieuse épurée, l'homme arian eût trouvée
 jadis dans sa raison...
-Le peuple grec, parce qu'il était arian, avait trop de bon |
+Le peuple grec, parce qu'il était arian, avait trop de bon
 sens, et parce qu'il était sémite, avait trop d'esprit, pour ne
-pas sentir que sa situation ne valait rien et qu'il devait y |
+pas sentir que sa situation ne valait rien et qu'il devait y
 avoir mieux en fait d'organisation politique. Mais par la
-raison que le contenu ne saurait embrasser le contenant, le |
-peuple grec ne se mettait pas en dehors de lui-même, et ne |
-se haussait pas jusqu'à comprendre que la source du mal |
-était dans l'absolutisme hébétant du principe gouvernemen- |
+raison que le contenu ne saurait embrasser le contenant, le
+peuple grec ne se mettait pas en dehors de lui-même, et ne
+se haussait pas jusqu'à comprendre que la source du mal
+était dans l'absolutisme hébétant du principe gouvernemen-
 tal. Il en cherchait vainement le remède dans les moyens
 secondaires. A la plus belle époque, entre la bataille de Ma-
-rathon el la guerre du Péloponèse, tous les hommes
-éminents inclinaient vers l'opinion vague que nous appelle- .
-rions aujourd'hui conservatrice. Ils n'étaient pas aristocrates, !
+rathon la guerre du Péloponèse, tous les hommes
+éminents inclinaient vers l'opinion vague que nous appelle-.
+rions aujourd'hui conservatrice. Ils n'étaient pas aristocrates,!
 dans le vrai sens du mot. (1)
-Un seul homme fit exception, — Socrate : A
+Un seul homme fit exception, — Socrate: A
 En cherchant à rendre l'idée du vice et de la vertu indé-
 pendante de l'intérêt politique, et à élever l'homme intérieur
 à côté et en dehors du citoyen, ce rhéteur avait au moins À
-entrevu la difficulté... Socrate était lantagoniste du patrio- :
+entrevu la difficulté... Socrate était lantagoniste du patrio-:
 tisme absolu. À ce titre, il méritait que le système le frap- À
 Voilà, sur Socrate, un jugement dont l'exacte
 contre-partie est dans Nietzsche. Rappelez-vous le
 
 « problème de Socrate, » dans Gützen-Dämmerung.
-Gobineau déclare : — Socrate fut un noble Hellène,
-un aristocrate. — Et Nietzsche de répliquer :
+Gobineau déclare: — Socrate fut un noble Hellène,
+un aristocrate. — Et Nietzsche de répliquer:
 
-Socrate appartenait, par sa naissance, au plus bas peuple ; Socrate était peuple. On sait, on voit même encore
+Socrate appartenait, par sa naissance, au plus bas peuple; Socrate était peuple. On sait, on voit même encore
 comme il était laid. Mais la laideur, qui est en soi une objection, est presque une réfutation chez les Grecs. Socrate
 
--  élait-il vraiment un Grec? La laideur est tantôt l'indice d'un
+- élait-il vraiment un Grec? La laideur est tantôt l'indice d'un
 croisement de races, tantôt celui d'une dégénérescence...
 
 Je cherche à saisir de quelle idiosyncrasie provient
-l'équation socratique : Raison — Vertu — Bonheur, cette
+l'équation socratique: Raison — Vertu — Bonheur, cette
 équation la plus bizarre qu'il y aït et qui a contre elle, en
 particulier, tous les instincis des anciens Hellènes.
 
@@ -3309,7 +3292,7 @@ Cette symétrie dans la contradiction, cette identité dans la manière de compr
 de le ramener à une question de sang et de race, ne
 sont-elles pas ici la marque certaine des réminis-
 
-| cences gobiniennes de Nietzsche ?
+cences gobiniennes de Nietzsche?
 
 La civilisation italique, « d'où sortit la culture
 romaine, fut une marqueterie de Celtes, d'Ibères,
@@ -3317,32 +3300,30 @@ d'Arians et de Sémites ». (1) Au contact de Carthage
 et de l'Asie, elle ne cessa de se sémitiser, comme
 s'était sémitisée la Grèce, et par conséquent de dé-
 
-137
-
 la vie et les prophéties du comte de Gobineau
 choir, jusqu'au jour où l'essence germanique, accumulée au nord et à l'ouest de l'Europe, introduisit
 enfin sa valeur dans la dégénération romaine.
-La belle noblesse scandinave du comte de Gobi- \
+La belle noblesse scandinave du comte de Gobi-
 neau, — rejeton d'Odin, — le préserve ici de tomber
-dans les complicités ethniques où il ne s'étonnera |
-point d'avoir vu glisser Augustin et Amédée
+dans les complicités ethniques où il ne s'étonnera
+point d'avoir glisser Augustin et Amédée
 Thierry, ces petits bourgeois romanisants. Tout son
 sang se prononce pour l''Aryen énergique et fruste,
-contre le Romain sémitisé :
+contre le Romain sémitisé:
 
-Que d'idées, non pas nées d'hier, très antiques au contraire, mais depuis longtemps disparues des contrées du ‘4
+Que d'idées, non pas nées d'hier, très antiques au contraire, mais depuis longtemps disparues des contrées du
 Midi, et oubliées avec les nobles races qui jadis les avaient à
 pratiquées, allaient reparaître dans le monde! Que d'in-
-stincts diamétralement opposés à l'esprit hellénistique !
+stincts diamétralement opposés à l'esprit hellénistique!
 Vertus et vices, défauts et qualités, tout dans les races arri-
-vantes élait combiné de façon à transformer la face de i)
+vantes élait combiné de façon à transformer la face de
 l'univers civilisé. Rien d'essentiel ne devait être détruit, à
 tout devait être changé. Les mots même allaient perdre leur de
 sens. La liberté, l'autorité, la loi, la patrie, la monarchie, la TE
 religion même, se dépouillant peu à peu de costumes et d'in-
 signes usés, allaient pour plusieurs siècles en posséder je
-d'autres, bien autrement sacrés... (1) hi
-Là où l'élément germanique n'a pas pénétré, il n'y a pas dl
+d'autres, bien autrement sacrés... (1)
+où l'élément germanique n'a pas pénétré, il n'y a pas
 de civilisation à notre manière. (2)
 Dans cette Rome sémitisée de l'époque impériale, (
 
@@ -3355,7 +3336,7 @@ l'obéissance. Dans quelque état d'anarchie ethnique que se
 trouve un corps social, dès qu'une armée existe, il faut sans
 biaiser lui laisser cette règle invariable. Pour ce qui concerne le reste de l'organisme politique, tout peut'être en
 question. On y doutera de tout; on essayera, raillera,
-conspuera tout ; mais, quant à l'armée, elle restera isolée
+conspuera tout; mais, quant à l'armée, elle restera isolée
 au milieu de l'État, peut-être mauvaise quant à son but
 principal, mais toujours plus énergique que son entourage,
 immobile, comme un peuple facticement homogène. Un
@@ -3366,7 +3347,7 @@ débris de l'édifice légal qui, sans cesse relevé, sans cesse
 s'écroule, l'armée finit par éclipser le reste, et que les
 masses peuvent se croire encore quelquefois aux temps
 
-| heureux de leur vigoureuse enfance où les fonctions les
+heureux de leur vigoureuse enfance où les fonctions les
 plus diverses se réunissaient sur les mêmes têtes, le peuple
 étant l'armée, l'armée étant le peuple. Il n'y a pas trop à
 s'applaudir, toutefois, de ces faux semblants d'adolescence
@@ -3390,12 +3371,12 @@ Je reviens au Surhomme germain.
 temps le monde. À mesure que l'aryanisme aristocratique perd du terrain, la démocratie sémitique
 en gagne. En France, dès le temps des Valois, la
 naissance du loyalisme monarchique, étouffant
-l'ardeur féodale, marque le recul de lindividualisme aryen :
+l'ardeur féodale, marque le recul de lindividualisme aryen:
 
 L'honneur avait été jadis chez les nations arianes, était
 presque encore resté pour les Anglais et même pour les
 Allemands, une théorie du devoir qui s'accordait bien avec
-là dignité du guerrier libre. On peut même se demander si,
+dignité du guerrier libre. On peut même se demander si,
 sous ce mot d'honneur, le gentilhomme immédiat de l'empire et le tenancier des Tudors ne comprenaient pas surtout
 la haute obligation de maintenir ses prérogatives personnelles au-dessus des plus puissantes attaques. Dans.tous les
 cas, il n'admettait pas qu'il en düt faire le sacrifice à personne. Le gentilhomme français fut, au contraire, sommé de
@@ -3414,20 +3395,19 @@ n'était pas loin des inspirations sémitiques, et la noblesse
 française, en l'acceptant, devait à la fin tomber dans des
 habitudes bien voisines de la servilité. (1)
 Si le gentilhomme français se laissa dégrader de
-la sorte, c'est que son sang @ n'était plus assez
+la sorte, c'est que son sang n'était plus assez
 pur » (2) pour opposer une capacité de résistance.
 Le noble est sémitisé. Le bourgeois Fest bien
 davantage. Le peuple, entièrement. A dater de la
-fin du XV: siècle, l'Europe retourne à F imitation
-de l'univers impérial », au « triomphe infaillible de
+fin du XV: siècle, l'Europe retourne à imitation
+de l'univers impérial au « triomphe infaillible de
 la confusion romaine ». (3) Ni l'Allemagne, ni l'Autriche, ni l'Espagne, ni même l'Angleterre, n'ont
-plus en elles de quoi réagir. L'empire russe & n'a
+plus en elles de quoi réagir. L'empire russe n'a
 reçu jamais que de trop faibles apports de l'essence
 noble » (4). La France, « ce pays où les races sont
-plus mélangées que partout ailleurs peut-être », (5)
+plus mélangées que partout ailleurs peut-être (5)
 a hérité de l'Italie la tâche d'absorber les « hautes
 positions sociales au sein d'une vaste confusion de
-1
 
 la vie et les prophéties du comte de Gobineau
 tous les éléments ethniques que leur incohérence et
@@ -3447,45 +3427,45 @@ mexicaine, — rencontrées au seizième siècle par les
 conquérants espagnols, résultaient de la fécondation
 des métis noirs-jaunes d'Amérique (prétendue race
 rouge) par d'aventureux navigateursislandais, héros
-de la mer... Voilà pour les aborigènes. Et la descendance des colons anglo-saxons agonise :
+de la mer... Voilà pour les aborigènes. Et la descendance des colons anglo-saxons agonise:
 
 Pour peu que le mouvement qui pousse chaque année
 les Irlandais et les Allemands, par centaines de mille, sur
 le sol américain se soutienne encore quelque temps, avant
 
-Ë la fin du siècle, la race nationale sera en partie éteinte. Du
+la fin du siècle, la race nationale sera en partie éteinte. Du
 reste, elle est déjà fortement affaiblie par les mélanges. Elle
 continuera sans doute quelque temps encore à donner lapparence de l'impulsion; puis cette apparence s'effacera, et
 l'empire sera tout à fait aux mains d'une famille mixte, où
 l'élément anglo-saxon ne jouera plus qu'un rôle des plus
 
 Et ces émigrants, récents arrivés, qui chaque jour
-affluent sur le sol de l'Amérique, — quels sont-ils ?
+affluent sur le sol de l'Amérique, — quels sont-ils?
 Ils représentent les échantillons les plus variés de ces
 races de la vieille Europe dont il y a le moins à attendre.
-Ce sont les produits du détritus de tous les temps : des
+Ce sont les produits du détritus de tous les temps: des
 Irlandais, des Allemands, tant de fois métis, quelques Fran-
 çais qui nele sont pas moins, des Italiens qui les surpassent
 tous. La réunion de tous ces types dégénérés donne et donnera nécessairement la naissance à de nouveaux désordres
 ethniques; ces désordres n'ont rien d'inattendu, rien de
-nouveau ; ils ne produiront aucune combinaison qui nesoit
+nouveau; ils ne produiront aucune combinaison qui nesoit
 réalisée déjà ou ne puisse l'être sur notre continent. Pas un
 élément fécond ne saurait s'en dégager, et même le jour où
 des produits résultant de séries indéfiniment combinées
 entre des Allemands, des Irlandais, des Italiens, des Fran-
-} çais et des Anglo-Saxons, iront par surcroît se réunir,
+çais et des Anglo-Saxons, iront par surcroît se réunir,
 s'amalgamer dans le sud avec le sang composé d'essence
 indienne, nègre, espagnole et portugaise qui y réside, il
 n'y a pas moyen de s'imaginer que d'une si horrible confu-
-| sion il résulte autre chose que la juxtaposition incohérente
+sion il résulte autre chose que la juxtaposition incohérente
 des êtres les plus dégradés.
 Ce peuple qui se dit jeune, c'est le vieux peuple d'Europe,
-| moins contenu par des lois plus complaisantes, non pas
+moins contenu par des lois plus complaisantes, non pas
 mieux inspiré. Dans le long et triste voyage qui jette les émigrants à leur nouvelle patrie, l'air de l'Océan nelestransforme
-| pas. Tels ils étaient partis, tels ils arrivent. Le simple transfert
+pas. Tels ils étaient partis, tels ils arrivent. Le simple transfert
 d'un point à un autre ne régénère pas les races plus qu'à
-R Conclusion : dans les dix grandes civilisations
-| ne, « pas une race mélanienne n'apparaît
+Conclusion: dans les dix grandes civilisations
+ne, « pas une race mélanienne n'apparaît
 
 la vie et les prophéties du comte de Gobineau
 
@@ -3494,10 +3474,10 @@ au rang des initiés. De même, point de civilisations
 spontanées chez les nations jaunes, et la stagnation
 lorsque le sang arian s'est trouvé épuisé ». (1)
 
-| Chaque fois que M. de Gobineau interroge l'histoire, elle répond : Mélange. — Mélange des blancset
+Chaque fois que M. de Gobineau interroge l'histoire, elle répond: Mélange. — Mélange des blancset
 des noirs, des blancs et des jaunes, des noirs et des
 jaunes, des Sémites et des Aryens. Elle répond
-aussi : supériorité des blancs sur les noirs et sur les
+aussi: supériorité des blancs sur les noirs et sur les
 jaunes, et, parmi les blancs, supériorité infinie du
 
 Aïnsi dessinée, l'histoire est une fresque où
@@ -3513,17 +3493,17 @@ que, chemin faisant, ilne confesse l'extrême embarras de ce dosage. Si avant qu
 les documents ethnologiques de l'humanité, il n'isole
 guère d'éléments purs. Trop de mélanges réalisés à
 
-l'infini, depuis combien de siècles ! opposent leur
+l'infini, depuis combien de siècles! opposent leur
 trame indéchiffrable aux curiosités de la science.
 Notre langage manque des symboles délicats et précis
 qu'il faudrait, pour désigner tant d'alliages changeants, parfois si homogènes d'aspect qu'on estamené
 à les tenir pour l'équivalent factice de races neuves
-et stables. — Mais la théorie des &« mélanges » est
+et stables. — Mais la théorie des mélanges » est
 propre à remuer les pensées du philosophe, plutôt
 qu'à immobiliser des évidences pour lhistoire.
 Aussi la méthode de l'Essai prend-elle ici plus d'importance, dans la pensée de Gobineau, que les assertions trop souvent approximatives ou même extravagantes de son enquête.
 
-Ne lui donne-t-elle pas l'essentiel de sa philosophie, puisqu'elle l'autorise à hïérurchiser, — toujours et partout, — les valeurs humaines ?
+Ne lui donne-t-elle pas l'essentiel de sa philosophie, puisqu'elle l'autorise à hïérurchiser, — toujours et partout, — les valeurs humaines?
 
 On comprend mieux le pessimisme aristocratique
 - d'un Gobineau, dès qu'on l'oppose à l'optimisme des
@@ -3532,12 +3512,12 @@ Libre au disciple idéaliste de Condorcet ou de
 Jean-Jacques, de se réjouir si l'histoire des races
 lui apporte la preuve que le genre humain tend
 
-_ vers l'unité! Quoi de plus naturel? Pour lui,
+vers l'unité! Quoi de plus naturel? Pour lui,
 le « cervelet du Huron contient en germe un esprit
-…_ tout à fait semblable à celui de l'Anglais ou du
+tout à fait semblable à celui de l'Anglais ou du
 
 la vie et les prophéties du comte de Gobineau
-Français ». (x) IL croit | « homme en soi » perfectible, à l'infini. Il méconnaît l'existence de plusieurs
+Français ». (x) IL croit « homme en soi » perfectible, à l'infini. Il méconnaît l'existence de plusieurs
 et en puissance. Il ne sait point que le progrès
 des faibles a pour excessive rançon la déchéance
 des forts. Tout son rêve appelle la fusion des races
@@ -3545,19 +3525,19 @@ et la fraternité des peuples, effacées par le crime
 des hommes, maïs inscrites dans la nature.
 
 Au nom d'une science qui veut être plus positive,
-l'ironie d'un Gobineau sape et punit cette erreur :
+l'ironie d'un Gobineau sape et punit cette erreur:
 
 L'idée d'une inégalité native, originelle, tranchée et permanente entre les diverses races, est dans le monde une
-des opinions les plus anciennement répandues et adoptées; ,
-et, vu l'isolement primitif des tribus, des peuplades, et ce
+des opinions les plus anciennement répandues et adoptées;,
+et, l'isolement primitif des tribus, des peuplades, et ce
 relirement vers elles-mêmes que toutes ont pratiqué à une
-époque plus où moins lointaine, et d'où un grand nombre .
+époque plus où moins lointaine, et d'où un grand nombre.
 n'est jamais sorti, on n'a pas lieu d'en être étonné. A l'exception de ce qui s'est passé dans nos temps les plus modernes, cette notion a servi de base à presque toutes les
 théories gouvernementales. Pas de peuple, grand ou petit,
 qui n'ait débuté par en faire sa première maxime d'État.
 Le système des castes, des noblesses, celui des aristocraties,
 tant qu'on les fonde sur les prérogatives de la naissance,
-n'ont pas d'autre origine; et le droit d'aînesse, en supposant la préexcellence du fils premier-né et de ses descendants, n'en est aussi qu'un dérivé. Avec cette doctrine con- |
+n'ont pas d'autre origine; et le droit d'aînesse, en supposant la préexcellence du fils premier-né et de ses descendants, n'en est aussi qu'un dérivé. Avec cette doctrine con-
 cordent la répulsion pour l'étranger et la Supériorité que
 chaque nation s'adjuge à l'égard de ses voisines. Ce n'est
 qu'à mesure que les groupes se mêlent et se fusionnent,
@@ -3576,41 +3556,41 @@ de la force, jettent alors, dans toutes les intelligences, un
 assez mauvais vernis sur le souvenir des races jadis dominantes et qui n'ont jamais manqué, car tel est le train du
 monde, de légitimer, jusqu'à un certain point, beaucoup
 
-* d'accusations. De la déclamation contre la tyrannie, on
+d'accusations. De la déclamation contre la tyrannie, on
 passe à la négation des causes naturelles de la supériorité
-qu'on insulte ; on la déclare non seulement perverse, mais
+qu'on insulte; on la déclare non seulement perverse, mais
 encore usurpatrice; on nie, et bien à tort, que certaines
 aptitudes soient nécessairement, fatalement, l'héritage
 . exclusif de telles ou telles descendances; enfin, plus un
-+ peuple est composé d'éléments hétérogènes, plus il se complaît à proclamer que les facultés les plus diverses sont possédées ou peuvent l'être au même degré par toutes les fractions de l'espèce humaine sans exception. Cette théorie, à
-\ peu près soutenable pour ce qui les concerne, les raison__  neurs métis l'appliquent à l'ensemble des générations qui
+peuple est composé d'éléments hétérogènes, plus il se complaît à proclamer que les facultés les plus diverses sont possédées ou peuvent l'être au même degré par toutes les fractions de l'espèce humaine sans exception. Cette théorie, à
+peu près soutenable pour ce qui les concerne, les raison__ neurs métis l'appliquent à l'ensemble des générations qui
 ont paru, paraissent et paraîtront sur la terre, etils finissent
 un jour par résumer leurs sentiments en ces mots, qui,
-comme l'outre d'Eole, renferment tant de tempêtes : « Tous
-les hommes sont frères ! » (1)
-Ne Done, l'égalité n'est pas : elle devient. Elle est le
+comme l'outre d'Eole, renferment tant de tempêtes: « Tous
+les hommes sont frères! » (1)
+Ne Done, l'égalité n'est pas: elle devient. Elle est le
 produit, — le funeste produit, — des mélanges de
 
 la vie et les prophéties du comte de Gobineau
 
 races. À mesure que son devenir s'achève, la démo-
 
-‘ cratie chasse du monde ces élites raffinées dont « le
+cratie chasse du monde ces élites raffinées dont « le
 nombre et la succession perpétuelle » (x) firent jadis
 « la force et la fécondité » des races de princes.
 
 C'est ainsi que l'espèce blanche, — « considérée
-abstractivement », (2) — a déjà disparu de la terre.
+abstractivement (2) — a déjà disparu de la terre.
 Elle a passé l'âge des dieux, où elle était pure;
 l'âge des héros, où les mélanges furent « modérés
-de force et de nombre »; l'âge des noblesses, « où
+de force et de nombre l'âge des noblesses, « où
 des facultés, grandes encore, n'étaient plus renouvelées par des sources taries ». (3) Elle ne présente
 plus désormais qu'un « spectacle effrayant d'anarchie ethnique ». (4) Et devant nous, elle s'achemine à
-la « confusion définitive » : ;
+la « confusion définitive »:;
 
 Tel homme aura la chevelure du nègre, tel autre le facies
-mongol ; celui-ci les yeux du Germain, celui-là la taille du
-Sémite, et ce seront tous des parents ! Voilà le phénomène
+mongol; celui-ci les yeux du Germain, celui-là la taille du
+Sémite, et ce seront tous des parents! Voilà le phénomène
 offert par les grandes nations civilisées, et on l'observe surtout dans leurs ports de mer, leurs capitales et leurs colonies, lieux où les fusions s'accomplissent avec le plus de
 facilité. À Paris, à Londres, à Cadix, à Constantinople, on
 trouvera, sans sortir de l'enceinte des murs, et en se bornant à l'observation de la population qui se dit indigène,
@@ -3621,7 +3601,7 @@ Chinois, on verra tout; car, depuis la domination des Romains principalement, le
 plus disparates ont fourni leur contingent au sang des
 habitants de nos grandes villes. Les invasions successives,
 le commerce, les colonies implantées, la paix ou la guerre
-ont contribué, à tour de rôle, & augmenter le désordre, etsi
+ont contribué, à tour de rôle, augmenter le désordre, etsi
 lon pouvait remonter un peu haut sur l'arbre généalogique
 du premier homme venu, on aurait chance d'être étonné de
 l'étrangeté de ses aïeux. (1)
@@ -3630,7 +3610,7 @@ De sa précellence native, l'espèce blanche semble
 ainsi n'avoir conservé qu'une « plus grande puissañce dans la fécondation du désordre ». (2) Avec
 sa complète absorption, s'ouvrira l'ère de l'unité.
 Alors, le principe blanc, « tenu en échec dans
-chaque homme en particulier », sera le « caput
+chaque homme en particulier sera le « caput
 mortuum d'une série infinie de mélanges, et par
 conséquent de flétrissures ». (3)
 
@@ -3645,21 +3625,21 @@ plus révoltante humilité (4).
 
 la vie et les prophéties du comie de Gobineau
 
-La vie de l'humanité prend ainsi une signification d'ensemble qui rentre absolument dans l'ordre des manifestations cosmiques. ()
+La vie de l'humanité prend ainsi une signification d'ensemble qui rentre absolument dans l'ordre des manifestations cosmiques.
 
 La race blanche est morte... C'était la plus forte,
 la plus belle, la plus intelligente, la plus brave, la
 meilleure des races. C'était l'aristocratie ethnique.
 Les Aryens ne sont plus, qui furent l'aristocratie
 blanche. Toutes les aristocraties périssent. Mais
-leur mort les venge. Car « du même pas que l'humanité se dégrade, elle s'efface » (2) :
+leur mort les venge. Car « du même pas que l'humanité se dégrade, elle s'efface » (2):
 
 écrit M. de Gobineau à la dernière page de l'Æssai,
 
 d'assigner à la domination de l'homme
 sur la terre une durée totale de douze à quatorze mille ans,
-divisée en deux périodes : l'une, qui est passée, aura vu,
-aura possédé la jeunesse, la vigueur, la grandeur intellectuelle de l'espèce ; l'autre, qui est commencée, en connaîtra
+divisée en deux périodes: l'une, qui est passée, aura vu,
+aura possédé la jeunesse, la vigueur, la grandeur intellectuelle de l'espèce; l'autre, qui est commencée, en connaîtra
 la marche défaillante vers la décrépitude.
 
 En s'arrêtant même aux temps qui doivent quelque peu
@@ -3667,17 +3647,17 @@ précéder le dernier soupir de notre espèce, en se détournant
 de ces âges envahis par la mort, où le globe, devenu muet,
 continuera, mais sans nous, à décrire dans l'espace ges
 orbes impassibles, je ne sais si l'on n'est pas en droit d'appeler la fin du monde cette époque moins lointaine qui
-verra déjà l'abaissement complet de notre espèce. Je n'aflirmerai pas non plus qu'il füt bien facile de s'intéresser avec |
+verra déjà l'abaissement complet de notre espèce. Je n'aflirmerai pas non plus qu'il füt bien facile de s'intéresser avec
 
 un reste d'amour aux destinées de quelques poignées d'êtres
 dépouillés de force, de beauté, d'intelligence, si l'on ne se
 rappelait qu'il leur restera du moins la foi religieuse, dernier lien, unique souvenir, héritage précieux des jours
 
 Mais la religion elle-même ne nous a pas promis l'éternité; mais la science, en nous montrant que nous avons
-commencé, semblait toujours nous assurer aussi que nous ;
+commencé, semblait toujours nous assurer aussi que nous;
 devions finir. Il n'y a donc lieu ni de s'étonner ni de s'émouvoir en trouvant une confirmation de plus d'un fait qui ne
 pouvait passer pour douteux. La prévision attristante, ce
-n'est pas la mort, c'est la certitude de n'y arriver que dégradés ; et peut-être même cette honte réservée à nos descendants nous pourrait-elle laisser insensibles, si nous n'éprouvions, par une secrète horreur, que les mains rapaces de la
+n'est pas la mort, c'est la certitude de n'y arriver que dégradés; et peut-être même cette honte réservée à nos descendants nous pourrait-elle laisser insensibles, si nous n'éprouvions, par une secrète horreur, que les mains rapaces de la
 destinée sont déjà posées sur nous. (1)
 
 Ayant constamment exalté les mystérieuses vertus
@@ -3687,7 +3667,7 @@ philosophie de l'Essai se traduit ici en un pessimisme spontané, nécessaire et
 
 C'est l'épopée de la Décadence.
 
-qe a ne Wait
+a ne Wait
 
 Gobinisme et Nationalisme
 Tableau des valeurs gobiniennes
@@ -3701,21 +3681,21 @@ La critique savante fut dédaigneuse ou sévère
 pour le livre du jeune diplomate. En France, M. de
 Quatrefages eut beau jeu à contester son ethnologie. (1) En Allemagne, l'Essai, malgré son ger-
 
-(1) Revue des Deux-Mondes, 1% mars 1859 : Du croisement des
+(1) Revue des Deux-Mondes, 1% mars 1859: Du croisement des
 
-la vie et les prophélies du comte de Gobineau . :
+la vie et les prophélies du comte de Gobineau.:
 manisme, déplut fort aux philologues Ewald et
 
 Dans le public, l'ouvrage fut peu lu. Mais il fut
 bien lu.
 
-Schopenhauer écrivit sur son carnet :
+Schopenhauer écrivit sur son carnet:
 
-Gobineau /des races humaines) a nommé l'homme « l'animal méchant par excellence », ce que les gens' ont mal pris,
-parce qu'ils se sentaient touchés. Mais il a raison ; car
+Gobineau /des races humaines) a nommé l'homme « l'animal méchant par excellence ce que les gens' ont mal pris,
+parce qu'ils se sentaient touchés. Mais il a raison; car
 l'homme est le seul animal qui fasse souffrir autrui, simplement pour faire souffrir. (2)
 
-Auprès de nos souvenirs de Hobbes, cette sen- \
+Auprès de nos souvenirs de Hobbes, cette sen-
 
 ) tence gobinienne peut nous sembler faible. Mais en
 la détachant de Essai à son propre usage, le « sage
@@ -3723,9 +3703,9 @@ de Francfort » témoigne devant nous qu'il ne s'est
 pas mépris sur la qualité de l'ensemble.
 
 Prosper Mérimée, philosophe cynique, fut enchanté que l'introduction à l'Essai développât ces
-thèmes : « Le fanatisme, le luxe, les mauvaises
+thèmes: « Le fanatisme, le luxe, les mauvaises
 mœurs et l'irréligion n'amènent pas nécessairement
-la chute des sociétés ; le christianisme ne crée pas
+la chute des sociétés; le christianisme ne crée pas
 
 Ungleichheit menschlicher. Racen hauptsächlich con sprachwissenschaftlichen Standpunkte, unter besonderer Berücksichtigung von des
 
@@ -3734,13 +3714,13 @@ Gobineau est empruntée au chapitre de lÆssai (VI, 3) intitulé
 Capacilé des races germaniques natives.
 
 et ne transforme pas l'aptitude civilisatrice ». Par
-lettre, il en fit ses compliments à l'auteur :
+lettre, il en fit ses compliments à l'auteur:
 
 Permettez-moi,
 
 lui écrivait-il,
 de vous féliciter du courage qu'en ce temps
-d'hypocrisie vous avez eu de dire que ni la superstition, ni
+d'hypocrisie vous avez de dire que ni la superstition, ni
 l'athéisme, ni l'immoralité ne tuent les sociétés. (1)
 
 Nous ne possédons pas la réponse de M. de Gobineau. Elle serait curieuse. Car ses vues philosophiques, si elles étaient fortement antichrétiennes,
@@ -3748,7 +3728,7 @@ ne le gênaient point pour se dire catholique avec
 véhémence. En quoi il était comparable à plusieurs
 
 Dans une lettre de Mérimée, datée de 1855, je
-relève encore cette phrase :
+relève encore cette phrase:
 
 A propos de têtes coupées, prenez garde à la vôtre. Les
 gens bien pensanis se proposent, dès que l'inquisition sera
@@ -3756,11 +3736,11 @@ rétablie, de vous brûler à petit feu en expiation de plusieurs
 énormités, et singulièrement pour vos prédictions sinistres.
 
 Schopenhauer et Mérimée, c'étaient deux lecteurs
-d'élite. Pourtant, rien n'indique qu'ils aient soupconné l'efficacité prochaine des thèses de l''Essai :
+d'élite. Pourtant, rien n'indique qu'ils aient soupconné l'efficacité prochaine des thèses de l''Essai:
 leur perspicacité n'anticipait point sur l'histoire
 des idées et des faits, jusqu'à prévoir les événe-
 
-() Lettre non datée, mais qui est sans doute de 1854. — Les
+Lettre non datée, mais qui est sans doute de 1854. — Les
 letires de Mérimée à M. de Gobineau ont été publiées par M. Schemann (Æeoue des Deux-Mondes des 15 octobre et 1* novembre 1902).
 
 la vie et les prophéties du comte de Gobineau
@@ -3776,19 +3756,18 @@ nationalistes contemporaines ne me paraît ni lointaine, ni flottante. Elle est 
 Il suffirait de glaner dans l'Essai sur l'inégalité, —
 je vous l'ai montré chemin faisant, (1) — pour en
 extraire un recueil abondant de « morceaux choisis » politiques, qui constituerait le meilleur caté-
-chisme du « nationalisme intégral » et de ses corol- |
+chisme du « nationalisme intégral » et de ses corol-
 Or, il est en France un groupe d'écrivains, —
 restreint par le nombre, considérable par la qualité,
 — que l'on aurait crus plus intéressés à répandre
-dans notre pays la renommée du comte de Gobi- |
-158
+dans notre pays la renommée du comte de Gobi-
 
 neau. Mais ils n'y ont mis jusqu'ici nul empresse-
 
 Les théoriciens lettrés du nationalisme français
-ignorent-ils l'œuvre de Gobineau? La connaissent-ils mal ? C'est ce qu'on ne saurait croire d'écrivains si cultivés. Mais s'ils savent leur Gobineau,
+ignorent-ils l'œuvre de Gobineau? La connaissent-ils mal? C'est ce qu'on ne saurait croire d'écrivains si cultivés. Mais s'ils savent leur Gobineau,
 comment ont-ils à ce point négligé de définir leur
-parenté philosophique avec l'auteur de l'Essai sur ;
+parenté philosophique avec l'auteur de l'Essai sur;
 l'inégalité des races humaines? Pourquoi se sontils abstenus de lui conférer cette qualité d'initiateur,
 qu'ils attribuent si volontiers à Joseph de Maistre,
 à M. de Bonald, et, — bien plus arbitrairement, —
@@ -3796,12 +3775,12 @@ qu'ils attribuent si volontiers à Joseph de Maistre,
 Leur silence est une injustice qu'il serait élégant
 de réparer. Peut-être me sauront-ils gré de les suppléer dans cette tâche.
 
-Et d'abord, il va sans dire que j'élimine et répudie
+Et d'abord, il sans dire que j'élimine et répudie
 absolument toute explication de ce silence, qui tendrait à incriminer de plagiat philosophique et litté-
 
 raire ceux que je nommais, à l'instant, les « théori-
 
-ciens lettrés du nationalisme français », c'est-à-dire
+ciens lettrés du nationalisme français c'est-à-dire
 
 des écrivains dont les uns sont de grande envergure,
 
@@ -3817,7 +3796,7 @@ parmi leurs précurseurs intellectuels, ce ne peut
 
 Ou bien, les théoriciens lettrés du nationalisme
 
-français ignorent l'œuvre de Gobineau (ou la connaissent mal), et n'ont subi son influence qu'à travers d'autres lectures. — Ou bien, ils ont lu Gobineau; mais, — pour des raisons fort légitimes et
+français ignorent l'œuvre de Gobineau (ou la connaissent mal), et n'ont subi son influence qu'à travers d'autres lectures. — Ou bien, ils ont Gobineau; mais, — pour des raisons fort légitimes et
 purement spéculatives, — ils se sont volontairement privés de le revendiquer comme leur maître
 et leur précurseur.
 
@@ -3826,28 +3805,28 @@ Ce sont précisément ces raisons que je voudrais
 
 L'Essai sur l'inégalité des races humaines est-il
 un des livres de chevet des principaux théoriciens
-du nationalisme français ?
+du nationalisme français?
 
 Sur ce point de fait, nous ne pouvons attendre
 une entière clarté que de leur propre témoignage.
 
 - Et un enquêteur littéraire semblerait fort avisé,
-qui irait trouver ces messieurs, et leur dire : (Avezvous lu Gobineau? Si vous l'avez lu (et même
+qui irait trouver ces messieurs, et leur dire: (Avezvous Gobineau? Si vous l'avez (et même
 si vous ne l'avez pas lu), que pensez-vous de
 
-lui ? Acceptez-vous de le classer parmi vos ancêtres ? »
+lui? Acceptez-vous de le classer parmi vos ancêtres? »
 
 Pour moi, je me suis contenté de grouper divers
-indices, capables de nous instruire, et je crois permise une conjecture. ;
+indices, capables de nous instruire, et je crois permise une conjecture.;
 
 Le maître-écrivain du nationalisme n'a nommé, je
 crois, M. de Gobineau qu'en un seul endroit. C'est
 dans Leurs Figures. Ainsi parle M. Maurice
 
-M° Chéramy, avoué de M. Eifrel et disciple de Stendhal et
+Chéramy, avoué de M. Eifrel et disciple de Stendhal et
 de Gobineau, put noter ces expressions caractéristiques,
 
-6 « la main-d'œuvre blanche... la main-d'œuvre noire, », qui
+6 « la main-d'œuvre blanche... la main-d'œuvre noire, qui
 revenaient sans cesse dans la discussion des comptes. On
 revoyait toutes les races convoquées là-bas par ces quatre
 accusés, remuant les terres, souffrant, mourant. Ces pré-
@@ -3855,7 +3834,7 @@ venus eurent ce pouvoir! (1)
 
 De ce fragment, il résulte bien que M. Maurice
 Barrès sait le nom de Gobineau, les données de son
-œuvre-maitresse : mais nullement qu'il ait lu cette
+œuvre-maitresse: mais nullement qu'il ait cette
 œuvre, ni surtout médité sur elle.
 
 Je n'en dirai pas autant de M. Paul Bourget. Certains de ses écrits paraissent très imbibés de « gobinisme ». Voici déjà bien des années, dit-on, qu'un
@@ -3868,12 +3847,12 @@ renommée de Gobineau. Mais en France, s'il lui est
 advenu de nommer M. de Gobineau en quelques
 coins de livres, (x) il n'inscrit point l'auteur de
 
- l'Essai sur l'inégalité et de l'Histoire d'Ottar Jarl
+l'Essai sur l'inégalité et de l'Histoire d'Ottar Jarl
 sur la liste de ceux qu'il appelait récemment les
-« profonds observateurs du siècle dernier, depuis ©
+« profonds observateurs du siècle dernier, depuis
 Bonald jusqu'à Taine, en passant par Balzac, Comte
-et Le Play... » (2) — Souhaïtons que M. Paul Bourget ne tarde pas à rendre plus hautement hommage |
-à la mémoire du comte de Gobineau, qu'il admire !
+et Le Play... » (2) — Souhaïtons que M. Paul Bourget ne tarde pas à rendre plus hautement hommage
+à la mémoire du comte de Gobineau, qu'il admire!
 
 Enfin, j'ai feuilleté l'Enquête sur la Monarchie,
 de M. Charles Maurras. (3) C'est le plus précieux
@@ -3882,32 +3861,32 @@ contemporain. J'y ai rencontré bien des idées qui
 m'ont paru de provenance gobinienne. Mais le nom
 et l'éloge de l'auteur de l'Essai; s'ils s'y trouvent,
 
-(1) On fit dans Sensations d'Italie (1891, XXV, Cotrone) : « Les
+(1) On fit dans Sensations d'Italie (1891, XXV, Cotrone): « Les
 huit rameurs que j'arrive à racoler pour me conduire sur une
 barque de pêche au cap Colonna pourraient être donnés comme
 un problème d'atavisme à résoudre par quelque disciple du regretié comte de Gobineau,— le plus perçant visionnaire de la race
 qui ait paru depuis cinquante ans ». J'arrête ici la citation; mais
 toute la suite de cette page indique que, dès ce temps-là, M. Paul
 Bourget était « gobinien... » — Dans Cosmopolis (1893, chapitre VI,
-les inconséquences d'un vieux chouan) : « … depuis qu'ils s'étaient
+les inconséquences d'un vieux chouan): « … depuis qu'ils s'étaient
 rencontrés chez leur commun ami, le regretté comte de Gobineau,
 lapôtre de la théorie des races. » — On m'assure que M. Paul
-Bourget a jadis écrit un article sur Gobineau ; je mai pu retrouver
+Bourget a jadis écrit un article sur Gobineau; je mai retrouver
 cet article.
 
-() Lettre au comte Aymer de la Chevalerie, président de la
+Lettre au comte Aymer de la Chevalerie, président de la
 
 6) Éditions de la Gazette de France.
 
 c'est qu'ils m'auront échappé. Seul, un des plus dis-
 üngués collaborateurs de M. Charles Maurras à
 l'Action Française, — M. Jacques Baïnville, — fit,
-l'an dernier, cette confidence :
+l'an dernier, cette confidence:
 
 écrivait-il,
 que Gobineau compte de chauds partisans parmi
 nos amis et parmi nos maîtres. Mais un livre où un Paul
-Bourget sait prendre de l'intérêt et l'occasion de se former :
+Bourget sait prendre de l'intérêt et l'occasion de se former:
 des notions nouvelles, ne doit pas être regardé comme également profitable à tous. (1)
 
 Ainsi, les théoriciens lettrés du nationalisme se
@@ -3915,28 +3894,28 @@ montrent toujours satisfaits et fiers, lorsqu'ils
 croient pouvoir s'adjoindre un grand écrivain du
 passé. Mais sur Gobineau ils se taisent, peut-être à
 
-Que cela est étrange !
+Que cela est étrange!
 
 Pour explorer ce mystère, je me suis posé la ques-
 
-tion que voici : € Si j'étais nationaliste, ai-je songé,
+tion que voici: Si j'étais nationaliste, ai-je songé,
 
-| (1) Action française, 15 avril 1903. — Cette citation est extraite
+(1) Action française, 15 avril 1903. — Cette citation est extraite
 d'un compte-rendu consacré par M. Jacques Bainville au livre de
-M. Ernest Seillière sur Le comte de Gobineau et l'Aryanisme historique. M. Jacques Bainville ajoutait : « Il faut voir dans l'aryanisme,
+M. Ernest Seillière sur Le comte de Gobineau et l'Aryanisme historique. M. Jacques Bainville ajoutait: « Il faut voir dans l'aryanisme,
 le sélectionisme, laristocratisme de Gobineau, de dangereuses
 nuées. En faisant reconnaître pour un esprit faux et archifaux un
 auteur tout près de passer pour être de nos alliés (peut-être même
 at-on dit un de nos précurseurs), M. Seillière nous a rendu un
 
-la vie et les prophéties du comte de Gobineau .
-serais-je bien tenté d'invoquer l'autorité d'un Gobineau à l'appui de mon parti et de sa doctrine ? »
-Tout d'abord, j'étais disposé à répondre : oui. Mais
+la vie et les prophéties du comte de Gobineau.
+serais-je bien tenté d'invoquer l'autorité d'un Gobineau à l'appui de mon parti et de sa doctrine? »
+Tout d'abord, j'étais disposé à répondre: oui. Mais
 je n'ai pas tardé à comprendre pourquoi il convenait
 de répondre: non. Si lesthéoriciens du nationalisme
 en ont aperçu la raison; si cette découverte les a
-invités au silence, — admirons-les : ce sont des
-sages ! Oui, Gobineau est en un sens leur maître inconnu, leur ancêtre. Mais c'est un ancêtre qui sourit de pitié sur ses descendants.
+invités au silence, — admirons-les: ce sont des
+sages! Oui, Gobineau est en un sens leur maître inconnu, leur ancêtre. Mais c'est un ancêtre qui sourit de pitié sur ses descendants.
 
 Je m'explique sans plus tarder.
 
@@ -3946,30 +3925,30 @@ les mœurs, les croyances, les aspirations, la culture
 expriment constamment l'action de la race, la secondent parfois, mais ne la contre-balancent jamais.
 Le fond de la doctrine gobinienne, c'est l'aflirmation
 de certains antagonismes naturels entre les nations
-précieux service. JL ne s'en doute probablement pas : il importe
+précieux service. ne s'en doute probablement pas: il importe
 pourtant que je l'en remercie. »
 
 A cette date d'avril 1903, on serait bien aise de savoir qui avait
-pu dire que le comte de Gobineau devait être regardé comme
-P « allié », voire le « précurseur » du nationalisme français ? Je ne
+dire que le comte de Gobineau devait être regardé comme
+« allié voire le « précurseur » du nationalisme français? Je ne
 crois pas que cette opinion eût jamais été soutenue en public.
 M. Jacques Baiïinville, en la rapportant, ne se faisait-il pas l'écho
-de propos échangés dans l'intimité des cénacles nationalistes ?
+de propos échangés dans l'intimité des cénacles nationalistes?
 
-et les races : comme le fond de la doctrine nationaliste, c'est la volonté de maintenir ces antagonismes.
+et les races: comme le fond de la doctrine nationaliste, c'est la volonté de maintenir ces antagonismes.
 Toute la parenté est là. Et cette parenté se traduit,
 dans l'Essai, par des énoncés fragmentaires, qui
-justement servent d'assises à la doctrine du nationalisme contemporain, comme on a pu voir par les
+justement servent d'assises à la doctrine du nationalisme contemporain, comme on a voir par les
 textes significatifs, qu'il m'est advenu de lire devant
 
 Mais autant le nationalisme nécessiterait, pour
-être eflicace, que limmobilité de la race, et, avec ;
+être eflicace, que limmobilité de la race, et, avec;
 elle, des traditions et des cultures, fût une possibilité
-historique : autant l'auteur de l'Essai constate que
+historique: autant l'auteur de l'Essai constate que
 la mobilité de ces éléments est le facteur caché de
 toute réalité humaine.
 
-La race ! jamais elle n'est pure, jamais elle n'est
+La race! jamais elle n'est pure, jamais elle n'est
 stable, jamais elle n'est saisissable à l'état figé. Ses
 altérations, qui résultent des croisements, sont
 incessantes et inévitables. Or, à mesure qu'elle
@@ -3980,9 +3959,9 @@ s'accomplit, — et le moi national et hiérarchisé tend
 à se dissoudre dans le néant du moi mondial et
 égalitaire, à la honte du genre humain...
 
-: Ainsi, un torrent emporte les hommes vers l'uni- :
+: Ainsi, un torrent emporte les hommes vers l'uni-:
 formité ethnique et sociale. L'égalité n'est pas, la
-fraternité n'est pas, la démocratie n'est pas : elles
+fraternité n'est pas, la démocratie n'est pas: elles
 
 la vie et les prophélies du comte de Gobineau
 deviennent. (1) La chimère des nationalistes est de
@@ -3994,10 +3973,10 @@ voilà où il sied de confronter leur confiance naïve
 au réalisme d'un Gobineau.
 
 Meilleur philosophe, Gobineau s'attriste; maïs il
-se soumet. Ce qu'il avance dans l'Essai sur les |
+se soumet. Ce qu'il avance dans l'Essai sur les
 « imperceptibles effets » (2) de l'action des grands
 hommes en histoire, ne doutons point qu'il le reproduirait, de nos jours, à l'endroit des nationalistes et
-de leur impuissance :
+de leur impuissance:
 
 Si leur intervention retarde ou précipite le pas des événements, c'est de la même façon qu'un enfant contrarie le
 ruisseau qu'il ne saurait empêcher de couler. (3)
@@ -4006,7 +3985,7 @@ L'auteur de l'Essai abhorre le présent, il redoute
 l'avenir. Il sait que les nations d'Europe ne peuvent
 plus attendre leur rajeunissement d'une nouvelle
 infusion de vigueur aryenne. L'apport germanique
-du Ve siècle est épuisé ; il n'y a plus d'Aryens de nos |
+du siècle est épuisé; il n'y a plus d'Aryens de nos
 jours. Les Germaiïns ont achevé le rôle dévolu à leur
 noble famille, qui était de « verser les dernières
 gouttes de l'essence ariane au sein des popula-
@@ -4014,7 +3993,7 @@ gouttes de l'essence ariane au sein des popula-
 (1) Voir Cinquième Causerie, pages 146 et suivantes.
 
 tions diverses » (1); de produire les &rapprochements et la confusion des types en les unissant les
-uns aux autres » ; et de conduire ainsi l'Europe aux
+uns aux autres »; et de conduire ainsi l'Europe aux
 dernières splendeurs de la civilisation blanche.
 
 La civilisation a lui, elle s'éteint, la confusion
@@ -4028,7 +4007,7 @@ Que nous voici donc près et loin du nationalisme!
 Toutes les aspirations et les préférences, toutes
 les défiances, toutes les résistances, toutes les
 amours et toutes les haïines du nationalisme,
-M. de Gobineau les ressent : elles sont dans
+M. de Gobineau les ressent: elles sont dans
 
 . son livre. Maïs sa sagesse prévoit ce qu'elle
 
@@ -4043,47 +4022,47 @@ sociale est le gage prochain des cataclysmes civils.
 
 la vie et les prophéties du comte de Gobineau
 Prise entre ces deux courants, boueux, mais irrésistibles, notre civilisation européenne, dont nous
-sommes si fiers, ne tardera pas à sombrer dans la ,
-nuit de la décadence. Elle ne s'en réveillera jamais :
-il y aura chute continue dans le tourbillon populacier, révolutionnaire. ”
+sommes si fiers, ne tardera pas à sombrer dans la,
+nuit de la décadence. Elle ne s'en réveillera jamais:
+il y aura chute continue dans le tourbillon populacier, révolutionnaire.
 
 Et c'est ainsi que l'aristocrate Gobineau prophé-
 tise l'avènement inéluctable du socialisme et de
-l'internation !
+l'internation!
 
-\ Considéré de ces hauteurs, le « nationalisme »
-| contemporain ne manquerait point de paraître étran-
-| gement mesquin, pitoyable et puéril, au philosophe
-? de l'Æssai sur l'inégalité. Les nationalistes : il les
-* | élève dans son cœur! Mais à qui promet-il une victoire sans gloire, tant elle est sans effort et certaine ?
+Considéré de ces hauteurs, le « nationalisme »
+contemporain ne manquerait point de paraître étran-
+gement mesquin, pitoyable et puéril, au philosophe
+? de l'Æssai sur l'inégalité. Les nationalistes: il les
+élève dans son cœur! Mais à qui promet-il une victoire sans gloire, tant elle est sans effort et certaine?
 C'est aux démocrates, aux humanitaires. Car ils
 : ont pour eux les « lois immuables du monde ». Tan-
-| dis que le nationalisme est démenti par les enseigne-
-| ments et frappé de stérilité par les prévisions de
-| l'histoire.
+dis que le nationalisme est démenti par les enseigne-
+ments et frappé de stérilité par les prévisions de
+l'histoire.
 
 Si les théoriciens lettrés du nationalisme ont
-médité comme il convenait sur la doctrine de l'Æssai, comment n'approuverait-on pas leur silence ?
+médité comme il convenait sur la doctrine de l'Æssai, comment n'approuverait-on pas leur silence?
 
 Certes, Gobineau est leur maître. Maïs quel maître
-déconcertant ! Isoler la nation parmi les nations et
+déconcertant! Isoler la nation parmi les nations et
 
 la race parmi les races, et, selon la formule que
-j emprunte à l'Enquête sur la Monarchie, demeurer
+emprunte à l'Enquête sur la Monarchie, demeurer
 « fidèle aux bons comme aux mauvais instincts du
-type historique », ce serait bien la tâche ! Elle seule
+type historique ce serait bien la tâche! Elle seule
 serait noble, louable, utile... Oui! mais elle est
-‘ impossible. — Cruelle réplique du philosophe aux
+impossible. — Cruelle réplique du philosophe aux
 gens de parti qui seraient tentés de se réclamer de
 sa gloire.
-| Un Gobineau, s'il est aristocrate, accepte d'être
-| pessimiste. Des humanitaires inclineront à examiner
-| d'un regard favorable cette théorie du devenir de la
-| démocratie, envisagée comme le produit du mélange
-| des valeurs ethniques : ils renverseront les appré-
-| ciations gobiniennes, et substitueront leur propre
+Un Gobineau, s'il est aristocrate, accepte d'être
+pessimiste. Des humanitaires inclineront à examiner
+d'un regard favorable cette théorie du devenir de la
+démocratie, envisagée comme le produit du mélange
+des valeurs ethniques: ils renverseront les appré-
+ciations gobiniennes, et substitueront leur propre
 satisfaction à l'amertume où les spectacles de l'his-
-| toire plongent l'auteur de l' Essai sur l'inégalité.
+toire plongent l'auteur de Essai sur l'inégalité.
 
 Seul, un parti est tenu à l'écart. C'est justement
 le parti dont toutes les tendances se rallient aux
@@ -4093,40 +4072,39 @@ Les partis ont besoin d'optimisme. Et ils sont si
 dénués de délicatesse que je ne serais guère surpris,
 si les amis de la race et les amis de l'humanité s'ac-
 
-{ cordaient à considérer que M. de Gobineau fait
+cordaient à considérer que M. de Gobineau fait
 
-| encore à ces derniers la part la plus belle. Certes,
+encore à ces derniers la part la plus belle. Certes,
 
 il les couvre de noirceurs. Mais il garantit leur
 
 triomphe final. Or, l'attente du triomphe este seul
-169
 
 la pie et les prophéties du comte de 'Gobineau
-ressort qui stimule les hommes. Là où ce ressort
+ressort qui stimule les hommes. où ce ressort
 s'use, il n'y à plus que mélancolie et découragement.
 
 Nous voici parvenus à un tournanÿ de l'aristocratisme gobinien.
 
-Devant nous, l'auteur de l' Essai vient de sombrer
+Devant nous, l'auteur de Essai vient de sombrer
 dans son audacieux désir d'étayer la morale de
 l'élite sur l'histoire. Puisque la hiérarchie ethnique
 se révèle à lui dépourvue de durée et de fixité,
 
-| M. de Gobineau ne saurait asseoir sur elle une
+M. de Gobineau ne saurait asseoir sur elle une
 
-| noblesse stable et permanente. Mais il n'est pas
+noblesse stable et permanente. Mais il n'est pas
 
-{ homme à s'en tenir à cet échec. Par tous ses in-
+homme à s'en tenir à cet échec. Par tous ses in-
 
-| stincts et toutes ses tendances, il demeure un aristo-
+stincts et toutes ses tendances, il demeure un aristo-
 
-| crate, et changera, — s'il faut, — sa notion de l'élite,
-mais ne renoncera pas à la maîtriser : car elle est
+crate, et changera, — s'il faut, — sa notion de l'élite,
+mais ne renoncera pas à la maîtriser: car elle est
 pour lui un besoin.
 
 Cette élite contemporaine et future que lui refuse
-l'histoire, M. de Gobineau va se mettre en quête
+l'histoire, M. de Gobineau se mettre en quête
 de la discerner désormais dans tous les pays, parmi
 les « métis » de notre humanité impure. Et peu à
 peu, il oubliera la noblesse héréditaire des masses
@@ -4137,7 +4115,7 @@ qui les emporte à leur insu et au nôtre.
 Nous aurons désormais à le suivre dans cette
 nouvelle phase de son éthique.
 
-Mais il est clair qu'il continuera de s'y inspirer de :
+Mais il est clair qu'il continuera de s'y inspirer de:
 ses préférences antérieures. Son individualisme
 aristocratique sera proprement la transposition et le
 symbole de son aristocratisme historique. Et c'est
@@ -4147,13 +4125,13 @@ entreprendra encore de sérier les valeurs humaines,
 individus humains, après celles des races.
 
 Au point où nous sommes, nous avons donc l'intérêt le plus vif à dresser le bilan des « valeurs
-gobiniennes », telles qu'elles surgissent de l'Essai sur
+gobiniennes telles qu'elles surgissent de l'Essai sur
 l'inégalité. C'est à quoi.je voudrais occuper la fin de
 cette causerie.
 
 Je crois pouvoir concentrer en peu de mots les
-privilèges dont l'assemblage constitue, au sens gobinien, l'être d'élite. Ces privilèges sont : la Beauté: :
-la Force ; la Haute Culture ; l'Énergie ; la Dignité.
+privilèges dont l'assemblage constitue, au sens gobinien, l'être d'élite. Ces privilèges sont: la Beauté::
+la Force; la Haute Culture; l'Énergie; la Dignité.
 
 La réunion de ces caractères qualifie l'être de
 choix, le noble privilégié.
@@ -4163,12 +4141,12 @@ Cette noble harmonie des traits et des formes est,
 
 la vie et les prophéties du.comte de Gobineau
 mise à la subjectivité des goûts. Et là-dessus, il s'en
-rapporte entiérement à l'esthétique de l'abbé Güioberti, patriote italien, dans son Æssai sur le Beau. :
+rapporte entiérement à l'esthétique de l'abbé Güioberti, patriote italien, dans son Æssai sur le Beau.:
 
 La suprématie de la variété blanche est d'abord
-une suprématie en beauté :
+une suprématie en beauté:
 
-L'homme noir et l'homme jaune ne pouvaient bien comprendre que le laid : c'est pour eux que le laid fut inventé :
+L'homme noir et l'homme jaune ne pouvaient bien comprendre que le laid: c'est pour eux que le laid fut inventé:
 et resta toujours rigoureusement nécessaire... (1)
 
 De tous les groupes humains, ceux qui appartiennent
@@ -4185,11 +4163,11 @@ les peuples qui ne sont pas du sang des blancs approchent À
 de la beauté, mais ne l'atteignent pas.
 
 Ceux qui y touchent de plus près sont nos plus proches
-parents : telles la famille ariane dégénérée de l'Inde et de la
+parents: telles la famille ariane dégénérée de l'Inde et de la
 Perse, et les populations sémitiques les moins rabaïissées
 par le contact noir.
 
-(I est à remarquer que les mélanges les plus heureux, au
+est à remarquer que les mélanges les plus heureux, au
 point de vue de la beauté, sont ceux qui sont formés par
 lhymen des blancs et des noirs. On n'a qu'à mettre en parallèle le charme souvent puissant des mulâtresses, des
 capresses, des quarteronnes avec les produits des jaunes et
@@ -4202,11 +4180,11 @@ Il n'est pas moins certain qu'un beau Radjapout est plus
 idéalement beau que le Slave le plus accompli. (1)
 
 Chose singulière! Sur ce chapitre de la beauté
-blanche, l'auteur de l'Essai nomme plusieurs hommes. Et il ne nomme pas une seule femme ! Cela me
+blanche, l'auteur de l'Essai nomme plusieurs hommes. Et il ne nomme pas une seule femme! Cela me
 surprend beaucoup. Cela me surprend d'autant plus
 que M. de Gobineau était loin d'être insensible à la
 grâce et à la beauté des femmes. Et lui-même, ne
-vient-il pas de s'avouer accessible au « charme souvent puissant des mulâtresses » ?
+vient-il pas de s'avouer accessible au « charme souvent puissant des mulâtresses »?
 
 Mais c'est fort caractéristique.
 
@@ -4219,41 +4197,40 @@ beauté onduleuse et qui plaît, des peuples méridionaux, trop mâtinés à son
 de sang nègre. C'est la beauté colossale et sanguine,
 la beauté blonde, des gens du nord, des vrais
 
-| _ Aryens. Cette beauté réside dans la puissance du
+Aryens. Cette beauté réside dans la puissance du
 … corps et la majesté de la stature, la vigueur des
 membres, la limpidité de la carnation. C'est une
-173
 
-la vie et les prophéties du comte de Gobineau .
+la vie et les prophéties du comte de Gobineau.
 beauté mâle. Elle appelle la force. Elle en est
 
 ! De fait, M. de Gobineau aime et respecte la
-| Force. Nous savons déjà son mépris du chétif
-: | Romain sémitisé, en présence du Germain superbe
+Force. Nous savons déjà son mépris du chétif
+: Romain sémitisé, en présence du Germain superbe
 
 Qui décidait la victoire? Le poing du second. Tombant À
 comme une masse de fer sur le crâne du pauvre neveu de
-Rémus, ce poing musculeux lui apprenait de quel côté était |
-passée la force. Et comment alors se vengeait le Romain |
-écrasé? Il pleurait et criait d'avance aux siècles futurs de |
-venger la civilisation opprimée &ans sa personne. Pauvre |
+Rémus, ce poing musculeux lui apprenait de quel côté était
+passée la force. Et comment alors se vengeait le Romain
+écrasé? Il pleurait et criait d'avance aux siècles futurs de
+venger la civilisation opprimée &ans sa personne. Pauvre
 vermisseau! Il ressemblait au contemporain de Virgile et
 d'Auguste, comme Shylock au roi Salomon.
 
-* Le Romain mentait, et ceux qui, dans le monde moderne,
+Le Romain mentait, et ceux qui, dans le monde moderne,
 par haine de nos origines germaniques et de leurs consé-
 quences gouvernementales au moyen-àge, ont amplifié ces
 häbleries, n'ont pas été plus véridiques. (1)
 
 Mais ailleurs, comme s'il avait honte de cet hommage consenti à la force brute, si empreinte de vulgarité, et départie au hideux matelot malais comme
-à l'Aryen magnifique, Gobineau raffine : il spiritualise la force, tend à la confondre avec l'énergie,
+à l'Aryen magnifique, Gobineau raffine: il spiritualise la force, tend à la confondre avec l'énergie,
 subordonne son goût de la vigueur corporelle, et
 
 même de la beauté plastique, à son culte des puissances de l'âme...
 À la force musculaire, qui se déploie, puis s'évanouit, il préfère soudain les prodiges durables de la
 force de résistance, où excellent les plus faibles
 parmi les blancs, — et dénonce l'immoralité de l'édu-
-. cation physique chez les anciens Grecs :
+. cation physique chez les anciens Grecs:
 Je ne dis rien des concours de jeunes filles nues dans le
 Stade, je n'insiste pas sur cette exaltation officielle de la
 beauté physique dont le but reconnu était d'établir pour
@@ -4263,8 +4240,8 @@ pudeur, sans humanité, capables de toutes les infamies, et
 façonnés d'avance, esclaves qu'ils étaient, à l'acceptation de
 toutes les turpitudes. (1)
 Avec une antipathie pareille, sa sévérité s'exerce
-sur l'antique art assyrien : ,
-| Je n'arrête devant ces sculptures de Khorsabad, et qu'y
+sur l'antique art assyrien:,
+Je n'arrête devant ces sculptures de Khorsabad, et qu'y
 vois-je? Bien certainement la production d'un ciseau habile
 et libre... Toutefois, les attitudes sont forcées, les muscles
 saillants, leur exagération systématique. L'idée de la force
@@ -4286,18 +4263,18 @@ La divinisation de l'esprit! Voilà qui est considé-
 rable. M. de Gobineau devient ici plus nuancé, plus
 difficile, plus délicat, plus proche de nous. A la
 suprême beauté et vigueur de corps, il associe formellement et combine les supériorités de l'esprit
-chez l'Aryen, race noble par excellence. :
+chez l'Aryen, race noble par excellence.:
 
-Et cette noblesse spirituelle, quelle sera sa consistance? Elle résidera dans la Haute Culture; l'Énergie ; la Dignité. ;
+Et cette noblesse spirituelle, quelle sera sa consistance? Elle résidera dans la Haute Culture; l'Énergie; la Dignité.;
 
 La haute culture, qui n'est pas accessible à tous
-les hommes, embrasse l'univers d'un regard indulgent et compréhensif : seule, elle autorise une géné-
+les hommes, embrasse l'univers d'un regard indulgent et compréhensif: seule, elle autorise une géné-
 rosité tolérante, consciente de sa propre supériorité. (2) L'énergie réfléchie, fille de la raison,
 s'exerce aussi naturellement dans les « arts de la
 paix » que dans les « fatigues d'une existence belliqueuse ». (3) Enfin, ce vif sentiment de dignité per-
 
 sonnelle, qui a nom honneur, engendre le « goût
-d'isolement », (1) rehausse le besoin d'indépendance,
+d'isolement (1) rehausse le besoin d'indépendance,
 et commande à l'homme qui en est pourvu d'exiger
 le rang qui lui revient de droit dans la hiérarchie de
 ce monde.
@@ -4308,37 +4285,37 @@ férences n'est pas susceptible de se prédire, et risque
 
 - parfois de dérouter. Je sais, par exemple, telle page
 de l'Essai où il note l'anecdote de cette nourrice
-tourangelle, qui & avait mis un oiseau dans les
-mains de son nourrisson, enfant de trois ans, et l'ex- |
+tourangelle, qui avait mis un oiseau dans les
+mains de son nourrisson, enfant de trois ans, et l'ex-
 citait à lui arracher plumes et ailes ».
 
-Écoutez la suite :
+Écoutez la suite:
 
-Comme les parents lui reprochaient cette leçon de méchanceté, « c'est pour le rendre fier », répliqua-t-elle. Cette
+Comme les parents lui reprochaient cette leçon de méchanceté, « c'est pour le rendre fier répliqua-t-elle. Cette
 réponse de 1847 descend des maximes d'éducation en vigueur
 au temps de Vercingétorix. (2)
 
 Et moi, j'aurais cru que cette éducation de la
 
 - fierté était bien faite pour plaire à notre aryaniste!
-Mais son commentaire m'a vite détrompé : s'il évo-.
+Mais son commentaire m'a vite détrompé: s'il évo-.
 que ce trait d'atavisme, c'est afin de faire mesurer « quelle distance immense sépare nos doctrines morales de celles des paysans ». L'auteur de
 
 la vie et les prophéties du comte de Gobineau
 l'Essai n'a pas osé rendre hommage à la « fierté » de
-cette nourrice : il est plus chrétien qu'on n'aurait
+cette nourrice: il est plus chrétien qu'on n'aurait
 
-Il y a là des flottements, quelque incertitude,
+Il y a des flottements, quelque incertitude,
 et, si j'ose dire, du brouhaha. M. de Gobineau
 vante la barbarie, mais seulement dans la mesure
 où il voit en elle des promesses de civilisation
 ordonnée et fine. La civilisation, ou mieux, la
 
-- culture », voilà ce qu'il aime et ce qu'il craint
+- culture voilà ce qu'il aime et ce qu'il craint
 de perdre.
 
-Et s'il n'accepte point de croire à la continuité du progrès humain, du moins il accorde |
-qu'aux pires époques, des « ondulations » ne lais- |
+Et s'il n'accepte point de croire à la continuité du progrès humain, du moins il accorde
+qu'aux pires époques, des « ondulations » ne lais-
 sent pas de se produire dans la vie des peuples,
 qui sauvent momentanément les acquisitions pré-
 cieuses de l'humanité.
@@ -4347,7 +4324,7 @@ C'est ainsi que, de nos jours mêmes, en notre siè-
 cle de boue, sa mansuétude couvre la ville perdue
 dans le cynisme démagogique et l'orgie cosmopolite,
 
-— j'ai nommé notre Paris : ;
+— j'ai nommé notre Paris:;
 
 Un des points du globe où le siècle est le plus avancé, et
 présente un plus parfait contraste avec l'âge naïf, c'est bien
@@ -4366,10 +4343,10 @@ n'ont pas eu, à un aussi haut degré que nous, le consolant
 
 Ces consolantes paroles témoignent assez devant
 nous que le pessimisme historique de M. de Gobineau n'est pas le dernier mot de sa philosophie.
-Chassé de l'espoir qu'il avait eu d'asseoir solidement
+Chassé de l'espoir qu'il avait d'asseoir solidement
 
 . l'élite actuelle sur l'histoire et le passé des-races, il
-lui reste un refuge : l'auteur de l' Essai saura transformer ses instruments d'investigation morale, et
+lui reste un refuge: l'auteur de Essai saura transformer ses instruments d'investigation morale, et
 s'attacher à découvrir, — ou à créer, — la véritable
 aristocratie contemporaine, caractérisée par son
 aptitude à la noblesse spirituelle.
@@ -4378,22 +4355,22 @@ Gobineau, Renan et Taine
 
 À Voyages et carrière (1855-1877)
 
-L' « Histoire des Perses »
+« Histoire des Perses »
 
-_” Avant de reprendre le récit de la carrière du
+Avant de reprendre le récit de la carrière du
 
 me comte de Gobineau, il convient que je comble une
 
-—._ sorte de discontinuité que j'ai dû laisser subsister
+—._ sorte de discontinuité que j'ai laisser subsister
 - jusqu'ici dans l'histoire des idées gobiniennes.
-_.  L'Essai sur l'inégalité des races humaïnes paraît
+_. L'Essai sur l'inégalité des races humaïnes paraît
 - de 1853 à 1855. Un demi-siècle plus tard, une suite
-_ d'événements historiques fort compliqués ont pour
+d'événements historiques fort compliqués ont pour
 - effet d'établir une coïncidence entre certaines ten_ dances de ce livre et certaines directions maîtresses
 
-…_ du sentiment public en Allemagne, en France, en
+du sentiment public en Allemagne, en France, en
 
-_ Angleterre, aux États-Unis, dans le monde entier.
+Angleterre, aux États-Unis, dans le monde entier.
 
 la vie et les prophéties du comte de Gobineau
 
@@ -4405,22 +4382,22 @@ Mais dans l'intervalle, que s'est-il passé?
 
 .
 
-e Voici vingt-cinq ans que Wagner et Nietzsche se
+Voici vingt-cinq ans que Wagner et Nietzsche se
 firent les grands intermédiaires entre le « gobinisme » et la pensée contemporaine. L'Allemagne
 devint grâce à eux, dans plusieurs domaines, le
 centre de rayonnement des idées gobiniennes. Mais
 
-quel fut le sort de ces idées, avant que Wagner eût |
+quel fut le sort de ces idées, avant que Wagner eût
 contribué à les répandre, avant que Nietzsche en
 
-eût inspiré ou alimenté son génie ?
+eût inspiré ou alimenté son génie?
 
 Je suis assez disposé à croire qu'auparavant,
-c'est-à-dire pendant un premier quart de siècle, la |
-doctrine de l'Essai traversa une période de léthar- |
+c'est-à-dire pendant un premier quart de siècle, la
+doctrine de l'Essai traversa une période de léthar-
 gie. Autrement dit, je ne crois pas qu'aucun des
 grands écrivains français ou étrangers, dont l'action
-se faisait alors sentir, ait incorporé à sa propre philosophie aucun emprunt opéré sur la pensée gobinienne. Mais il ne suffit pas desle croire : il faut
+se faisait alors sentir, ait incorporé à sa propre philosophie aucun emprunt opéré sur la pensée gobinienne. Mais il ne suffit pas desle croire: il faut
 
 le prouver.
 
@@ -4432,10 +4409,10 @@ rance où le public cultivé demeurait à l'égard de ses
 
 travaux, il a formellement accusé des écrivains qui
 
-n'étaient « ni catholiques ni positivistes », mais qui
+n'étaient « ni catholiques ni positivistes mais qui
 
-possédaient alors « une grande réputation », d'avoir
-_ faitentrer, « sans l'avouer, les principes et même
+possédaient alors « une grande réputation d'avoir
+faitentrer, « sans l'avouer, les principes et même
 
 des parties entières » de son livre dans leurs
 
@@ -4444,36 +4421,36 @@ songeait encore à Darwin, et il l'a nommé. (2) Mais
 son opinion était si aisément réfutable à l'égard de
 
 - Darwin, qu'aucun « gobinien » ne l'accepte, je
-dis parmi les plus zélés. (3) IL n'en va pas de même
+dis parmi les plus zélés. (3) IL n'en pas de même
 pour Renan et Taine. Dès 1878, M. Jacques de Boïis-
 
 jolin semblait conclure à une certaine parenté
 
-mystérieuse entre ces trois livres : l'Essai sur l''iné-
-galité des races humaines, de M. de Gobineau ; :
+mystérieuse entre ces trois livres: l'Essai sur l''iné-
+galité des races humaines, de M. de Gobineau;:
 l'Histoire générale des langues sémitiques, d'Ernest
 
-: Renan ; l'Histoire de la littérature anglaise, de
+: Renan; l'Histoire de la littérature anglaise, de
 
--  Taine. (4) Et M. le professeur Kretzer assure que ces
+- Taine. (4) Et M. le professeur Kretzer assure que ces
 
 À deux ouvrages, où M. de Gobineau n'est pas même
 
-L nommé, reposent l'un et l'autre sur ses théories (5).
+nommé, reposent l'un et l'autre sur ses théories (5).
 
-F (1) Essai, avant-propos de la seconde édition.
+(1) Essai, avant-propos de la seconde édition.
 
 :. (2) « Darwin et Buckle ont créé les dérivations principales du
 
-ee ruisseau que j'ai ouvert. » — /bid.
+ruisseau que j'ai ouvert. » — /bid.
 
-1 (6) Voir Eugen Kretzer, Graf Gobineau, page 143-44 ; réfutation
+1 (6) Voir Eugen Kretzer, Graf Gobineau, page 143-44; réfutation
 
 s. sans réplique de cette prétention de M. de Gobineau.
 
 È (4) Jacques de Boisjolin, les Peuples de la France, page 26. —
 
-* L'opinion de M. de Boisjolin se trouve reproduite dans la préface
+L'opinion de M. de Boisjolin se trouve reproduite dans la préface
 
 la vie et les prophéties du comte de Gobineau-
 
@@ -4484,9 +4461,9 @@ M. de Gobineau chez des amis communs, à dater de
 la fin du Second Empire.
 
 Mais il souriait, m'a-t-on dit, de ses paradoxes.
-Avait-il jamais lu l'Essai ? Rien ne l'indique. Et
+Avait-il jamais l'Essai? Rien ne l'indique. Et
 M. André Chevrillon, dont j'ai fait solliciter sur ce
-point le témoignage, a bien voulu répondre ceci :
+point le témoignage, a bien voulu répondre ceci:
 
 Bien que Taine ne füt jamais las de citer et de'commenter
 dans ses conversations intimes les écrivains et les penseurs
@@ -4497,10 +4474,10 @@ entendu parler de Gobineau.
 Au surplus, relisez l'introduction à l'Histoire de
 la littérature anglaise. (x) Taine discerne trois
 « forces primordiales » en histoire, — savoir, La
-race, le milieu, le moment, — et fait ressortir les |
-« énormes déviations » que ces deux derniers « mo- |
-teurs » impriment au premier : la race. Quoi de |
-moins gobinien ? — Pour Gobineau, loin qu'il y ait
+race, le milieu, le moment, — et fait ressortir les
+« énormes déviations » que ces deux derniers « mo-
+teurs » impriment au premier: la race. Quoi de
+moins gobinien? — Pour Gobineau, loin qu'il y ait
 adaptation de la race à son ambiance, il y a-au con-
 
 (1) Taine publia cet ouvrage en 1864.
@@ -4510,36 +4487,36 @@ mélange des races, qui est la doctrine originale de
 Gobineau, paraît tout à fait étrangère à Taine. Et si
 on prétend découvrir entre eux quelque parenté de
 vues ethnologiques, il serait tout au plus permis de
-supposer que l'influence de l'Essai avait pu s'exercer
+supposer que l'influence de l'Essai avait s'exercer
 sur Taine par voie détournée, à son insu, et justement à travers l'Histoire générale des langues
 sémitiques, d'Ernest Renan, que Taïne avait lue et
 qu'il a citée.
-Le problème de l'influence de l' Essai sur Taine se
-| trouve ainsi ramené au problème de cette même
+Le problème de l'influence de Essai sur Taine se
+trouve ainsi ramené au problème de cette même
 influence, vraie ou prétendue, sur l'Histoire g'éné-
 rale des langues sémitiques, de Renan.
-“ Les amis d'Ernest Renan se souviennent de la
+Les amis d'Ernest Renan se souviennent de la
 É haute estime où il tenait M. de Gobineau. Tous deux
 : se connurent dans la famille Scheffer, un peu avant
-L jamais de vue dans la vie. M. de Gobineau
-‘4 (1) Vraisemblablement, fin 1854. En effet, M. de Gobineau partit
-+ pour la Perse au début de 1855, et il y passa trois années. D'autre
-h part, M. Renan, qui épousa mademoiselle Scheffer au mois de sep3 tembre 1856, ne commença d'être reçu dans la famille Scheffer
-* que deux années auparavant.
+jamais de vue dans la vie. M. de Gobineau
+(1) Vraisemblablement, fin 1854. En effet, M. de Gobineau partit
+pour la Perse au début de 1855, et il y passa trois années. D'autre
+part, M. Renan, qui épousa mademoiselle Scheffer au mois de tembre 1856, ne commença d'être reçu dans la famille Scheffer
+que deux années auparavant.
 
-la vie et les prophéties du comte de Gobineau /
+la vie et les prophéties du comte de Gobineau
 était de sept ans l'aîné. Et dans les premiers entretiens qu'apparemment ils eurent ensemble sur les
 problèmes scientifiques qui étaient leur souci commun, il avait ainsi le privilège de l'âge sur le jeune
 érudit et philologue qu'était alors Ernest Renan.
 
 Je tiens pour certain que M. Renan, au contraire
-de Taïne, n'est pas mort sans avoir lu l'Essai sur
+de Taïne, n'est pas mort sans avoir l'Essai sur
 l'inégalité des races. (x) Et même, M. de Gobineau
 confiait sur le tard à une personne de ses amies
-« qu'il avait vu son Æssai tout noté en marge de la
+« qu'il avait son Æssai tout noté en marge de la
 main de Renan ». Encore faudrait-il savoir si cette
 lecture et ce travail d'annotation se situèrent avant
-ou après la préparation des Langues sémitiques ?
+ou après la préparation des Langues sémitiques?
 Or, tout porte à croire que ce fut après.
 
 Consultons les dates.
@@ -4549,10 +4526,10 @@ le premier manuscrit du travail de Renan avait
 été présenté au concours du prix Volney, en 1847.
 Pour affirmer l'influence de l'Essai sur l'Histoire
 
-(G) Madame Psichari se souvient d'avoir entendu dire à son père |
-que la lecture de P£ssai lui avait « beaucoup appris ». |
+(G) Madame Psichari se souvient d'avoir entendu dire à son père
+que la lecture de P£ssai lui avait « beaucoup appris ».
 
-€) M. de Boisjolin et M. Kretzer ont donné par erreur la date
+M. de Boisjolin et M. Kretzer ont donné par erreur la date
 de 1859. L'édition originale du livre de Renan est de 1855. La
 seconde édition a paru en 1858. Cette erreur de date n'est pas
 sans quelque importance, puisqu'elle a pour effet d'introduire un
@@ -4572,24 +4549,24 @@ que les contrastes entre Gobineau et Taine. Quant
 aux ressemblances, elles se rapportent à des problèmes qui préoccupaient alors tout le monde.
 Et on trouve la trace manifeste de ces communes
 
-_ préoccupations dans l'Avenir de la science, de
-_ Renan, dont le manuscrit remonte, lui aussi, à
+préoccupations dans l'Avenir de la science, de
+Renan, dont le manuscrit remonte, lui aussi, à
 
 En réalité, l'influence de la doctrine de l'Essai ne
 
-_ s'est pas exercée jusqu'à nous par l'intermédiaire de
-_ Renan et Taine. Elle nous est revenue d'Allemagne,
-Ë (1) Lire notamment tout le Chapitre IX de l'Avenir de La science.
-L — Renan écrit : « Je suis convaincu qu'il y a une science des ori-
+s'est pas exercée jusqu'à nous par l'intermédiaire de
+Renan et Taine. Elle nous est revenue d'Allemagne,
+(1) Lire notamment tout le Chapitre de l'Avenir de La science.
+— Renan écrit: « Je suis convaincu qu'il y a une science des ori-
 À gines de l'humanité qui sera construite un jour, non par la spécu-
-% lation abstraite, mais par la recherche scientifique. Quelle est la
-S vie humaine qui, dans l'état actuel de la science, suffirait à explo4 rer tous les côtés de cet unique problème ! Pourtant, comment le
-résoudre sans l'étude scientifique des données positives ? Et sion
-# ne l'a pas résolu, comment dire qu'on sait l'homme et l'humanité ?
+lation abstraite, mais par la recherche scientifique. Quelle est la
+vie humaine qui, dans l'état actuel de la science, suffirait à explo4 rer tous les côtés de cet unique problème! Pourtant, comment le
+résoudre sans l'étude scientifique des données positives? Et sion
+ne l'a pas résolu, comment dire qu'on sait l'homme et l'humanité?
 Celui qui, par un essai même très imparfait, contribuerait à la
 ; solution de ce problème, ferait plus pour la philosophie que par
 à cinquante années de méditations métaphysiques. » — Ces lignes
-F pourraient servir d'épigraphe à l'Essai sur l'inégalité des races
+pourraient servir d'épigraphe à l'Essai sur l'inégalité des races
 
 la vie et les prophéties du comte de Gobineau
 
@@ -4607,7 +4584,7 @@ ministre de France en Perse. La mission prit le
 chemin de fer jusqu'au Nil, remonia le fleuve sur un
 bateau du pacha, visita le Caire, et partit pour Suez
 
-. en voitures. Elle y était attendue par un vapeur de |
+. en voitures. Elle y était attendue par un vapeur de
 guerre de la Compagnie des Indes.
 
 C'était déjà la mi-avril. Le vapeur descendit la
@@ -4616,7 +4593,7 @@ une nuit à Djeddah, lieu très vénéré des Arabes,
 car Eve y eut sa sépulture et c'est le port de La
 Mecque. Après Djeddah, on fit escale à Aden et
 
-() M. de Gobineau avait épousé, en 1846, mademoiselle Monnerot, jeune fille d'origine créole. Son mariage lui donna deux filles.
+M. de Gobineau avait épousé, en 1846, mademoiselle Monnerot, jeune fille d'origine créole. Son mariage lui donna deux filles.
 
 L'aînée est madame la baronne de Guldencrone. La cadette est
 
@@ -4625,18 +4602,18 @@ Elle se forma en caravane, gagna Schyraz par la
 vallée, passa la montagne, et, tournant au nord, se
 dirigea vers Ispahan. Une excursion la retint deux
 jours aux ruines de l'antique Persépolis. Enfin, elle
-| Crainte du choléra, qui décimait alors la cité malade de chaleur, la légation s'installa au joli village |
+Crainte du choléra, qui décimait alors la cité malade de chaleur, la légation s'installa au joli village
 de Roustamabad, voisin du palais du roi. Nasreddyn_ Shah, à peine âgé de vingt-cinq ans, accueillit
 aimablement les envoyés de la France et de l'empereur Napoléon III.
 L'été de 1856 fut sinistre à Téhéran.
-| Le choléra dévora un tiers de la population persane. La petite colonie française ne fut pas épar-
-| gnée. M. de Gobineau décida de renvoyer sa femme
-: et sa fillé en Europe, et voulut les conduire lui1 même à la frontière russe. La route fut lente et la-
+Le choléra dévora un tiers de la population persane. La petite colonie française ne fut pas épar-
+gnée. M. de Gobineau décida de renvoyer sa femme
+: et sa fillé en Europe, et voulut les conduire même à la frontière russe. La route fut lente et la-
 À mentable. Les hommes de l'escorte grelottaient la
-s fièvre. Trois d'entre eux moururent. L'enfant tomba
+fièvre. Trois d'entre eux moururent. L'enfant tomba
 à malade dans le Caucase. Tout un mois, il fallut la
-L soigner sur place, à Tebriz, presque sans espoir.
-| Pourtant, elle guérit, contre toute attente, et la pe-
+soigner sur place, à Tebriz, presque sans espoir.
+Pourtant, elle guérit, contre toute attente, et la pe-
 
 la vie et les prophéties du comte de Gobineau
 
@@ -4647,7 +4624,7 @@ marin anglais. Bientôt elles parvinrent au Bosphore, où l'amiral lord Lyons s'
 M. de Gobineau rentra seul à Téhéran, et il y
 passa dix-huit mois encore. Plusieurs de ses collègues étaient morts. D'autres avaient rejoint la
 France. En janvier 1858, son tour vint de quitter la
-Perse. Au jour du départ, son plaisir à se rapprocher des siens se teinta pourtant de mélancolie :
+Perse. Au jour du départ, son plaisir à se rapprocher des siens se teinta pourtant de mélancolie:
 
 Je traversai pour la dernière fois ces bazars que j'avais
 tant parcourus et que j'aimais. Je pris congé, en pensée, de
@@ -4667,25 +4644,25 @@ s'était soudain découvert une sensibilité d'Oriental.
 Loin de lutter contre elle, il s'abandonna, et connut
 
 par elle les chauds ravissements de la « joie du
-Sud », si immédiate, si enlevante, à son gré si pré-
+Sud si immédiate, si enlevante, à son gré si pré-
 férable à cette joie pâle et méditée, qui « essaye,
 dit-il, de pousser dans le Nord ». (1) Affranchi de
 l'esprit de système, abjurant pour un temps le pré-
 jugé de sa supériorité ethnique, il laissa sommeiller
-en lui l'héritier prétendu des jarls scandinaves : se
+en lui l'héritier prétendu des jarls scandinaves: se
 reposant des livres, il prit goût aux paysages, aux
 hommes, aux réalités. Trois ans, il courut les bazars,
 s'assit au théâtre, questionna les politiques, con-
 à versa avec de savants docteurs, se mêla au populaire, acheta le moins cher qu'il put, à de subtils
 revendeurs israélites, les manuscrits, les médailles
 et les pierres gravées, — s'amusa sans cesse et s'enchanta de tout. La lumière des YWille et une Nuits
-| avait inondé son enfance. Et sous ce climat limpide
+avait inondé son enfance. Et sous ce climat limpide
 de la Perse, parmi ces êtres agiles ou nonchalants,
-| mais tous un peu chimériques, dont il la voyait
+mais tous un peu chimériques, dont il la voyait
 peuplée, il caressait la sensation de renaître à
 l''ätmosphère de ce livre unique, — et de vivre une
 : vie légère, baignée d'un bien-être impalpable, dans
-4 cette « appréciation délicate et absolue du présent »,
+4 cette « appréciation délicate et absolue du présent
 4 qui est, disait-il, le « commencement de la sagesse
 3 et le seul moyen d'être heureux ».
 
@@ -4697,7 +4674,7 @@ l'amitié tendre que leur inspirent les races müries
 par le soleil. M. de Gobineau, cet aristocrate, assure qu'en Asie la « canaïlle elle-même n'est jamais
 vulgaire ». Ce trait serait du pur Stendhal, si ce
 n'était aussi du pur Gobineau. C'est ainsi que la
-seule Italie révélait jadis à l'auteur de la Chartreuse les élans de la passion vraie, étrangère à la :
+seule Italie révélait jadis à l'auteur de la Chartreuse les élans de la passion vraie, étrangère à la:
 vanité, insoucieuse du ridicule, et telle enfin (il faut
 en convenir) qu'il lui arrive aussi parfois de pousser
 dans les pays du nord... — M. de Gobineau réinventa les Persans et la Perse, à son usage, comme
@@ -4709,8 +4686,8 @@ retourner en Asie, y mourir. Le 31 janvier 1858, il
 s'éloignait d'elle avec gratitude et mélancolie, persuadé de n'y jamais revenir.
 
 En France, son père venait de mourir. Son oncle
-Thibaut-Joseph, le vieux garçon légitimiste, était |
-mort trois ans plus tôt, le laissant son héritier. ;
+Thibaut-Joseph, le vieux garçon légitimiste, était
+mort trois ans plus tôt, le laissant son héritier.;
 Sur les deniers de la succession, M. de Gobineau
 
 acheta le château de Trye-en-Vexin, non loin de
@@ -4738,7 +4715,7 @@ L'autre était un petit volume intitulé Voyage à
 fut le hasard qui se chargea de ramener ainsi M. de Gobineau
 vers le pays d'Ottar Jarl. Le château de Trie (ou de Trye, ortho-
 
-s graphe préférée par M. de Gobineau) appartenait au comte de Ja
+graphe préférée par M. de Gobineau) appartenait au comte de
 ; Ferronnays. Au moment de sa mise en vente, M. de Gobineau se
 trouvait en Perse, Mais, par lettre, il avait confié à sa femme le
 soin de chercher une propriété, recommandant surtout que ce ne
@@ -4749,7 +4726,7 @@ une amie qu'elle avait dans cette ville. Ce domaine lui plut. Elle
 
 la vie et les prophéties du comte de Gobineau
 Terre-Neuve, qui eut un vrai succès de public et
-amenait Mérimée, bon juge, à lui écrire : :
+amenait Mérimée, bon juge, à lui écrire::
 
 Vous m'avez appris une chose, c'est que vous étiez très
 gai et que vous aviez la bosse de l'observation comique.
@@ -4759,12 +4736,12 @@ un politique. Maintenant, vous me paraissez un humoriste
 
 A son second séjour en Perse, M. de Gobineau
 eut auprès de lui un attaché « d'un caractère assez
-étrange, mais plein d'audace et de vivacité d'esprit », (2) M. de Rochechouart, qui devint quelque
+étrange, mais plein d'audace et de vivacité d'esprit (2) M. de Rochechouart, qui devint quelque
 peu. son disciple, et écrivit par la suite deux élégants
-petits récits d' € excursions autour du monde ». (3)
+petits récits excursions autour du monde ». (3)
 De Téhéran, M. de Gobineau, si hostile aux Russes,
 assistait à leur effort de pénétration dans l'Asie
-céntrale ; d'autre part, il savait combien les princes
+céntrale; d'autre part, il savait combien les princes
 asiatiques redoutaient et haïssaient l'Angleterre.
 Entre ces deux puissances, il pensa qu'un rôle était
 permis à la France.
@@ -4778,7 +4755,7 @@ science asiatique, M. de Gobineau avait les moyens d'ou-
 
 (2) Biographie de la seconde édition de l'Essai.
 
-(3) Pékin et l'intérieur de la Chine (Plon, 1878). — Les Indes, la :
+(3) Pékin et l'intérieur de la Chine (Plon, 1878). — Les Indes, la:
 Birmanie, la Malaisie, le Japon et les Etats-Unis (Plon, 1879). —
 M. de Gobineau est nommé dans le premier de ces ouvrages
 
@@ -4788,49 +4765,49 @@ M. de Rochechouart qui s'offrait pour cette intéressante
 Le ministère des affaires étrangères refusa son consentement. On y accueillait avec défiance les idées de M. de Gobineau. On y prononçait sans doute à leur sujet le mot
 définitif de chimérique, (1)
 
-Chimérique ! tel est bien le reproche que M. de
+Chimérique! tel est bien le reproche que M. de
 Gobineau était destiné à rencontrer sur tous les
-domaines. — En 1859, il avait eu des démêélés avec
+domaines. — En 1859, il avait des démêélés avec
 le Journal asiatique, à propos de ses premières
-avait servi de conciliateur. Et parlant de M. de Gobineau, l'érudit M. de Mobhl avait dit à Mérimée :
+avait servi de conciliateur. Et parlant de M. de Gobineau, l'érudit M. de Mobhl avait dit à Mérimée:
 
 Je désire bien ardemment qu'il prouve [son dire] et nous
 délivre du scythique, mais qu'il le prouve en donnant sa
 méthode, sans cela personne ne prendra la peine d'exami-
 ner sérieusement des résultats qui ont l'air d'être fondés
 
-. sur une inspiration ! (2)
+. sur une inspiration! (2)
 
 En 1864, à la rentrée définitive de M. de Gobineau en Europe, Mérimée se fit encore son intermé-
-diaire avec les Tuileries, pour le choix d'un nou- :
+diaire avec les Tuileries, pour le choix d'un nou-:
 
 - veau poste. M. de Gobineau venait de publier son
 Traité des écritures cunéiformes. Apparemment, il
 souhaita l'offrir à l'empereur, que les événements
 
-ë (1) Biographie de la seconde édition de l'Essai.
+(1) Biographie de la seconde édition de l'Essai.
 
 (2) Lettre du 6 juillet 1859.
 
 la vie et les prophéties du comte de Gobineau
 du Mexique ne détournaient pas encore de s'inté-
-resser aux travaux d'érudition. Et Mérimée lui écrit :
+resser aux travaux d'érudition. Et Mérimée lui écrit:
 
 À mon avis, il vaut mieux attendre à Fontainebleau pour
 donner vos Cunéiformes à César. Il vous demandera ce que
 c'est et vous pourrez lui donner une explication, d'où il
-retiendra que vous êtes un linguiste, et vous offrira de .
+retiendra que vous êtes un linguiste, et vous offrira de.
 vous envoyer en Cochinchine. Ce sera une occasion de lui
 dire que vous savez le français, langue un peu négligée en
 ce temps-ei, et de lui parler de la direction politique. (1)
 
 M. de Gobineau songeait-il alors à une direction
-de ministère ? — A coup sûr, il se fût accommodé
+de ministère? — A coup sûr, il se fût accommodé
 d'aller à (Constantinople. Mais on l'envoya à
 Athènes, poste de second ordre, et il y passa quatre
 
 Il y travailla beaucoup, et, pendant ce séjour,
-publia ou prépara plusieurs livres ; il y écrivit
+publia ou prépara plusieurs livres; il y écrivit
 notamment sa considérable et délicieuse Histoire
 des Perses. C'est aussi à Athènes que M. de Gobineau commença de s'adonner à la sculpture, c'est-à-
 dire à l'art qu'il tenait pour le plus haut et le plus
@@ -4846,14 +4823,14 @@ passé accumulé dans les paysages. Ce goût de l'histoire, de son mystère, ava
 d'Orient, « une région qu'on ne saurait, dit-il, comparer à aucune autre ». Au début de Trois ans en
 Asie, il traduit tout l'insaisissable de ce sentiment,
 
-en notant ses impressions de trajet entre Alexandrie et le Caire :
+en notant ses impressions de trajet entre Alexandrie et le Caire:
 
 L'air était doux et humide. Des bouquets de palmiers et
 de tamarisques se détachaient sur la lumière du couchant.
 Beaucoup de tristesse, beaucoup de grandeur, et cette idée
-qui trouble : c'est là le Nü, c'est là l'Égypte, c'est là l'histoire immense qui frappe et qu'on ne sait pas. (1)
+qui trouble: c'est le Nü, c'est l'Égypte, c'est l'histoire immense qui frappe et qu'on ne sait pas. (1)
 
-Et il ajoutait :
+Et il ajoutait:
 
 … Je veux que les forêts d'Amérique soient admirables et les
 plages de l'Océanie merveilleuses, mais rien d'humain n'y
@@ -4867,20 +4844,20 @@ au Brésil, et, par suite, il s'y déplut. Sa sensibilité
 se refusait à sympathiser avec les beautés vierges
 et vides du Nouveau-Monde. (2) Ces paysages sans
 
-(2) Plus tard, il écrira dans la Vie de voyage : « On a comparé
+(2) Plus tard, il écrira dans la Vie de voyage: « On a comparé
 l'aspect de Constantinople à celui de Naples. Quel rapport entre
 
 . le plus charmant des tableaux de genre et la plus vaste page his199
 
 la vie et les prophélies du comte de Gobineau
 histoire, il les nommait avec dédain des « paysages
-inédits », (x) et ne puisait en eux aucun stimulant au
+inédits (x) et ne puisait en eux aucun stimulant au
 travail. Son seul délassement intellectuel lui fut
 donné par l'intimité à laquelle l'admit dom Pedro,
 empereur philosophe. Mais le climat lui était mauvais, il prit les fièvres. En 1870, il obtint un congé et
 
 A ce moment, M. de Gobineau paraît avoir sérieusement songé à l'Académie française. Mérimée,
-pressenti, lui donne cet avertissement discret :
+pressenti, lui donne cet avertissement discret:
 « Lorsque vous ferez vos visites, il faut vous pré-
 parer contre une objection qu'on vous fera probablement par insinuation. C'est que vous avez une
 place marquée à l'Académie des Inscriptions... » (2)
@@ -4893,7 +4870,7 @@ orgues où se, montre seule la nature physique, où aucun souvenir
 humain ne parle, où les yeux seuls sont étonnés, éblouis, qu'est-ce
 que cette opulence toute matérielle a de commun avec l'aspect de
 domaine du passé le plus grand, que peuplent à jamais les souvenirs, les sublimes créations du génie? Qu'est-ce que le plus
-achevé des paysages anonymes et muets en face d'un spectacle si parlant ? »
+achevé des paysages anonymes et muets en face d'un spectacle si parlant? »
 
 (1) Biographie de la seconde édition de l'Essai.
 
@@ -4902,16 +4879,16 @@ peut-être ne voyait-il point de possibilité que le sang
 latin triomphât du sang germanique. Mais surtout,
 il savait la faiblesse du régime et se trouvait renseigné sur la force prussienne. Et il partageait en
 somme les appréhensions de son ami Mérimée, qui
-lui écrivait, dès 1867 : « J'avoue que je crains les
+lui écrivait, dès 1867: « J'avoue que je crains les
 généraux prussiens, bien qu'ils soient moins bons
 catholiques que nos maréchaux. Je crains les fusils
 à aiguille, bien que nos militaires de l'École
 polytechnique prétendent que c'est un détail sans
 importance sur le terrain. Enfin, je ne nous vois pas
 M. de Gobineau était venu passer l'été à son chä-
-teau de Trye :
+teau de Trye:
 Il était maire de Trye,
-écrit le comte de Basterot, interprète exact de ses pensées à cette époque, #
+écrit le comte de Basterot, interprète exact de ses pensées à cette époque,
 et membre du conseil général de
 l'Oise pour le canton de Chaumont-en-Vexin. Nos premières
 défaites le trouvèrent là. Elles le désolèrent sans l'étonner.
@@ -4921,7 +4898,7 @@ vers lequel une politique d'aventures et de caprices conduisait la France.
 
 la vie et les prophéties du comte de Gobineau
 Les chants de la Marseillaise, les eris « à Berlin! » répu-
--  gnaïent à sa nature. Il ne donnait pas le nom de patriotisme
+- gnaïent à sa nature. Il ne donnait pas le nom de patriotisme
 à ces surexcitations maladives trop communes chez les races
 latines. Il y voyait des symptômes funestes.
 
@@ -4930,22 +4907,22 @@ la résistance autour de lui; puis, quand l'invasion arriva,
 demeuré calme et digne devant le vainqueur, raisonnant
 avec lui, parlant sa langue, il obtint des concessions qui
 allégèrent le poids du désastre non seulement à son canton,
-mais à tout le département. &
+mais à tout le département.
 
 À l'armistice, la ville de Beauvais lui vota des remerciements publics. On voulait l'envoyer à la Chambre; plus
 tard il fut question de le porter au Sénat. Il n'accepta point
 ces candidatures. Il ne se représenta même plus, dans la
 
-< suite, pour le Conseil général.
+suite, pour le Conseil général.
 
-Il avait vu de près bien des bassesses, bien des làchetés,
+Il avait de près bien des bassesses, bien des làchetés,
 et le suffrage universel, grossier, plein de méfiance pour les
 caractères délicats et élevés, leur inspire, en retour, un iné-
 
 M. Thiers le nomma ministre en Suède.
 
-demeura cinq ans, et c'est là qu'il termina sa carrière
-diplomatique. C'est là aussi qu'il paraît s'être senti
+demeura cinq ans, et c'est qu'il termina sa carrière
+diplomatique. C'est aussi qu'il paraît s'être senti
 le plus heureux. Il y avait conquis le petit cercle
 d'amis et d'écouteurs, dont certains devaient utilement propager plus tard sa renommée en Europe.
 Parmi eux, se trouvait le prince Philippe d'Eulenburg, alors tout jeune, et qui devint son disciple,
@@ -4965,22 +4942,22 @@ psychologiquement les livres variés, publiés par lui
 démêler et de reconstituer la genèse de son individualisme aristocratique.
 Mon dessein n'est pas de dérouler devant vous
 tout le contenu de ces livres, ni de m'astreindre à
-_ les étudier dans leur ordre strictement chronolo-
-| gique. Cela aurait d'autant moins de sens que M. de
-À (1) On sait, d'autre part, l'enthousiasme de Guillaume II pour les
-ÿ écrits de M. Houston Stewart Chamberlain. Or, ce dernier, bien
+les étudier dans leur ordre strictement chronolo-
+gique. Cela aurait d'autant moins de sens que M. de
+À (1) On sait, d'autre part, l'enthousiasme de Guillaume pour les
+écrits de M. Houston Stewart Chamberlain. Or, ce dernier, bien
 3 quil ait pris le parti de s'en taire, n'est qu'un audacieux adaptateur
 —. de lÆssai sur l'inégalité des races humaines. — Il s'est « annexé »
 Pœuvre du comte de Gobineau, dit M. Ernest Seillière (Journal des
-“s Débats, 17 août 1904). Et M. le Dr. Kretzer écrit : « Le livre de Cham_  berlain eût été simplement impossible sans Gobineau : ce n'est
-—_ autre chose, en somme, qu'une transposition des théories gobi-
-* niennes par un lecteur pensant et jugeant par lui-même. » (Eugen
+Débats, 17 août 1904). Et M. le Dr. Kretzer écrit: « Le livre de Cham_ berlain eût été simplement impossible sans Gobineau: ce n'est
+autre chose, en somme, qu'une transposition des théories gobi-
+niennes par un lecteur pensant et jugeant par lui-même. » (Eugen
 
 la vie et les prophéties du comte de Gobineau
 
 Gobineau travaillait toujours à plusieurs livres à la
 fois, sans direction arrêtée, abandonnaït l'un, se
-remettait à l'autre... — J'en ferai deux groupes :
+remettait à l'autre... — J'en ferai deux groupes:
 dans le premier, je réunirai les ouvrages qui ne
 sont point, par leurs sujets, des livres d'imagination; et dans le second, les romans, les nouvelles,
 les vers.
@@ -4997,40 +4974,40 @@ l'écrire, des ressources variées que lui avaient pro-
 curées les contrées d'Orient.
 
 La vision qu'il avait eue des paysages de l'Iran
-lui assurait, tout d'abord, un enviable privilège : elle
+lui assurait, tout d'abord, un enviable privilège: elle
 l'autorisait à situer, en voyageur attentif et artiste,
 
 2) Voir la Préface d'Amadis. — Toutefois, le début de l'ouvrage
-a dû être composé lors du second séjour de M. de Gobineau en
-Perse. Cf. I. 8. (Aspect de l'Elbrouz) : « Ecrivant ces pages au
+a être composé lors du second séjour de M. de Gobineau en
+Perse. Cf. I. 8. (Aspect de l'Elbrouz): « Ecrivant ces pages au
 cœur même de la contrée parthique, je souscris sans peine, etc. »
 
 l'aspect non changé des lieux où s'était déroulée
-cette antique histoire. Puis, il était polyglotte :
+cette antique histoire. Puis, il était polyglotte:
 sa science du persan lui permettait de confronter
 aux récits grecs les chansons de geste orientales,
 sources corrélatives, mais avant lui trop négligées.
 Ensuite, il était très chercheur, très aventureux
 d'esprit et de nature, et, comme tel, n'hésitait jamais
-- à recueillir, à fixer la « tradition orale », sitôt qu'elle
+- à recueillir, à fixer la « tradition orale sitôt qu'elle
 semblait s'offrir à lui, fût-ce par des chemins terriblement hasardeux..
 (Consultez, par exemple, les pages où sa minutie
-ressuscite la physionomie détestée du tyran Zohak :
+ressuscite la physionomie détestée du tyran Zohak:
 L'aveu d'un mérite quelconque, d'une vertu dans Zohak
 est en soi assez curieux. La première fois que cette anomalie
 me fut signalée, ce fut par un cavalier nomade de la tribu
 des Kourdbatjehs, appelé Mohammed-Taghy. J'en fus étonné.
 . Il m'assura que c'était un point bien connu que l'usurpateur
-_ avait toujours respecté la pureté des femmes de l'Iran, et
+avait toujours respecté la pureté des femmes de l'Iran, et
 , que les habitantes de son harem venaient toutes soit de
-_ lArabie, soit de la Géorgie; que, par conséquent, sous ce
+lArabie, soit de la Géorgie; que, par conséquent, sous ce
 rapport, il était irréprochable... (1)
-ss Etonnés ! nous le sommes bien plus encore : ce
+Etonnés! nous le sommes bien plus encore: ce
 « Zohak, dont on jurerait que le « cavalier nomade »
 1 a inspecté le sérail, ne passe-t-il point pour avoir été
-4 (1) IE, 2. (Règne de Férydoun).— J'ai souligné les mots « € en soi » :
+4 (1) IE, 2. (Règne de Férydoun).— J'ai souligné les mots « en soi »:
 —…. ils préservent M. de Gobineau de paraître ici trop crédule. Certes,
-k, il est bien aise de conter son entretien avec le « cavalier nomade. »
+il est bien aise de conter son entretien avec le « cavalier nomade. »
 … Mais ce qui l'intéresse, au fond, c'est la survie accidentelle d'une
 …_. tradition favorable à l'usurpateur arabe, et non point le goût
 exclusif de Zohak pour les femmes de son pays.
@@ -5045,7 +5022,7 @@ l'occasion de se mettre en chasse de curiosités. Et
 sans doute les conversations de son éminent ami le
 rabbin Mulla-Lalazar, Hamadany, lui furent d'un
 grand secours dans le domaine de la recherche
-spéculative : mais l'ingéniosité commerçante des
+spéculative: mais l'ingéniosité commerçante des
 humbles coreligionnaires de ce savant ne lui parut
 pas moins profitable. M. de Gobineau, grâce au
 flair de ces brocanteurs et à sa propre ténacité,
@@ -5054,7 +5031,7 @@ indigènes, dont il faisait si grand cas, pour tant
 d'indications révélatrices qu'il estimait en avoir -
 reçues sur divers problèmes d'histoire. Et souvent,
 dans son ouvrage, le récit des événements s'interrompra donc pour faire place aux confidences de
-l'amateur :
+l'amateur:
 
 Les pierres gravées, prises dans leur ensemble, constituent le moyen le plus sûr et le plus puissant de se rendre
 compte de l'histoire de l'art en Asie. D'abord, par leur petit
@@ -5062,41 +5039,41 @@ volume, elles ont échappé en grand nombre à toutes les
 destructions, leur matière les mettant à l'abri, et comme
 elles ont été en usage depuis un temps immémorial, elles
 présentent une série de témoignages non interrompus et
-tout à fait irréfragables.. ; et comme le style d'un monu-
+tout à fait irréfragables..; et comme le style d'un monu-
 
 ; ment grand comme l'ongle est identiquement le même que
-| celui d'un bas-relief de trente pieds de long, on n'a pas
-_ besoin, au point de vue de la critique, de déplorer la perte
+celui d'un bas-relief de trente pieds de long, on n'a pas
+besoin, au point de vue de la critique, de déplorer la perte
 É de tani d'œuvres plus considérables qui, par cette raison
 4 - même, ont disparu, ne laissant pour les représenter que de
-pe .… Je me suis attaché pendant de longues années à
+.… Je me suis attaché pendant de longues années à
 à recueillir et à coordonner un grand nombre d'intailles.
 É J'en ai beaucoup vu; j'ai choisi ce qui me paraissait digne
 ; de tenir place dans des séries historiques, et c'est ainsi que
-Jai pu former une collection qui m'a aidé plusieurs fois
+Jai former une collection qui m'a aidé plusieurs fois
 —_. déjà et m'aide en ce moment surtout à jeter une lumière
-Ë _ utile au milieu des annales iraniennes.
-… J'ai des pierres qui viennent du Kaboul, d'autres de Kan4 dahar, de Merw, du nord des provinces caspiennes, du Fars
-E” et de la Susiane, aussi bien que de l'Aragh et de la Mésopo4 tamie. Tracées sur améthyste, grenat, sardoine, onyx,
-| cornaline, jaspe et toutes les espèces d'agate, les intailles
+utile au milieu des annales iraniennes.
+… J'ai des pierres qui viennent du Kaboul, d'autres de dahar, de Merw, du nord des provinces caspiennes, du Fars
+et de la Susiane, aussi bien que de l'Aragh et de la Mésopo4 tamie. Tracées sur améthyste, grenat, sardoine, onyx,
+cornaline, jaspe et toutes les espèces d'agate, les intailles
 . sont d'abord purement grecques quant au style, pas toujours
-—…_ quant aux sujets. Je possède un nicolo de travail d'ailleurs
-_ médiocre, où l'on voit un personnage coiffé du bonnet
+quant aux sujets. Je possède un nicolo de travail d'ailleurs
+médiocre, où l'on voit un personnage coiffé du bonnet
 . parthe triangulaire et qui poignarde un démon... (1)
 Ailleurs, « trois cylindres en jaspe vert et une
 _cornaline ovale » lui donneront, par leurs figurines,
 . la « preuve matérielle d'une accession des populations helléniques aux dogmes orientaux. (2) » Ou
 1 bien, il contera avec amour la conquête qu'il sut
 … faire du Koush-namebh, ce rarissime manuscrit d'un
-_ poème historique persan, égalé par lui en valeur au
+poème historique persan, égalé par lui en valeur au
 
-# () VI, 3. — (L'Iran sous les Parthes). à
-de: _ (2) IV, 2. — (Réformation religieuse).
+VI, 3. — (L'Iran sous les Parthes). à
+de: (2) IV, 2. — (Réformation religieuse).
 
 : la vie et les prophéties du comte de Gobineau
 livre des Rois, et que plus tard, retiré en Italie, il
-avait commencé de traduire en français, lorsqu'il :
-fut surpris par la mort :
+avait commencé de traduire en français, lorsqu'il:
+fut surpris par la mort:
 
 Je le découvris à Tabryz entre les mains d'un juif, et
 lorsqu'on sut que je le possédais, on me demanda de toutes
@@ -5105,7 +5082,7 @@ J'avoue que je commis la mauvaise action de ne pas me pré-
 ter à cette demande, qui, en multipliant les exemplaires
 d'un manuscrit si rare, aurait sufli à assurer sa conserva-
 
-© tion, en même temps qu'elle en eût répandu la connaissance.
+tion, en même temps qu'elle en eût répandu la connaissance.
 Mon excuse doit se trouver en ceci, qu'en laissant sortir
 l'ouvrage de mes mains je ne me trouvais pas assez convaincu de l'y voir jamais rentrer. -
 
@@ -5117,10 +5094,10 @@ Sachez encore que ce manuscrit est écrit « sur ce
 gros papier de soie, épais comme du parchemin,
 qu'on nomme papier de Kambalow, et qui ne se
 fabrique plus nulle part en Asie avec le même degré
-de perfection », — papier « jaune nankin, d'un grain :
+de perfection — papier « jaune nankin, d'un grain:
 si serré et si fin qu'il est naturellement lustré, et que
 la plume de roseau y court sans peine ». L'écriture
-en est admirable :
+en est admirable:
 
 Partout où il y a lieu, le 4 final est toujours pointé, marque ordinaire des manuscrits anciens, écrits avec élégance.
 
@@ -5135,32 +5112,32 @@ un goût plus grand et plus sévère...
 Les propriétaires successifs du manuscrit y ont
 mis leurs sceaux. Et M. de Gobineau reconnaît une de
 ces empreintes, répétée par dix fois à l'encre d'or,
-pour le sceau d'un souverain Seldjoukide ! Combien
+pour le sceau d'un souverain Seldjoukide! Combien
 ce prince devait-il être jaloux de la possession de
 ce chef-d'œuvre, « puisqu'il l'a timbré dix fois de son
 
 Je crois en avoir dit assez pour vous faire sentir
 quel prix M. de Gobineau attachait à ses bibelots
 documentaires, et quelle importance il donnait au
-titre complet de son ouvrage, qui est le suivant :
+titre complet de son ouvrage, qui est le suivant:
 
-€ HISTOIRE DES PERSES, d'après les auteurs orien-
+HISTOIRE DES PERSES, d'après les auteurs orien-
 « taux, grecs et latins, et particulièrement d'après
 « les manuscrits orientaux inédits, les monuments
 « figurés, les médailles, les pierres gravées, etc. »
 
-| Quel usage M. de Gobineau a-t-il su faire de ces
-| Pour en décider, il faudrait être plus versé que je
-_ ne suis dans l'histoire des peuples d'Orient. Mais je
-_ puis vous rapporter l'opinion d'un James Darmes-
- teter : il aimait infiniment cette Histoire des
+Quel usage M. de Gobineau a-t-il faire de ces
+Pour en décider, il faudrait être plus versé que je
+ne suis dans l'histoire des peuples d'Orient. Mais je
+puis vous rapporter l'opinion d'un James Darmes-
+teter: il aimait infiniment cette Histoire des
 
 la vie et les prophéties du comte de Gobineau
 Perses, et louait M. de Gobineau d'avoir parfaitement senti et compris l'Iran.
 
 Pour moi, je veux me contenter d'attirer ici votre
 attention sur ce quim'apparaît comme sa conception
-doublement symbolique de l'histoire. .
+doublement symbolique de l'histoire..
 
 La méthode moderne, familière à la science allemande, traite l'histoire ancienne par grandes masses,
 mi-obscures, mi-claires, où les événements se développent, où les hommes se détachent à peine et se
@@ -5173,9 +5150,9 @@ Eéros. Au fond, l'une de ces méthodes vaut l'autre:
 aucune ne supplée aux documents positifs. Mais
 n'est-il pas présomptueux de nier, au nom de la
 seule vraisemblance, des récits qu'acceptaient les
-anciens ? Leurs historiens travaillaient sur des
-annales sèches peut-être, mais d'autant plus sûres ;
-ils indiquent souvent leurs sources ; parfois même,
+anciens? Leurs historiens travaillaient sur des
+annales sèches peut-être, mais d'autant plus sûres;
+ils indiquent souvent leurs sources; parfois même,
 
 ils avouent les scrupules qu'elles leur inspirent sur
 certains points. Puis, si leurs récits enjolivent
@@ -5188,40 +5165,40 @@ Quand Mommsen, dans sa magnifique Æistoire,
 décrit la société italique des premiers siècles en né-
 gligeant les individus, il transpose en langage abstrait les incertitudes de Tite-Live ou de Denys
 d'Halicarnasse, et nous donne un beau spectacle. Avec lui, nous assistons à toutes les phases
-de développement de chaque légende historique : il
+de développement de chaque légende historique: il
 nous fait voir sa naissance, son épanouissement, et
 comment elle se dissipe. La légende s'écroule, le
-symbole crève, le lecteur songe : — Qu'adviendrat-il? — Mais déjà Mommsen est à l'œuvre; il creuse
+symbole crève, le lecteur songe: — Qu'adviendrat-il? — Mais déjà Mommsen est à l'œuvre; il creuse
 le sol, établit des fondations majestueuses, élève un
 monument tout neuf avec les débris de l'ancien...
 Le lecteur à son tour devient sceptique, — et s'en
 
-. va vers ces belles ruines.
+. vers ces belles ruines.
 
 Aller aux ruines, et s'y tenir, c'est ce que fait
 d'abord un Gobineau.
 
-De là son goût pour Hérodote. On a cruellement
+De son goût pour Hérodote. On a cruellement
 reproché à ce vieil écrivain sa curiosité accueillante
-à tant de fables étranges ou saugrenues :
+à tant de fables étranges ou saugrenues:
 
 s'écrie M. de Gobineau;
 qu'il eût été plus crédule et plus superstilieux
 encore qu'on ne lui a reproché, il nous eûl raconté plus de
 
 la pie et les prophélies du comte de Gobineau
-mythes, fait connaître plus de croyances. Il avait la déduction_ courte, défaut commun des anciennes générations ;
+mythes, fait connaître plus de croyances. Il avait la déduction_ courte, défaut commun des anciennes générations;
 mais ceci avoué, il a possédé cette qualité suprême, don des
 poètes et des philosophes, si rare chez les historiens, que
-rien de ce qui est humain ne l'a laissé froid. I s'est peu occupé
-des théories, des doctrines, des faits généraux, et il a eu
+rien de ce qui est humain ne l'a laissé froid. s'est peu occupé
+des théories, des doctrines, des faits généraux, et il a
 tort; mais avec raison il leur a préféré la connaissance,
 l'étude, l'exposition de l'homme même, sous quelque climat,
-loi, ou nationalité qu'il l'ait rencontré. Il a dù à cette poignante sympathie pour l'individu, soit Grec, soit Barbare,
+loi, ou nationalité qu'il l'ait rencontré. Il a à cette poignante sympathie pour l'individu, soit Grec, soit Barbare,
 d'indices épars que leur nature un peu fantasque, souvent
 frivole d'apparence, eùt certainement fait mépriser par les
 annalistes que lon considère comme les plus corrects, les
-plus vraiment sérieux ; mais chaque jour nous apprenons
+plus vraiment sérieux; mais chaque jour nous apprenons
 à revenir sur de pareils dédains.…
 
 Et cet éloge d'Hérodote, — chef-d'œuvre de tolé-
@@ -5230,7 +5207,7 @@ M. de Gobineau, l'occasion de nous faire saisir sa
 propre méthode d'acceptation et d'interprétation
 des matériaux historiques, qui tous sont utiles, en
 un certain sens, alors même qu'on les saït entachés
-d'erreur ou de mensonge :
+d'erreur ou de mensonge:
 
 Hérodote est un Asiatique. Il l'est plus qu'il n'est Grec.
 Comme tel il aime les détails. La vérité absolue l'attache
@@ -5258,23 +5235,23 @@ réussis pas non plus à percevoir une réfraction bien claire de
 la réalité, il me restera encore l'opinion exprimée, soit par
 les contemporains, soit par telle des générations suivantes,
 sur ce fait échappé sans remède à mon appréciation directe.
-Par là, j'aurai toujours de l'histoire, par là j'aurai toujours
+Par là, j'aurai toujours de l'histoire, par j'aurai toujours
 une vérilé; je connaîtrai la nature d'idées d'une des généra-
 
-* tions dont je parle, sa façon de déterminer les actes contemporains ou antérieurs ; je contemplerai son esprit, je me
+tions dont je parle, sa façon de déterminer les actes contemporains ou antérieurs; je contemplerai son esprit, je me
 trouverai en droit d'avoir un avis sur son tempérament. (1)
 
 Ainsi tout témoignage antique, même s'il ne vaut
-pas à titre de « claire réfraction de la réalité », a du
+pas à titre de « claire réfraction de la réalité a du
 moins ce mérite incontestable de nous renseigner
 sur tel sentiment des générations intéressées dans
 les conflits de faits qui nous échappent. Et de la
 sorte, ces témoignages, même infidèles, nous docu-
 
-(1) I, 1. — (L'histoire iranienne et ses sources).
+(1) 1. — (L'histoire iranienne et ses sources).
 
 la vie et les prophéties du comte de Gobineau
-mentent avec exactitude sur cela seul qui nous importe : les penchants des masses humaïnes dont
+mentent avec exactitude sur cela seul qui nous importe: les penchants des masses humaïnes dont
 nous souhaitons reconstituer l'histoire. En ce sens,
 M. de Gobineau ne craint pas de restituer leur
 pleine valeur expressive même aux traditions dont
@@ -5288,7 +5265,7 @@ pétrir à son tourles témoignages que l'antiquité lui
 livre. Aux symboles naïfs des sources anciennes, il
 superposera ainsi le symbole conscient de son
 
-Et ce sera là tout son art :
+Et ce sera tout son art:
 
 des transpositions évidentes de dates, tel fait étant donné
 pour ancien est relativement moderne et au rebours, et cependant un amas immense, imposant, d'une réalité certaine, subsiste. Je puis douter de tel détail, je ne le saurais
@@ -5331,10 +5308,10 @@ suis du moins, et cela m'est bien autrement important,
 d'avoir reproduit l'image que le peuple de l'Iran a pensé
 être la sienne à ses différents àges. L'esprit occidental, en
 touchant ce portrait, le pourra juger d'un point de vue que
-la race qui l'a créé n'a pu connaitre, et il résultera de cette .
+la race qui l'a créé n'a connaitre, et il résultera de cette.
 nouvelle' conception quelque chose de semblable à une sta-
 
-| tue de proportions en vérité assez grandes et assez nobles,
+tue de proportions en vérité assez grandes et assez nobles,
 bien que d'attitude peut-être un peu étrange, et qui méri-
 
 la vie et les prophéties du comte de Gobineau
@@ -5345,7 +5322,7 @@ M. de Gobineau, — égal pour le moins au libéralisme du vieil Hérodote, — 
 être, et, d'autre part, l'aisance extrême avec laquelle
 il insuffle sa propre pensée aux faits, comme s'ils
 étaient les marionnettes inanimées de son scenario
-de l'histoire. Rien de moins « scientifique » peut- .
+de l'histoire. Rien de moins « scientifique » peut-.
 être, au sens un peu timoré et superstitieux que
 nous accordons à ce mot. Mais aussi rien qui sente
 moins la dupérie envers soi-même...
@@ -5359,7 +5336,7 @@ ou brider le génie d'une race, les différences de climat, de voisinage et les 
 — Cela est aussi systématique, mais en sens inverse,
 qu'une préface de Taine.
 
-() Il, 1. — (L'histoire iranienne et ses sources).
+Il, 1. — (L'histoire iranienne et ses sources).
 (2) £ssai, avant-propos de la seconde édition.
 
 Cette nation choisie, — les Perses, — M. de
@@ -5373,11 +5350,11 @@ de sou esprit.
 L'histoire de l'Iran présente, au dire de M. de
 Gobineau, un tableau bien « propre à nous intéresser, car elle montre pour ainsi dire l'image de nos
 
-Tout d'abord, elle fait apparaître un « développement illimité de la liberté individuelle », comparable à l'esprit d'indépendance qui plus tard
+Tout d'abord, elle fait apparaître un « développement illimité de la liberté individuelle comparable à l'esprit d'indépendance qui plus tard
 animera les Goths, les Franks, les Lombards, an-
 
-cêtres aryens de notre civilisation européenne :
-Œ L'État n'existe pas. Les chefs de famille sont confédérés
+cêtres aryens de notre civilisation européenne:
+L'État n'existe pas. Les chefs de famille sont confédérés
 et presque rien de plus. Le roi n'est qu'un guide militaire
 institué pour l'avantage de chacun, et il ne commande que
 É dans des limites assez restreintes.
@@ -5385,7 +5362,7 @@ institué pour l'avantage de chacun, et il ne commande que
 À libre de l'Iran, la doctrine de la raison d'Etat, le besoin de
 - l'ordre, l'apothéose de l'administration envahirent les Pays
 
-e () VI, 5. — (Fin de l'histoire des Iraniens).
+VI, 5. — (Fin de l'histoire des Iraniens).
 
 ; (2) VI, 5. — (Fin de l'histoire des Iraniens).
 
@@ -5393,22 +5370,22 @@ la vie et les prophéties du comte de Gobineau
 Du moins, le sang du peuple reste encore aryen.
 C'est pourquoi ce système déplaît; etil cède le champ
 au régime féodal, à la vérité moins simple et moins
-fort que dans le passé. — « La race n'est plus aussi |
+fort que dans le passé. — « La race n'est plus aussi
 pure; ellerenferme désormais des contradictions. »(1)
 Ensuite, les immigrations scythiques menacent la
 Perse d'une « subversion complète ». Mais Cyrus
-« sauve son pays », (2) bat les Scythes, les refoule,
+« sauve son pays (2) bat les Scythes, les refoule,
 et leur apprend à « regarder les nations iraniennes
 . avec autant d'épouvante pour le moins que de convoitise ». (3) Cyrus les rejette vers les routes de
-l'Occident, et change ainsi l'histoire du monde :
+l'Occident, et change ainsi l'histoire du monde:
 Admettons un instant que ce grand travail de défense
 n'eùt pas réussi et que les populations arianes, ouvrant
 définitivement les brèches qu'elles pratiquaient depuis des
-siècles, eussent couvert le monde méridional, l'Europe n'aurait pas eu de populations germaniques. Les Ases, immobilisés dans leurs établissements du bas Volga, se fussent graduellement absorbés au sein des masses slaves, et n'auraient
+siècles, eussent couvert le monde méridional, l'Europe n'aurait pas de populations germaniques. Les Ases, immobilisés dans leurs établissements du bas Volga, se fussent graduellement absorbés au sein des masses slaves, et n'auraient
 À pas, remontant vers le pôle, créé dans la Suède, dans la
 Norvège, dans le Jutland, cette agglomération de peuples
 qui, au cinquième siècle, valut à ces parages redoutés la dé-
-nomination de matrice des nations. Il n'y aurait pas eu de
+nomination de matrice des nations. Il n'y aurait pas de
 Germains, disais-je tout à l'heure, ni partant demonde romain
 de la seconde période, ni surtout notre société barbare, ni
 par conséquent le moyen âge, ni rien des principes consti-
@@ -5417,7 +5394,7 @@ par conséquent le moyen âge, ni rien des principes consti-
 (3) IL. 6. — (Traditions sur la mort de Cyrus).
 
 tutifs de la civilisation moderne. L'Europe actuelle n'eût
-jamais existé. A sa place on n'eût vu qu'une continuation
+jamais existé. A sa place on n'eût qu'une continuation
 prolongée jusqu'à nos jours de la putridité impériale.
 
 En revanche, ce sang généreux, vigoureux, régénérateur,
@@ -5428,34 +5405,34 @@ les Normands, se seraient trouvés sur les rives du Nil, sur
 les bords de la mer des Indes, dans des cités construites au
 fond du golfe d'Oman, non moins que sur les plaines centrales de la Perse, de la Mésopotamie et du Taurus. L'histoire complète eût été changée, et nous ne pouvons guère
 
-| nous rendre un compte quelque peu exact des immenses difJférences que l'humanité pensante aurait eu à subir. Cependant nous parvenons à comprendre que le centre du monde
+nous rendre un compte quelque peu exact des immenses difJférences que l'humanité pensante aurait à subir. Cependant nous parvenons à comprendre que le centre du monde
 füt resté aux environs de la Mésopotamie, et que Londres et
 Paris ne se seraient jamais mirées, telles qu'elles sont
 : aujourd'hui, dans les eaux de la Tamise et de la Seine.
 Ainsi ce que nous sommes nous-mêmes, Français, Anglais,
 : Allemands, Européens du dix-neuvième siècle, c'est à Cyrus
-| que nous le devons. Je voudrais que le lecteur prît la peine
+que nous le devons. Je voudrais que le lecteur prît la peine
 2 d'examiner ce fait sous toutes ses faces, de le creuser du
 - mieux qu'il lui sera possible, d'en peser toute l'importance,
-# toute la gravité. Il n'y a rien d'un intérêt aussi intense dans
+toute la gravité. Il n'y a rien d'un intérêt aussi intense dans
 1 toutes les annales humaines. (1)
-Tel est le sens légitime de la renommée de Cyrus :
+Tel est le sens légitime de la renommée de Cyrus:
 4 « Lui en moins, le monde changeait pour toujours,
 …._ et c'est tout dire. » Par là, il demeure « un plus
-‘% grand agent de l'histoire » que ne furent César,
+grand agent de l'histoire » que ne furent César,
 Auguste, Charlemagne, et même Alexandre. —
 te, (1) IL, 6. — (Traditions sur la mort de Cyrus).
 
 la vie et les prophélies du comte de Gobineau
 « Cyrus domine sur ces conducteurs de nations. Il
 n'eut jamais son égal ici-bas. » (1) — C'est à son
-insu, dira-t-on ? — Oui; mais qu'importe !
+insu, dira-t-on? — Oui; mais qu'importe!
 
-Le dieu est dans l'homme ; l'homme le porte, lui sert d'instrument, et ne le voit pas et ne le sent pas; il n'en est pas
+Le dieu est dans l'homme; l'homme le porte, lui sert d'instrument, et ne le voit pas et ne le sent pas; il n'en est pas
 moins beau de renfermer le dieu en soi... (2)
 
-Après Cyrus, Darius, « roi des rois », (3) succombe
-par l'effet dissolvant de la politique de cour : « La
+Après Cyrus, Darius, « roi des rois (3) succombe
+par l'effet dissolvant de la politique de cour: « La
 cour, ses intrigues, ses violences, ses rapines, ses
 horreurs, et l'instabilité irritante et déshonorante
 de ses intérêts et de ses évolutions, épuisent les
@@ -5464,26 +5441,26 @@ action, donnent le goût de la trahison à ceux qui
 servent et exercent par habitude toutes les perfidies.
 Les grands accueillent, sollicitent l'ambition légitime d'Alexandre, et tout s'écroule. »(4) Ce dernier
 
-() I, 6. — (Traditions sur la mort de Cyrus).
+6. — (Traditions sur la mort de Cyrus).
 
 (2) IL, 6. — (Tradilions sur la mort de Cyrus).
 
 Cyrus, et modifie en un sens féodal, d'une manière assez curieuse,
-la portée qu'on lui attribue d'ordinaire : « Si le roi Cyrus s'est
+la portée qu'on lui attribue d'ordinaire: « Si le roi Cyrus s'est
 enrichi outre mesure, il n'est encore que le premier entre ses
 pairs, et rien de plus. Cest ce qw'indique très bien le titre particulier qui lui est affecté, « païti-khshaëta, » ou « padishah » dans
 le persan actuel, c'est-à-dire le maître roi, le Roi par excellence, le
 Grand Roi, le Roi des rois, « Shahinshah ». Cette dénomination n'a
 donc rien de fastueux, comme les Grecs se sont évertués à le répéter.
 Elle ne répond à aucun sentiment d'orgueil despotique, elle indique
-un fait matériel : Cyrus, ses devanciers et ses successeurs furent
+un fait matériel: Cyrus, ses devanciers et ses successeurs furent
 les Rois des rois de l'Iran, les Grands Rois. » (IL, 5. — Généalogie
 des grands feudataires).
 
 (4) VI, 5. — (Traditions sur la mort de Cyrus).
 
 unit « d'une manière qui est restée indissoluble le
-monde grec au monde asiatique », (1)amène ces deux
+monde grec au monde asiatique (1)amène ces deux
 mondes à se pénétrer l'un l'autre, conduit les idées
 helléniques au-delà de l'Indus, en même temps qu'il
 ouvre « aux idées orientales un lit bien plus large
@@ -5491,7 +5468,7 @@ encore qui, avec le temps, les amena à déborder
 jusque sur l'occident de l'Europe ». (2)
 
 Lui mort, la démocratie triomphe en Perse comme
-en Grèce. « Inférieure à la liberté », elle l'étouffe. (3)
+en Grèce. « Inférieure à la liberté elle l'étouffe. (3)
 Elle aspire à l'ordre, qui la mène au despotisme,
 et tombe honteusement devant « les lances de
 
@@ -5507,9 +5484,9 @@ entre nous et les dominateurs de l'Iran. (4)
 Tel est le « schema » de l'Aistoire des Perses. Il
 
 - vous appartient de corriger, en la lisant, les simpli-
-(i) I, 6. — (Traditions sur la mort de Cyrus).
+(i) 6. — (Traditions sur la mort de Cyrus).
 
-…. - (2) I, 6. — (Traditions sur la mort de Cyrus).
+…. - (2) 6. — (Traditions sur la mort de Cyrus).
 
 À (3) VI, 5. — (Fin de l'histoire des Traniens).
 
@@ -5529,15 +5506,14 @@ renouvellement de l'aristocratisme gobinien.
 Trois ans en Asie. — Traité des écritures cunéiformes.
 . Les religions et les philosophies dans
 l'Asie centrale.
-| Je vous ai dit mon projet de répartir en deux
-_ groupes les livres publiés par M. de Gobineau entre
-| 1855 et 1877. J'étudierai, en premier lieu, ses œuvres
+Je vous ai dit mon projet de répartir en deux
+groupes les livres publiés par M. de Gobineau entre
+1855 et 1877. J'étudierai, en premier lieu, ses œuvres
 documentaires, et, en second lieu, ses écrits d'imagi-
 A dire vrai, cette séparation est assez artificielle.
 À Pour mieux faire, il eût fallu lire ces livres de
 ; Gobineau presque au hasard et sans ordre. Dans
 chacun d'eux, nous aurions découvert certaines
-|
 
 la pie et les prophéties du comte de Gobineau
 faces nouvelles et pourtant déjà pressenties de sa
@@ -5552,8 +5528,8 @@ nécessités d'un exposé d'ensemble, me paraît encore
 la plus commode et la moins mensongère.
 
 Je songe ici à cette maxime que M. de Gobineau
-répétait volontiers à la fin de sa vie, dans ses entretiens familiers : « Ce que l'on apprend, disait-il,
-n'est qu'une porte que l'on ouvre sur l'immensité ;
+répétait volontiers à la fin de sa vie, dans ses entretiens familiers: « Ce que l'on apprend, disait-il,
+n'est qu'une porte que l'on ouvre sur l'immensité;
 plus il y a d'ouvertures, plus le regard y pénè-
 
 Les livres de notre premier groupe vont nous
@@ -5565,7 +5541,7 @@ Nous le verrons ainsi devenir un homme, prendre
 de la maturité.
 Qu'était-il jadis, au temps de la monarchie de
 Juillet, et lorsque l'ambition lui vint de composer
-une histoire universelle ?
+une histoire universelle?
 Un jeune érudit exalté par la science des livres et
 que possédait, comme beaucoup de jeunes gens de
 ce temps-là, l'orgueil de l'esprit. C'est pourquoi il
@@ -5578,11 +5554,11 @@ par endroits presque enfantine, et qui, dans l'ensemble, si on l'envisage d'apr�
 et de la raison élégante, est peut-être une œuvre
 
 Mais bien plus tard, à l'autre extrémité de sa
-carrière, dans son beau livre de {a Renaissance, il
+carrière, dans son beau livre de Renaissance, il
 É saura mettre sur les lèvres de son héroïque Michel-
-< Ange ces propos susceptibles de se transposer, et
+Ange ces propos susceptibles de se transposer, et
 É qui peuvent en partie servir à peindre les transfor-
-| mations de son attitude personnelle devant l'univers :
+mations de son attitude personnelle devant l'univers:
 à Le ciel, je l'avouerai, m'avait doué en naissant d'une
 : énergie disproportionnée à mon tempérament, Je depinais
 
@@ -5590,21 +5566,21 @@ la vie et les prophéties du comte de Gobineau
 plus que je n'étais en état de voir, et je voyais plus loin que
 Je ne pouvais atteindre. Tout ce qui se produisait autour de
 moi m'effrayait; j'avais peur que mes forces trop courtes
-ne fussent encore distraites, el je m'astreignais avec colère
+ne fussent encore distraites, je m'astreignais avec colère
 et une obstination maussade, à concentrer mes regards sur
 ce but sacré que j'avais peur de manquer. Cependant, je
 sentais redoubler et mes espérances d'arriver au triomphe
 et ma crainte de faillir, en m'apercevant que chaque pas, si
 pénible, si dur, si fatigant qu'il püt être, m'en rapprochait
 pourtant. Je passais ma vie entre le travail et lexaspération
-des efforts : je voulais saisir la nature par toutes ses anfractuosités à la fois, et j'escaladais ses sommets en me cramponnant des mains, des doigts, des pieds, des genoux, de
-tout le corps, à ce qu'ils me présentaient de points d'appui. :
+des efforts: je voulais saisir la nature par toutes ses anfractuosités à la fois, et j'escaladais ses sommets en me cramponnant des mains, des doigts, des pieds, des genoux, de
+tout le corps, à ce qu'ils me présentaient de points d'appui.:
 J'ai été un sculpteur, un peintre, un poëte, un architecte,
 un ingénieur, un anatomiste.. En somme, si je n'ai pas
 accompli tout ce que j'ai voulu, il est certain que j'ai fait
-quelque peu. Un jour, je me suis vu dans une place aussi
-haute, plus haute que je ne l'avais pu rêver, ni souhaiter.
-et je n'ai plus rien eu à demander ni à moi-même, qui
+quelque peu. Un jour, je me suis dans une place aussi
+haute, plus haute que je ne l'avais rêver, ni souhaiter.
+et je n'ai plus rien à demander ni à moi-même, qui
 savais ce que je pouvais faire, ni au monde, qui me donnait
 plus que je n'avais attendu de lui. Alors, tout en travaillant,
 mon cœur s'est reposé; le doute, la crainte de perdre le
@@ -5628,8 +5604,8 @@ moments de loisir, pour regarder avec sympathie
 ce qui lui avait d'abord paru étranger à lui-même,
 pour tout « aimer » et pour tout comprendre.
 C'est à un de ces moments, au plus délicieux
-_ peut-être et au plus fertile, que nous voici parvenus.
-M. de Gobineau aimait voyager ; il aimait aussi
+peut-être et au plus fertile, que nous voici parvenus.
+M. de Gobineau aimait voyager; il aimait aussi
 philosopher sur le voyage. Il n'était pas un voyageur ingrat, et savait que les livres ne suppléent
 pas aux leçons de la nature vivante. — « Si j'avais
 constamment habité les mêmes lieux, dit son
@@ -5643,9 +5619,9 @@ C'était son cas à lui-même. Dès son premier séjour
 en Perse, tout son effort fut pour rompre momentanément avec les savantes théories qu'il avait si
 complaisamment élaborées jusque là. Tant il sentait
 bien quel profit esthétique et intellectuel il avait
-chance de tirer de cet oubli volontaire :
+chance de tirer de cet oubli volontaire:
 
-écrit-il dans Trois ans en Asie, :
+écrit-il dans Trois ans en Asie,:
 de répudier toute idée vraie ou fausse de supé-
 
 riorité sur les peuples que j'étudiais. J'ai voulu me placer,
@@ -5657,16 +5633,16 @@ pour devenir un réceptacle.
 
 Vous songez peut-être que, s'il veut sincèrement
 y parvenir, M. de Gobineau aura grand peine à
-brusquer un tel changement de sa propre nature ?
+brusquer un tel changement de sa propre nature?
 — À dire vrai, il restera toujours, au fond, le même
 homme. Mais ses aptitudes sont très multiples.
-Et tout le changement se borne à ceci : les aspects
-de son tempérament qu'il va nous montrer ne sont
+Et tout le changement se borne à ceci: les aspects
+de son tempérament qu'il nous montrer ne sont
 plus les mêmes qui, dans l'Æssai, avaient forcé notre
 
 Je viens de vous dire ses dispositions à l'égard
 des peuples qu'il observe. D'autre part, nous savons
-déjà combien les contrées « sans histoire » le laissaient insensible :
+déjà combien les contrées « sans histoire » le laissaient insensible:
 
 Quand la nature physique,
 
@@ -5678,14 +5654,14 @@ pourquoi les scènes les plus éblouissantes du NouveauMonde ne sauraient jamais
 Et pourtant, dans le récit de son Voyage à
 Terre-Neuve, (2) après avoir indiqué combien les
 
-| plages américaines entrevues dans cette croisière lui
+plages américaines entrevues dans cette croisière lui
 ont paru dépouillées de beauté comme de prestige,
-un scrupule le prend, — il ajoute :
+un scrupule le prend, — il ajoute:
 
 Encore une fois, ce n'est pas beau. Mais est-ce laid? Est-il
-rien de laid dans la nature ? Tout y a un sens, partant une
+rien de laid dans la nature? Tout y a un sens, partant une
 
-D Telle sera sa double attitude à l'égard des hommes et de la nature, en voyage : découvrir, admirer,
+Telle sera sa double attitude à l'égard des hommes et de la nature, en voyage: découvrir, admirer,
 comprendre. Rien n'est insignifiant, rien n'est laid
 dans le monde. C'est au penseur, à l'artiste, de
 
@@ -5695,12 +5671,12 @@ la vie et les prophéties du comte de Gobineau
 révéler le sens et la beauté qui se cachent dans tous
 les fragments de l'univers.
 
-Animé de ces dispositions excellentes chez un :
+Animé de ces dispositions excellentes chez un:
 voyageur et de ce goût impérieux pour l'Orient qui
 ne l'abandonna jamais, il n'est pas surprenant que
 M. de Gobineau ait laissé sur l'Asie d'incomparables
 livres. Je voudrais vous parler aujourd'hui de Trois
-ans en Asie; du Traité des écritures cunéiformes ;
+ans en Asie; du Traité des écritures cunéiformes;
 et enfin, des Religions et philosophies dans l'Asie
 
 Ces trois livres forment un tout. L'intelligence
@@ -5721,7 +5697,7 @@ A la vérité, c'est un de ces livres qui se lisent et
 ne se racontent pas. On n'y trouve nulle part de ces
 récits enchaïînés qui prêtent à des résumés, à des
 discussions. Mais ce qui vaut mieux, après l'avoir
-lu et longtemps après l'avoir fermé, on emporte la
+et longtemps après l'avoir fermé, on emporte la
 sensation d'avoir vécu en Asie trois ans, et d'avoir
 été M. de Gobineau.…
 Je vous disais tout-à-l'heure que, dans son souci
@@ -5734,23 +5710,23 @@ pas. Malgré son vœu très véridique de n'être plus
 en voyage que le reflet de ses visions, un Gobineau
 ne peut pas se laisser aller, avec le parfait désinté-
 ressement qu'il recherche, à ne recueillir sur le
-| monde extérieur que des impressions dégagées,
+monde extérieur que des impressions dégagées,
 
 comme ferait un de nous, qui n'aurait pas écrit
-| l'Essai sur l'inégalité des races humaines. — Si
+l'Essai sur l'inégalité des races humaines. — Si
 
 l'équipage du navire anglais qui l'emporte vers le
 É golfe Persique est formé de matelots de Liverpool,
-| doubles en hauteur et en corpulence des lascars
-î malais entassés sur ce même bateau, il ne se retien-
+doubles en hauteur et en corpulence des lascars
+malais entassés sur ce même bateau, il ne se retien-
 : dra pas d'indiquer qu'en présence de cette « oppo-
 
 la vie et les prophéties du comte de Gobineau
-sition d'aspect », il « semble difficile de croire à
+sition d'aspect il « semble difficile de croire à
 l'égalité des races ». (1) Si les naturels de la côte
 d'Aden, enfants et vieillards, lui font voir « un
-seul et même type aux divers âges de son développement », il ne résistera pas davantage à faire ressortir
-que, « dans un autre ouvrage », il avait déjà
+seul et même type aux divers âges de son développement il ne résistera pas davantage à faire ressortir
+que, « dans un autre ouvrage il avait déjà
 signalé cette particularité, « sinon comme l'indice
 d'une originalité absolue de race, du moins comme
 le signe certain que les éléments divers dont elle est
@@ -5764,7 +5740,7 @@ Et il renverra le lecteur à l'Essai sur l'inégalité.
 C'est donc bien l'auteur de l'Essai qui se prolonge
 encore et se retrouve dans Trois ans en Asie. En
 
-_ toute rencontre, M. de Gobineau est attiré et cède :
+toute rencontre, M. de Gobineau est attiré et cède:
 
 aux occasions de contrôler expérimentalement tant.
 de théories ou de conjectures risquées dans le livre
@@ -5774,7 +5750,7 @@ les dessous de ses ouvrages. Mais à la surface, elle
 est dissimulée à ce point que le plus souvent elle
 
 échapperait à un lecteur non prévenu, qui n'aurait
-pas lu l'Æssai sur l'inégalité.
+pas l'Æssai sur l'inégalité.
 
 Ce qui me paraît non moins remarquable, c'est la
 démarche assouplie et le ton plus reposé de l'auteur.
@@ -5785,7 +5761,7 @@ Ce style s'humanise et se colore d'amabilité, d'ironie, — devient plus mobile
 
 Voici un tableau de la vie au bazar, qui pourra
 vous donner l'impression de ce nouveau ton, enjoué
-et exact, qui anime Trois ans en Asie :
+et exact, qui anime Trois ans en Asie:
 
 s'amuse plus continuellement que dans un bazar de Téhéran,
 d'Ispahan ou de Schyraz. C'est une conversation qui dure
@@ -5796,17 +5772,17 @@ Les marchands sont assis sur le rebord des boutiques, où
 à les marchandises s'étalent avec un art d'exposition que
 à nous avons perfectionné. Les loutys coudoient la foule, le
 bonnet de travers, la poitrine débraillée, la main sur le
-% gàmà. Les aveugles chantent. Un raconteur d'histoire s'est
-| emparé du chemin et hurle à pleins poumons les douleurs
+gàmà. Les aveugles chantent. Un raconteur d'histoire s'est
+emparé du chemin et hurle à pleins poumons les douleurs
 ou les attendrissements ou les paroles édifiantes d'un roman. à
 Là, passent des Kurdes avec leur turban énorme et leur
-| physionomie sombre et sérieuse. Au milieu d'eux se glis-
-| sent, semblables à des anguilles, des mirzas, l'encrier à la
+physionomie sombre et sérieuse. Au milieu d'eux se glis-
+sent, semblables à des anguilles, des mirzas, l'encrier à la
 
 la vie et les prophéties du comte de Gobineau
 
 ceinture, gesticulant comme des possédés et riant à grands
-éclats ; dans leur marche précipitée, ils tombent sur une
+éclats; dans leur marche précipitée, ils tombent sur une
 file de mulets chargés de marchandises, qui sont arrêtés à
 leur tour par de longs chameaux venant en sens inverse. La
 question pour la foule est de passer au milieu de ce conflit;
@@ -5816,14 +5792,14 @@ de maximes édifiantes, le corps à demi nu, la hache sur le
 dos, et faisant sonner une grosse chaîne de fer, s'entretient
 familièrement avec un moullah, marchand de livres, ou un
 tourneur qui lui fabrique un tuyau pour son kalyan. Là-
-dessus passe un gentilhomme afghan à cheval, suivi d'une :
+dessus passe un gentilhomme afghan à cheval, suivi d'une:
 troupe de ses stipendiés. C'est la figure dure, sauvage, intrépide des lansquenets, et c'est aussi leur air débraillé.
 Turbans bleus collés sur la tête, habits de couleur sombre
 déguenillés, de grands sabres, de grands couteaux, de longs
 
 - fusils et de petits boucliers sur l'épaule, de vrais pandours,
 et dans toute cette cohue des troupeaux de femmes. Elles
-errent deux à deux, quatre à quatre, très souvent seules, '
+errent deux à deux, quatre à quatre, très souvent seules,
 toutes uniformément couvertes d'un voile de coton, rarement de soie, gros bleu, qui les entoure depuis le sommet
 de la tête jusqu'aux pieds. Le visage est étroitement caché
 par une bande de toile blanche qui s'attache derrière la
@@ -5854,7 +5830,7 @@ au soir ou le jour même dans le harem du roi et le point
 exact où en est la discussion de telle khanum avec son
 mari. La chronique scandaleuse court de bouche en bouche,
 peu voilée et s'exagérant tous les quarts d'heure. On emprunte de l'argent et on en prête. On retire telle pièce de
-vêtement qui était en gage depuis six mois et on va enga- :
+vêtement qui était en gage depuis six mois et on enga-:
 ger telle autre. On se querelle, on se menace, mais on ne se
 frappe pas, à moins de circonstances rares. C'est un tapage,
 des cris, des rires, des gémissements, des poussées à faire
@@ -5862,21 +5838,21 @@ tomber les voûtes, et souvent aussi elles ne résistent pas.
 Car, bâties en briques crues en beaucoup d'endroits et
 eimentées à la grosse, elles s'écroulent avec fracas, surtout
 aux approches du printemps, et on ne peut nier qu'elles
-n'écrasent çà et là quelques causeurs. Mais c'est un accident considéré avec beaucoup de philosophie, et on ne voit
-pas que personne en soit contrarié ni préoccupé. &
+n'écrasent et quelques causeurs. Mais c'est un accident considéré avec beaucoup de philosophie, et on ne voit
+pas que personne en soit contrarié ni préoccupé.
 
-Voici comment la journée d'un Persan se passe : une
+Voici comment la journée d'un Persan se passe: une
 
-| grande partie dans les promenades au bazar, une autre
+grande partie dans les promenades au bazar, une autre
 partie est donnée aux visites... (1)
 
-| A ce petit tableau si mouvementé de la vie au !
+A ce petit tableau si mouvementé de la vie au!
 bazar, il ne manque en vérité qu'un seul person-
 
-(1) I, 5. — (Les caractères. — Les relations sociales). \
+(1) 5. — (Les caractères. — Les relations sociales).
 
 la pie et les prophéties du comte de Gobineau
-nage : M. de Gobineau lui-même. — Je l'imagine
+nage: M. de Gobineau lui-même. — Je l'imagine
 assez pareil à ce que fut jadis en France, au dixhuitième siècle, le « Persan » de Montesquieu,
 curieux de tout voir et de ne laisser échapper rien,
 inlassable d'interroger les seigneurs et les ministres, les guerriers, les docteurs, les courtisanes, les
@@ -5897,7 +5873,7 @@ mieux à l'exposition.
 
 Je serai rapide, — et pour cause, — sur le Traité
 des écritures cunéiformes. (1)
-(:) Deux volumes in-octavo, Firmin-Didot, 1864. — Six ans plus
+Deux volumes in-octavo, Firmin-Didot, 1864. — Six ans plus
 tôt, M. de Gobineau avait déjà fait paraître une brochure intitulée
 Lecture des textes cunéiformes (Firmin-Didot, 1858). Le savant
 M. Oppert y était doucement plaisanté. a
@@ -5915,14 +5891,14 @@ les termes suivants, qui vous renseigneront, mieux
 que je ne saurais faire, sur l'économie de ce
 M. de Gobineau,
 déchiffra quatre fois de suite les mêmes
-_ textes cunéiformes, chaque fois d'une facon toute différente,
+textes cunéiformes, chaque fois d'une facon toute différente,
 1 mais toujours avec un succès égal, et lut le même texte de
 4 sept manières différentes, de droite à gauche, de gauche à
 4 droite, de haut en bas, de bas en haut, diagonalement de
 4 droite à gauche, diagonalement de gauche à droite, et enfin
-i- Ceci demande une explication brève.
+Ceci demande une explication brève.
 
-la vie et les prophéties du comte de Gobineau .
+la vie et les prophéties du comte de Gobineau.
 La thèse de M. de Gobineau, c'est que l'écriture
 cunéiforme, — l'écriture des inscriptions de Khorsabad, de Persépolis ou de Suse, — n'est assimilable
 en aucune manière à notre écriture occidentale, invention modeste, puisqu'elle est simplement destinée
@@ -5960,21 +5936,19 @@ de sa gloire à des hauteurs et dans des lieux où, généralement, le regard ne
 jadis été enfermés dans des enceintes inaccessibles aux
 multitudes. On a cru plus naturel d'admettre que les usages
 qui s'observent actuellement trouvaient également crédit à
-ces époques ; que dans les temples, dans les jardins et les palais des grands, sur les fondements des citadelles, on jug'eait
+ces époques; que dans les temples, dans les jardins et les palais des grands, sur les fondements des citadelles, on jug'eait
 utile, même indispensable, de tracer, d'une manière à jamais durable, des formules talismaniques qui fussent des
 gages d'immuable solidité, de puissance et de bonheur... (1)
 Des talismans, — M. de Gobineau en rencontre
 
-partout en Asie. Talismans! ces « globes ailés placés au-dessus des portes », ces bœufs-griffons et ces
+partout en Asie. Talismans! ces « globes ailés placés au-dessus des portes ces bœufs-griffons et ces
 sphynx qui « défendent les avenues des palais »..
 
-Talismans ! ces cachets de cornaline que Mahomet
+Talismans! ces cachets de cornaline que Mahomet
 et plus tard le Bäb recommandèrent de porter,
 parce que cette pierre écarte la pauvreté...
 
-| (1) IV, 1. — (Causes et conséquences nouvelles de la mobilité des
-
-241
+(1) IV, 1. — (Causes et conséquences nouvelles de la mobilité des
 
 la vie et les prophéties du comte de Gobineau
 La confiance dans les talismans, dans la protection
@@ -5983,19 +5957,19 @@ ou de certains êtres, ne peut être regardée comme
 une superstition exclusivement orientale. Mais, sans
 que nous en sachions le pourquoi, il nous paraît
 bien plus étrange que l'on puisse accorder une vertu
-d'enchantement à certains textes littéraires ! Supposez, pourtant, que M. de Gobineau ait dit vrai, en .
+d'enchantement à certains textes littéraires! Supposez, pourtant, que M. de Gobineau ait dit vrai, en.
 nous rapportant cette opinion qu'ilavait recueillie en
 Perse, et que les inscriptions cunéiformes fussent
-en effet des formules talismaniques : il serait de
+en effet des formules talismaniques: il serait de
 l'essence de talismans si subtils de n'ouvrir leur se-
-‘ cret qu'aux initiés, de le refuser aux profanes, et de
+cret qu'aux initiés, de le refuser aux profanes, et de
 les tromper par la bonhomie d'interprétations plus
 faciles, mais de moindre profit. Et on comprendrait, dès lors, cette variabilité d'adaptation et de
 lecture qui scandalise M. Oppert.….
 En s'engageant dans ces études proprement cabalistiques, où l'avait peut-être encouragé et aidé son
 savant ami le rabbin Mulla-Lalazar, M. de Gobineau ne méconnaît pas qu'il « tient la main d'une
-science décriée », (1)et « tout-à-fait propre à effrayer
-() IV, 1. — « Il n'est pas jusqu'à Spinoza qui n'en ait médit,
+science décriée « tout-à-fait propre à effrayer
+IV, 1. — « Il n'est pas jusqu'à Spinoza qui n'en ait médit,
 et Spinoza pourtant en a vécu. »
 
 les esprits accoutumés au mode de raisonnement,
@@ -6006,10 +5980,10 @@ conversations orientales lui avaient appris sur l'histoire et sur l'harmonie des
 
 Pour moi, la physionomie que j'essaie de retracer
 me sembierait incomplète, si je n'indiquais ce nouveau trait qui nous apparaît à présent chez M. de
-Gobineau : son goût pour l'étude du mystérieux,
+Gobineau: son goût pour l'étude du mystérieux,
 de l'occulte, du supra-sensible. Il n'était pas magicien, mais il était intéressé au plus haut point par la
 magie. (2) Tant de curiosité va-t-il jamais sans un peu
-de sympathie ? Et sans vouloir vous donner ici l'impression d'un Gobineau théosophe ou spirite, — je
+de sympathie? Et sans vouloir vous donner ici l'impression d'un Gobineau théosophe ou spirite, — je
 conjecture pourtant que lui-même n'eût pas rejeté a
 priori toute possibilité de croire à l'effet surprenant de certains fluides, qui ont échappé jusqu'ici
 
@@ -6018,7 +5992,7 @@ des idées chaldéennes (LV, 5).
 (2) Dans le petit catalogue de sa Collection d'ouvrages recueillis
 en Perse sur l'histoire, la poésie, La philosophie, les sciences occultes, etc.
 (Plon, 1870), je ne relève pas moins de quinze numéros se rapportant à des manuscrits arabes ou persans, traitant de sciences ma-
- giques.—l{est à noter aussi que la renommée de M. de Gobineau se
+giques.—l{est à noter aussi que la renommée de M. de Gobineau se
 perpétuait très vivante dans certains milieux théosophiques, en
 un temps où son œuvre était entièrement oubliée du grand public.
 
@@ -6029,19 +6003,19 @@ sur le terraïn où je risque cette conjecture, lorsqu'on
 n'y est en somme autorisé que par certains linéaments et certaines touches à peine accentuées de
 l'œuvre qu'on étudie. C'est pourquoi je reviens aux
 régions permises, en me bornant à observer que
-‘ cette sympathie pour toutes les manifestations du
+cette sympathie pour toutes les manifestations du
 surnaturel qualifiait parfaitement M. de Gobineau
 à devenir l'historiographe d'une nouvelle religion.
 Cette bonne fortune lui advint dans son livre
-* sur Les religions et les philosophies dans l'Asie
+sur Les religions et les philosophies dans l'Asie
 Cet ouvrage est recommandable au premier chef,
 1900, chez Ernest Leroux, avec préface de M. Schemann. Cette pré-
-face débute ainsi : (« Depuis une série d'années, l'ouvrage du comte
-de Gobineau sur Les religions et les philosophies dans l'Asie centrale est épuisé sans qu'un de ses compatriotes ait eu la pensée
+face débute ainsi: Depuis une série d'années, l'ouvrage du comte
+de Gobineau sur Les religions et les philosophies dans l'Asie centrale est épuisé sans qu'un de ses compatriotes ait la pensée
 de le remettre sous les yeux du public. Cest un auteur allemand qui réédite aujourdhui le livre de l'illustre Français. Le
 fait est assez extraordinaire pour mériter une explication... »
-M. Schemann fait ensuite connaître l'existence de laæ« Société Gobineau », fondée par lui en 1894 : « Le premier but de cette association fut de rassembler les fonds nécessaires pour les éditions
-allemandes ; le second — celui dont je m'occupe présentement —
+M. Schemann fait ensuite connaître l'existence de laæ« Société Gobineau fondée par lui en 1894: « Le premier but de cette association fut de rassembler les fonds nécessaires pour les éditions
+allemandes; le second — celui dont je m'occupe présentement —
 est La réimpression des œuvres épuisées et la publication des œuvres
 posthumes du comte de Gobineau. »
 
@@ -6051,54 +6025,52 @@ aliènent, dans ses autres œuvres, l'essor de son
 tempérament et son humeur aventureuse. C'est le
 volume signé de lui qui a jusqu'ici le mieux réussi
 en France. Renan le cite avec éloge à la fin de ses
-Apôtres. (1) Et M. Albert Sorel écrit : « Quand je
-rencontrai le comte de Gobineau, je n'avais lu de lui
+Apôtres. (1) Et M. Albert Sorel écrit: « Quand je
+rencontrai le comte de Gobineau, je n'avais de lui
 que son Æssai sur les religions et philosophies dans
 l'Asie centrale, qui est demeuré, pour moi, son
 ouvrage le plus original, le plus accompli, et qui
-aurait dû suflire à sa réputation. » (2).
+aurait suflire à sa réputation. » (2).
 
 La philosophie, la religion, le théâtre en Perse,
 tel est le triple intérêt du livre. Mais sa haute nouveauté, lorsqu'il parut, fut d'importer en Occident
 la révélation d'une religion née d'hier, puisqu'elle
 s'est formée en Perse au milieu du siècle dernier.
-Cette religion est le « Bäbisme », dont le premier
+Cette religion est le « Bäbisme dont le premier
 élan dépassa toute attente permise, et dont les des-
 
 . tins, — s'il faut en croire certains adeptes qu'elle est
 récemment parvenue à faire en Europe et en Amé-
-rique, seraient très loin d'être accomplis :
+rique, seraient très loin d'être accomplis:
 
 En très peu d'années, c'est-à-dire de 1847 à 1852, cette
 religion s'est répandue dans presque toute la Perse, et y
 
 (1) Renan, Apôtres, chapitre XIX, mentionne le Bâbisme, pour
 montrer la permanence des besoins religieux, cite M. de Gobineau,
-et le nomme « un narrateur qui a tout su d'original ».
-
-245
+et le nomme « un narrateur qui a tout d'original ».
 
 la vie et les prophéties du comte de Gobineau
 compte des zélateurs innombrables. En cinq ans, une
 nation de dix à douze millions d'hommes, occupant
 un territoire qui en a jadis nourri cinquante millions,
-une nation qui ne possède pas ces moyens de publicité considérés par nous comme si indispensables à la diffu- |
-sion des idées, je veux dire les journaux et les brochures, $
-qui n'a pas même de service de poste aux lettres, pas même |
+une nation qui ne possède pas ces moyens de publicité considérés par nous comme si indispensables à la diffu-
+sion des idées, je veux dire les journaux et les brochures,
+qui n'a pas même de service de poste aux lettres, pas même
 une seule route carrossable dans toute l'étendue de l'em- “4
 pire; cette nation, dis-je, en cinq ans a été visitée tout
 entière par la doctrine des Bàbys, et l'impression produite
-a été telle que les plus graves événements en sont résultés. :
+a été telle que les plus graves événements en sont résultés.:
 Et ce n'est point une population ignorante qui s'est surtout
 émue; ce sont des membres éminents du clergé; ce sont des
 gens riches et instruits, des femmes appartenant à des
 familles importantes; ce sont, enfin, après les musulmans,
-à des philosophes, des soufys en grand nombre, beaucoup de :
+à des philosophes, des soufys en grand nombre, beaucoup de:
 Juifs, qui ont été conquis tout à coup par la nouvelle révé-
-lation. A le bien prendre, parmi tous les religionnaires de ;
-peu près en dehors de ce mouvement passionné : les nossayrys et les chrétiens.
+lation. A le bien prendre, parmi tous les religionnaires de;
+peu près en dehors de ce mouvement passionné: les nossayrys et les chrétiens.
 La cause de cette abstention est la même de part et
-d'autre; c'est la profonde ignorance des matières intellectuelles mises en question. Il y à cependant une distinction à :
+d'autre; c'est la profonde ignorance des matières intellectuelles mises en question. Il y à cependant une distinction à:
 faire. Le nossayry est un nomade, comme on dit, ou, pour
 parler plus exactement (car il n'existe pas de nomades
 réels en Perse), le nossayry est un homme de tribu occupé
@@ -6107,7 +6079,7 @@ chasse, de ses querelles. Les besoins religieux de son cœur
 et de son esprit sont complètement satisfaits par le très petit
 nombre de prescriptions que lui impose sa foi. Il n'est pas
 théologien, et son activité se porte ailleurs que sur les sujets
-transcendants. Quant au chrétien, le mieux est de n'en pas |
+transcendants. Quant au chrétien, le mieux est de n'en pas
 parler. Dans l'abjection complète où il est tombé, lui et son
 clergé, il serait bien à désirer, pour l'honneur du nom qu'il
 
@@ -6122,18 +6094,18 @@ L'effervescence suscitée en pays d'Orient par
 l'éclosion du bâbisme fut telle qu'elle ne laissa pas
 d'inquiéter les puissants voisins de la Perse. Un
 savant, (3) qui a fait ses études dans un lycée de
-Russie, m'a conté y avoir lu sous le manteau Les
+Russie, m'a conté y avoir sous le manteau Les
 religions et philosophies dans l'Asie centrale, au
 temps de sa jeunesse. Le livre de M. de Gobineau,
 qui fournissait le récit du soulèvement des bâbys et
 l'exposé de leur doctrine, semblait subversif en
-Russie : il était prohibé comme tel par l'autorité
+Russie: il était prohibé comme tel par l'autorité
 
 (1) M. de Gobineau ne manque jamais une occasion de témoigner
 
-son mépris aux chrétiens d'Orient. — Cf. Chapitre II (le Soufysme
+son mépris aux chrétiens d'Orient. — Cf. Chapitre (le Soufysme
 
-et la philosophie) : « Cette dégradation est si réelle et si générale,
+et la philosophie): « Cette dégradation est si réelle et si générale,
 la morale même, chose à peine croyable, se montre chez ces
 malheureux si inférieure de tous points à celle des musulmans,
 qu'on ne sait comment s'expliquer des vérités si tristes. Pour moi,
@@ -6154,11 +6126,11 @@ chrétien, c'est ce qui ne valait pas la peine d'être converti. »
 la vie et les prophéties du comte de Gobineau
 
 M. de Gobineau était arrivé à Téhéran en 1855,
-c'est-à-dire trois ans à peine après que les martyrs |
+c'est-à-dire trois ans à peine après que les martyrs
 du bâäbisme avaient étonné les rues de cette ville
-par leur fanatisme invincible : marchant au dernier $
-supplice en chantant, les chairs ouvertes, tandis |
-que des torches léchaient leurs blessures. IL questionna les docteurs qui avaient vu et compris ces
+par leur fanatisme invincible: marchant au dernier
+supplice en chantant, les chairs ouvertes, tandis
+que des torches léchaient leurs blessures. IL questionna les docteurs qui avaient et compris ces
 événements encore présents à toutes les mémoires,
 
 et se procura, non sans peine, les livres de théo-
@@ -6168,16 +6140,16 @@ avec soin, car leur possession était punie de
 
 Je ne retracerai point d'après lui les premières
 prédications de Mirza-Aly-Mohammed, qui se donna
-le nom de « Bäb », — c'est-à-dire Porte, — voulant
-exprimer par là qu'il était la « Porte » ouverte sur la
+le nom de « Bäb — c'est-à-dire Porte, — voulant
+exprimer par qu'il était la « Porte » ouverte sur la
 vérité; non plus que la part, merveilleuse en Orient,
 que sut prendre à la propagation de sa doctrine
 une femme, d'une extrême beauté et d'une incomparable vigueur d'esprit, qui reçut des Persans
-ce surnom élégant : Gourret-Oul-Ayn, — c'est-à-
+ce surnom élégant: Gourret-Oul-Ayn, — c'est-à-
 dire la Consolation des Yeux. Je ne conterai pas
 davantage les premiers succès politiques et militaires de la secte des Bâbys, ni leur déroute; (1)
 
-(:) Voir dans Religions et Sociétés, (Alcan, 1905), l'étude intitulée
+Voir dans Religions et Sociétés, (Alcan, 1905), l'étude intitulée
 Babisme et Béhaisme, par M. Hippolyte Dreyfus. — Consulter aussi
 Louis de Ronchaud, £Ztudes d'histoire politique et religieuse (Paris,
 
@@ -6200,30 +6172,28 @@ des sept énergies de la parole divine, d'où
 vie, augmentée du principe actif qui la meut, et
 que les Bâbys nomment le Point. Ce nombre
 leur donne la valeur panthéistique de l'univers
-fondu en Dieu, et possède par là un sens sacré
+fondu en Dieu, et possède par un sens sacré
 et privilégié, auquel il convient que tout se sübardonne et s'adapte dans l'organisation des sociétés
-
-7
 
 la vie et les prophéties du comte de Gobineau
 pénales, etc., tout se doit régler par dix-neuf.
-L'année aura dix-neuf mois, le mois dix-neuf jours, |
+L'année aura dix-neuf mois, le mois dix-neuf jours,
 le jour dix-neuf heures, l'heure dix-neuf minutes,
-la minute dix-neuf secondes... Chaque collège '
+la minute dix-neuf secondes... Chaque collège
 sacerdotal se composera de dix-huit prêtres, ayant
-à leur sommet un chef, qui représentera le |
+à leur sommet un chef, qui représentera le
 
 Ces prescriptions, ajoute M. de Gobineau, n'ont
 aucun caractère symbolique. Dans la pensée du Bäb,
 elles sont destinées à donner aux choses « leur dé-
-termination normale et nécessaire », à régler le
-monde en conformité des lois de l'harmonie préétablie :
+termination normale et nécessaire à régler le
+monde en conformité des lois de l'harmonie préétablie:
 
 Jusqu'ici, l'ignorance avait violenté l'esprit et la matière,
 en leur imposant des modes d'activité et des lois d'organisation qui ne répondaient pas à leur véritable nature. Le
 Bäb rétablit la cohérence et la similitude des mouvements
 entre Dieu et la créature momentanément écartée de sa
-source, et c'est pourquoi il dit avec autorité : « Organisez
+source, et c'est pourquoi il dit avec autorité: « Organisez
 toutes choses d'après le nombre de l'unité, c'est-à-dire avec
 une division par dix-neuf parties. » (1)
 
@@ -6244,42 +6214,42 @@ c'est une religion très purement et authentiquement
 orientale. Mais, par ses autres aspects, elle se
 montre très dégagée d'archaïsme, très hardie, très
 . européenne. C'est en tout ce qui touche à ses théories
-sociales et morales :
+sociales et morales:
 Les bâbys, raisonnant comme les économistes européens, imaginent une organisation politique disposée de
-| manière à donner à l'homme la plus grande somme de
-| tranquillité, de sécurité et de bien-être; chez eux, l'habit
-gi est oriental, mais la pensée ne diffère pas essentiellement
+manière à donner à l'homme la plus grande somme de
+tranquillité, de sécurité et de bien-être; chez eux, l'habit
+est oriental, mais la pensée ne diffère pas essentiellement
 : au fond de celle des hommes nouveaux de nos pays. Les
-s uns et les autres imaginent une humanité éclairée, douce,
+uns et les autres imaginent une humanité éclairée, douce,
 : riche, productrice, sociable, heureuse, ne se battant pas, et,
-ê ce qui est la partie du problème que la pratique seule ,
-K pourra résoudre ou ne pas résoudre, n'étant pas un jour, à
+ê ce qui est la partie du problème que la pratique seule,
+pourra résoudre ou ne pas résoudre, n'étant pas un jour, à
 la fin, bien battue. Le rôle que les bàbys font jouer dans
-# tout cela à l'intervention du Dieu qui vit au fond de la
+tout cela à l'intervention du Dieu qui vit au fond de la
 0 conscience de chaque fidèle, c'est le même que celui prêté
-D par M. Proudhon à ce qu'il appelle Justice, et en analysant
-Là de près les deux conceptions, peut-être Les trouverait-on
+par M. Proudhon à ce qu'il appelle Justice, et en analysant
+de près les deux conceptions, peut-être Les trouverait-on
 é plus étroitement parentes qu'il ne semble. De cela je con-
 
 la vie et les prophéties du comte de Gobineau
 clurai qu'en fait d'idées dissolvantes, le bäbysme peut
-Ë servir de preuve que les Orientaux ne sont pas en arrière
+servir de preuve que les Orientaux ne sont pas en arrière
 de nous. Si le bäbysme est une utopie, des utopies semblables existent également chez les sectes philanthropiques …
 d'Angleterre, d'Allemagne et de France; s'il est susceptible
-de recevoir une réalisation, les utopies européennes pour3 ront également, sous une forme ou sous une autre, faire
+de recevoir une réalisation, les utopies européennes ront également, sous une forme ou sous une autre, faire
 subir quelque jour à une portion quelconque de nos
 sociétés, les effets de leur expérimentation. (1)
 
-Le Bäb, dans son adolescence, ne s'était pas seulement adonné à l'étude des doctrines guèbres : il
-avait lu les évangiles dans les traductions répandues
+Le Bäb, dans son adolescence, ne s'était pas seulement adonné à l'étude des doctrines guèbres: il
+avait les évangiles dans les traductions répandues
 par les missions protestantes. Et souvent il avait
 conversé avec les juifs de Schyraz. Or, les juifs
 étaient en Perse le meilleur véhicule de la science
-et de la philosophie d'Occident :
+et de la philosophie d'Occident:
 
 Les juifs ont des docteurs Gont quelques-uns, en fait de
 
-$ connaissances talmudiques et philosophiques, sont très
+connaissances talmudiques et philosophiques, sont très
 savants. J'ai été frappé d'un étonnement véritable, le jour où
 
 l'un de ces érudits m'a parlé avec admiration de Spinoza et
@@ -6306,7 +6276,7 @@ acquérir, dans les richesses de ce monde, aussi bien ce qui
 est science que ce qui est or. (1)
 
 C'était donc en partie grâce au contact des protestants et des juifs que Mirza-Aly-Mohammed était parvenu à élaborer, dans ses propres méditations, une
-doctrine religieuse très compréhensive et très composite, .orientale par son origine et son fond mystique, mais recouverte et nourrie d'idées empruntées
+doctrine religieuse très compréhensive et très composite,.orientale par son origine et son fond mystique, mais recouverte et nourrie d'idées empruntées
 à l'Occident.
 
 . A cet égard, ce qu'il y a peut-être chez lui de plus
@@ -6315,26 +6285,25 @@ bien loin de se donner comme l'unique révélateur de la vérité suprème. Avan
 Mahomet, Jésus; après lui viendront d'autres révé-
 lateurs, qui le surpasseront, comme il pense avoir
 surpassé Mahomet, qui lui-même avait surpassé
-Jésus. C'est là une très haute tentative pour
+Jésus. C'est une très haute tentative pour
 relier et pour unifier les divers moments de la conscience religieuse. Loin de se démentir et de se
 faire la guerre, les révélateurs se continuent et se
-complètent ; ils forment une chaîne. Chacun d'eux
+complètent; ils forment une chaîne. Chacun d'eux
 ajoute à notre initiation. L'homme atteindra par
-() Chapitre IV. — (Le Soufysme. — La Philosophie).
-253
+Chapitre IV. — (Le Soufysme. — La Philosophie).
 
 la vie et les prophéties du comte de Gobineau
 degrés à la vérité divine. Mais la parole de Dieu
 ne se découvre pas tout entière et du premier
 
 Les prophètes primitifs venant agir sur une nature humaine extrêmement endormie, alourdie, paralysée dans sa
-chute, n'ont eu pour mission que de la réveiller dans la
+chute, n'ont pour mission que de la réveiller dans la
 mesure du possible, et de l'acheminer vers l'intelligence de
 sa situation. Ils lui ont annoncé peu de vérités, et des plus
-simples ; ils lui ont prescrit peu de règles, et les plus nécessaires ; lui laissant le temps de se réconforter sans trop d'efforts, ils n'ont pas voulu la brusquer, au risque de la faire
-choir encore en la menant trop vite. C'est là une des manifestations de cette bonté éternelle qui fait le fond de tous
+simples; ils lui ont prescrit peu de règles, et les plus nécessaires; lui laissant le temps de se réconforter sans trop d'efforts, ils n'ont pas voulu la brusquer, au risque de la faire
+choir encore en la menant trop vite. C'est une des manifestations de cette bonté éternelle qui fait le fond de tous
 
-‘ les actes divins ; et combien elle s'est trouvée en cela pré-
+les actes divins; et combien elle s'est trouvée en cela pré-
 voyante et sage, c'est ce que la difficulté avec laquelle les
 hommes ont toujours obéi à toutes les prescriptions, si
 faciles et si modestes qu'elles fussent, s'est chargée de
@@ -6344,7 +6313,7 @@ Graduellement, toutefois, et à pas bien chancelants, mais
 cependant ininterrompus, l'humanité marchaït. La loi de
 Moïse devint bientôt insuffisante, et la nature divine s'incarnant dans Jésus apporta le christianisme. C'était un progrès immense. Le monde en profita assez pour que, après
 un laps de temps beaucoup moins considérable que celui
-qui s'est écoulé depuis David, le dernier prophète, ou, si |
+qui s'est écoulé depuis David, le dernier prophète, ou, si
 l'on veut, Salomon, jusqu'à Jésus, Mahomet püt apparaître.
 Il entraîna encore les hommes un peu plus loin que Jésus
 ne les avait portés. Cependant, non plus que son prédécesseur, il ne vint pas à bout de leur imprimer un mouvement
@@ -6358,16 +6327,16 @@ preuve de son excellence.
 Elle n'abroge aucune des prescriptions essentielles des lois
 précédentes, mais elle vient les compléter. Elle ne donne
 pas les autres prophètes comme ayant été inférieurs au Bàb,
-quant à leur essence ; ils ont seulement été plus réservés,
-plus discrets, et ils ont dû l'être. Du reste, iln'est nullement
+quant à leur essence; ils ont seulement été plus réservés,
+plus discrets, et ils ont l'être. Du reste, iln'est nullement
 nécessaire maintenant de s'occuper d'eux, de leur rendre
 des honneurs rétrospectifs, de s'en référer à leurs paroles,
 de consulter leurs livres. Tout cela, fort bon dans son temps,
 mais aujourd'hui dénué de toute utilité, aurait inconvénient
 grave de retenir les hommes dans des bas-fonds où ils ne
 doivent pas rester. On aurait tort de croire qu'une négligence si absolue püt tourmenter ou affliger l'âme des
-anciens prophètes ; ce serait ne pas connaître ce qu'elle est
-en réalité ; mais Dieu, de qui émanent, dans le temps, et les
+anciens prophètes; ce serait ne pas connaître ce qu'elle est
+en réalité; mais Dieu, de qui émanent, dans le temps, et les
 révélations et les révélateurs, s'affligerait, au contraire, de
 voir ses volontés paralysées par une aveugle reconnaissance,
 une indécente et maladroite piété, un esprit de routine
@@ -6378,13 +6347,13 @@ Maintenant que le Bàb est le prophète du siècle, c'est à lui
 que doivent s'adresser provisoirement les hommages. Mais
 voici qui est très remarquable, et j'y faisais allusion tout-à-
 l'heure en disant que la révélation nouvelle a des caractères
-qui lui sont spéciaux : Dieu n'a pas voulu cette fois laisser
+qui lui sont spéciaux: Dieu n'a pas voulu cette fois laisser
 croire à l'humanité qu'elle était arrivée à son terme, et surtout que la révélation qui lui était faite se renfermäât dans
 un homme. Le Bäb, pour grand qu'il puisse être, n'est pas
 à lui seul le prophète, ou si l'on aime mieux, la prophétie
 
 actuelle. Elle se compose d'une unité tout entière, et si l'on
-| se reporte à ce qui a été dit précédemment, on comprendra
+se reporte à ce qui a été dit précédemment, on comprendra
 de suite qu'une unité tout entière, c'est ici dix-neuf manifes-
 
 la vie et les prophéties du compte de Gobineau
@@ -6393,7 +6362,7 @@ seul toute la manifestation.
 
 Voilà donc que l'organe révélateur qui se produit de nos
 jours possède un avantage bien saillant sur tout ce qu'on
-avait vu jusqu'alors. Il n'est pas seulement émané de la
+avait jusqu'alors. Il n'est pas seulement émané de la
 divinité, il est constitué comme elle, par ses dix-neuf
 manières d'être. Comme la divinité, il forme ce genre d'unité
 primitive qui est l'unité féconde des différentes personnalités qui y sont comprises. (1)
@@ -6436,17 +6405,17 @@ ne saurait pas un jour faire son chemin... Réciproquement il lui plut, — dans
 traduire en persan le Discours sur la méthode et de
 procurer à ses hôtes asiatiques le « chef-d'œuvre de
 
-_ M. de Gobineau aurait pu tout aussi bien leur
+M. de Gobineau aurait tout aussi bien leur
 
 la vie et les prophéties du comte de Gobineau
-offrir l'Éthique de Spinoza, ou la Logique de |
+offrir l'Éthique de Spinoza, ou la Logique de
 Hegel. Mais il ne le fit point, et nous en dit les
 J'ai donc procuré aux Persans le Discours sur la Mé-
 thode. (r) Il m'a paru que, dans toute notre philosophie, rien
 ne pouvait avoir chance de produire des résultats plus singuliers parmi eux. Ils ne sont pas gens à tomber dans les
-i excès de la méthode expérimentale, et il n'y a pas d'appa- }
+excès de la méthode expérimentale, et il n'y a pas d'appa-
 rence qu'on supprime jamais chez eux l'abus de l'induc-
-tion. On n'en voit pas davantage qu'ils arrivent à tirer du |
+tion. On n'en voit pas davantage qu'ils arrivent à tirer du
 cogito ergo sum le parti modéré auquel les Européens ont
 la prétention de s'arrêter. En réalité, il est impossible de
 deviner ce qu'ils en feront, mais ils en feront probablement
@@ -6456,22 +6425,22 @@ intelligence et d'une science hors ligne. Ils en ont éprouvé une.
 impression remarquable, et il n'est pas probable que cette
 impression s'efface sans résultats. Ce qui les a surtout frappés, c'est l'emploi nouveau pour eux qui était fait de la formule fondamentale. En tant que formule, la découverte et
 l'emploi en sont très anciens en Orient. Il y a longtemps
-que rapprochant les mots hyy, vivre, et wehy, « exprimer », |
-« manifester », « parler », et les ramenant à une même ra-.
+que rapprochant les mots hyy, vivre, et wehy, « exprimer
+« manifester « parler et les ramenant à une même ra-.
 cine fictive, les métaphysiciens du Talmud et de l'Islam ont
 prononcé que vivre ou parler supposait la pensée, mais la
-conséquence qu'ils en tirent est celle-ci : que Dieu étant |
-l'existence par excellence, l'existence unique, ilest, en même |
+conséquence qu'ils en tirent est celle-ci: que Dieu étant
+l'existence par excellence, l'existence unique, ilest, en même
 (1) Cette traduction du Discours sur la Méthode figure au petit
-(Imprimés) : « DESCARTES, Le livre de la Méthode.— Traduction persane. — In-4°, maroquin rouge. »
+(Imprimés): « DESCARTES, Le livre de la Méthode.— Traduction persane. — In-4°, maroquin rouge. »
 
-temps, l'unique pensée et l'unique parole, ce qui ne va pas
+temps, l'unique pensée et l'unique parole, ce qui ne pas
 au résultat cherché par Descartes. Aussi, ne fût-ce que pour
 cette raison, cet auteur leur paraît très curieux. Mais, toutefois les deux hommes que les philosophes de ma connaissance ont la plus grande soif de connaître, c'est Spinoza et
 Hegel; on le comprend sans peine. Ces deux esprits sont
 des esprits asiatiques et leurs théories touchent par tous
 les points aux doctrines connues et goûtées dans le pays du
-soleil. Il est vrai que, pour cette raison même, elles ne sauraient introduire là des éléments vraiment nouveaux. (1)
+soleil. Il est vrai que, pour cette raison même, elles ne sauraient introduire des éléments vraiment nouveaux. (1)
 
 M. de Gobineau estimait que « tout ce que nous
 pensons et toutes les manières dont nous pensons
@@ -6500,14 +6469,14 @@ conserve le plus souvent un peu de l'opinion qu'il n'a plus,
 ou même encore de l'opinion qu'il n'a pas. Il est possible, dans des déclarations claires, nettes, de rejeter tels ou
 tels dogmes, mais il ne l'est pas autant de se soustraire à
 telles ou telles conséquences de ces mêmes dogmes, à des
-notions qui n'existeraient pas sans eux : en un mot, le
+notions qui n'existeraient pas sans eux: en un mot, le
 nombre des consciences résolument blanches ou noires est
 rare partout; ce sont les grises qui se rencontrent le plus
 
 Toutefois, je le répète, il faut convenir que, de tous les
-fl peuples qui furent jamais, ceux de notre partie du monde,
+peuples qui furent jamais, ceux de notre partie du monde,
 je dis nos contemporains, sont encore ceux qui ont réussi
-davantage à se donner des croyances d'apparence homogène. Il n'en va pas de même des Asiatiques. Ils sont tellement loin d'un tel résultat, qu'ils n'en conçoivent pas même
+davantage à se donner des croyances d'apparence homogène. Il n'en pas de même des Asiatiques. Ils sont tellement loin d'un tel résultat, qu'ils n'en conçoivent pas même
 l'utilité; ils lui tournent le dos et leur préoccupation est
 
 moins de chercher, ainsi que nous, un état de vérité bien
@@ -6519,13 +6488,13 @@ estiment être la vérité; les antinomies ne les effarouchent
 pas, l'immensité des terrains les ravit, le vague des délimitations ou plutôt l'absence de bornes leur semble de première obligation, si bien que, quelle que soit la thèse soutenue devant eux, cette thèse sera importante et digne de
 leur sympathie, non pas suivant la mesure de l'élan quon
 
-y remarquera vers l'exactitude, mais suivant la minutie de :
+y remarquera vers l'exactitude, mais suivant la minutie de:
 
 la recherche attachée à quelque point négligé jusqu'alors, et
 que sa subtilité permet de faire, sinon même entrevoir, au
 
 Je vous ai montré aujourd'hui M. de Gobineau en
-train d' « apprendre », puis de « rêver ». — Dans
+train « apprendre puis de « rêver ». — Dans
 notre réunion prochaine, nous assisterons à son
 
 effort de création.
@@ -6543,16 +6512,14 @@ l'Aphroëssa, et c'est l'Abbaye de Typhaines. Non
 qu'ils soient dépourvus d'intérêt ni de mérite. Mais
 l'Abbaye de Typhaines, (1) — roman historique
 
-————
-
 la vie et les prophéties du comte de Gobineau
 sur le mouvement communal en France au temps de
 Louis le Gros, — est visiblement une œuvre de jeunesse. (1) Et l'Aphroëssa, (2) petit recueil de poèmes
-symboliques plein de sens et de suggestions gobiniennes, a un grave défaut : il est en vers.
+symboliques plein de sens et de suggestions gobiniennes, a un grave défaut: il est en vers.
 
 Il faut beaucoup aimer M. de Gobineau pour
 aimer ses vers. Les Allemands là-dessus sont
-moins délicats et moins résistants que nous : ils
+moins délicats et moins résistants que nous: ils
 mettent très haut les poèmes de M. de Gobineau;
 ils les admirent. C'est peut-être parce qu'ils les
 lisent dans une langue qui n'est pas la leur. (3) Ou
@@ -6566,7 +6533,7 @@ riorité par rapport à l'Essai. M. Seillière ne se trompait point, et
 veut bien m'informer que M. Schemann, consulté par lui, a entiè-
 rement confirmé sa conjecture.
 
-(3) Mérimée, lettre de Cannes, 13 janvier 1869 : « Jai lu Aphroëssa.
+(3) Mérimée, lettre de Cannes, 13 janvier 1869: « Jai Aphroëssa.
 Vous savez que je ne suis pas juge en matière de poésie, ainsi ne
 faites aucun cas de mes critiques, ou plutôt de ma critique,
 car je n'en ai qu'une. Vos petits poèmes sont bien composés,
@@ -6575,7 +6542,7 @@ langue qu'ils comportent. Vous avez dans vos plans une grande
 simplicité, et je vous en loue. Cela est grec et bien; mais pourquoi, lorsque vous prenez la manière d'un poète des anciens
 temps, vous servez-vous de la langue moderne et de la plus mo-
 
-‘ derne ? Vous avez des néologismes qui passeraient dans la prose,
+derne? Vous avez des néologismes qui passeraient dans la prose,
 mais que je ne puis admettre dans la poésie. Le contraste entre
 le fond et la forme me frappe d'autant plus que j'aime beaucoup
 le fond et qu'il me semble qu'avec un peu plus de travail vous
@@ -6609,7 +6576,7 @@ coin d'humanité ou de nature, mais qui pourtant
 la vie et les prophéties du comte de Gobineau
 ne portent pas en eux un monde d'accents et de
 
-M. de Gobineau était de ceux-là, en littérature :
+M. de Gobineau était de ceux-là, en littérature:
 il avait moins d'invention que de sensibilité et
 d'intelligence dans le domaine de l'art. Presque
 toujours, il serait aisé d'établir l'exégèse de ses nouvelles, en les rapportant à tel ou tel trait déjà noté
@@ -6624,16 +6591,16 @@ comme très directement émanés de ses carnets de
 Souvenirs de voyage; Céphalonie, Naxie et TerreNeuve... (1) Tel est le titre négligent de son premier
 recueil de nouvelles. — Et c'est seulement en soustitre qu'il donne leurs noms aux trois récits situés
 dans les pays qu'il venait de voir: Le Mouchoir
-rouge; Akrivie Phrangopoulo ; et la Chasse au
+rouge; Akrivie Phrangopoulo; et la Chasse au
 
-De l'avis unanime des « gobiniens », la plus
+De l'avis unanime des « gobiniens la plus
 
 accomplie de ces trois nouvelles est Akripie
 Je me suis promis de vous la conter.
 
 Elle nous transporte à Naxie, dans l'archipel
 dénudé et abandonné des Gyclades, et débute par
-ce paysage :
+ce paysage:
 
 Les Cyclades sont un des endroits du monde auquel l'épithète de séduisant s'applique avec le plus de vérité. Pourtant
 beaucoup d'entre elles peuvent être qualifiées en toute justice de rochers stériles; mais au sein de ces mers de la Grèce,
@@ -6642,7 +6609,7 @@ comme autant de pierres précieuses. La lumière qui les
 inonde au milieu d'une atmosphère sans tache, et les flots
 d'azur qui les enchässent, en font, suivant les heures du
 jour, autant d'améthystes, de saphirs, de rubis, de topazes.
-La réalité est stérile, pauvre, assez nue, certainement mélancolique ; mais ces inconvénients s'effacent sous une majesté
+La réalité est stérile, pauvre, assez nue, certainement mélancolique; mais ces inconvénients s'effacent sous une majesté
 et une grâce incomparables. Les Cyclades donnent l'idée de
 très grandes dames nées et élevées au milieu des richesses
 et de l'élégance. Aucune des somptuosités du luxe le plus
@@ -6659,13 +6626,13 @@ demeure comme le suprême raffinement interdit aux parvenues, une sérénité ch
 
 En vue de ces îles désertées, voici venir une corvette anglaise. Elle s'arrête à Naxie, pour une avarie:
 à réparer. Le commandant, Henry Norton, est un
-joli Anglais de trente-trois ans, « parlant peu, songeant beaucoup, rêvant assez », et présentant « ce
+joli Anglais de trente-trois ans, « parlant peu, songeant beaucoup, rêvant assez et présentant « ce
 mélange, si commun chez ses compatriotes, d'esprit
 positif, d'esprit romanesque et d'énergie ». Deux
 gentilshommes naxiotes viennent se mettre à son
 service, L'un se nomme M. Dmitri de Moncade; il
 est agent consulaire de Sa Majesté Britannique.
-L'autre est consul des villes Hanséatiques ; il a nom
+L'autre est consul des villes Hanséatiques; il a nom
 
 M. de Moncade, fort bavard, n'estime que les
 
@@ -6676,28 +6643,28 @@ mésalliance n'avait altéré la pureté du sang circulant dans
 ses veines.
 
 M. Nicolas Phrangopoulo, — dont le nom signifie
-« fils de Franc », — ne se tient pas pour moins bon
+« fils de Franc — ne se tient pas pour moins bon
 
 Cette île de l'archipel grec, « dans toute sa grâce
 
 (1) Tout comme M. de Gobineau. à
 
 merveilleuse, représentée par ces deux vieux débris
-de la noblesse européenne », et, malgré sa proximité
+de la noblesse européenne et, malgré sa proximité
 d'Athènes, « plus éloignée de l'univers civilisé que
-les provinces centrales de l'Amérique », c'était là,
-continue l'auteur, un de ces « paradoxes violents »,
+les provinces centrales de l'Amérique c'était là,
+continue l'auteur, un de ces « paradoxes violents
 tels que le commandant de la corvette Aurora
-les & adorait ». — On convint de se rendre à la
+les adorait ». — On convint de se rendre à la
 campagne, chez M. Phrangopoulo, pour y passer la fin du jour. -
 
 Après deux ou trois heures de marche sous un
 ciel avenant, un petit castel, entouré de citronniers
-et de vignes, apparaît aux voyageurs :
+et de vignes, apparaît aux voyageurs:
 
 Il frappa d'abord les regards d''Henry Norton, et les
 rétint. Ce fut une sorte de fascination, et quand M. de
-Moncade eut annoncé que c'était là le but de la promenade
+Moncade eut annoncé que c'était le but de la promenade
 et que, passé un petit pont jeté sur le ruisseau, on allait
 trouver le domaine de son ami, le voyageur anglais eut
 limpression que c'était une sorte de Rubicon qu'il allait
@@ -6705,12 +6672,12 @@ franchir, et qu'il laisserait sur une rive sa vie ancienne
 pour, sur l'autre, recommencer une nouvelle existence.
 
 De pareilles visions se produisent quelquefois et sont
-trompées ; elles dépendent de l'humeur où l'on est, du temps
+trompées; elles dépendent de l'humeur où l'on est, du temps
 qu'il fait, d'un bien-être physique mieux senti. Les natures
 propos de tout et à propos de rien, et, qui pis est, elles
 g'abandonnent volontiers à la créance que leurs oscillations
 sont d'une nature prophétique et leur ouvrent l'avenir. Il
-arrive, en conséquence, qu'elles s'égarent ; mais ce serait
+arrive, en conséquence, qu'elles s'égarent; mais ce serait
 un genre particulier de superstition que de réduire en
 axiome qu'elles se trompent toujours.
 
@@ -6722,11 +6689,11 @@ magnifique personne lui devint l'occasion d'un
 
 C'était une jeune fille plus que modestement vêtue d'une
 robe de cotonnade brune à pois blancs, taillée et certainement cousue par elle-même... Des manches larges attachées
-aux poignets, pas de dentelle, de mousseline ; rien de plus
+aux poignets, pas de dentelle, de mousseline; rien de plus
 austère. Une taille élancée, forte, ferme, saine, la carnation
 d'une des néréides de Rubens; des yeux merveilleux, brillants comme des saphirs bleus et de la même transparence
 que ces pierres... la bouche la plus rose, le sourire le plus
-épanoui, les dents les plus dignes de la comparaison ancienne avec un rang de perles ; une candeur adorable et
+épanoui, les dents les plus dignes de la comparaison ancienne avec un rang de perles; une candeur adorable et
 sans tache se montrant, se prouvant d'elle-même au premier
 aspect; le calme charmant de la sécurité.
 
@@ -6738,17 +6705,17 @@ côté de sa mère, le commandant jugea nécessaire d'appeler
 pavillon britannique. Ce ne fut nullement sa faute si la dé-
 marche souple, noble, d'une grâce inouïe de la nouvelle
 arrivée présenta à sa mémoire l'hémistiche de Virgile sur
-la façon dont s'avancent les déesses ; ce le fut encore bien
+la façon dont s'avancent les déesses; ce le fut encore bien
 moins quand, la jeune fille étant assise, il vit les yeux de
 toute la famille attachés sur les siens et toutes les bouches
 souriant avec le plus candide orgueil, tandis que M. de
 Moncade lui disait de l'air d'un homme qui expose une vé-
 
-— Je pense que vous n'avez jamais rien vu d'aussi beau |
-que ma filleule Akrivie! |
+— Je pense que vous n'avez jamais rien d'aussi beau
+que ma filleule Akrivie!
 
 Henry Norton cherche à nouer un entretien avec
-cette belle Akrivie. Mais il n'y peut parvenir :
+cette belle Akrivie. Mais il n'y peut parvenir:
 
 Elle ne parlait de rien, elle ne savait rien, elle n'avait
 réfléchi sur rien, et n'avait ce qui s'appelle de conversation
@@ -6758,50 +6725,50 @@ yeux, et elle était ravissante.
 Norton ne put réussir à la trouver sotte. Il arriva même
 tout le contraire. Des éclairs du jugement le plus droit, de
 la conviction la plus imperturbable et la plus absolue, une
-visible vigueur, une santé certaine dans cet esprit quasisauvage lui donnèrent plus à penser que n'eussent pu faire
+visible vigueur, une santé certaine dans cet esprit quasisauvage lui donnèrent plus à penser que n'eussent faire
 les effusions les plus fleuries, dont la meilleure part eût simplement, dans un esprit aussi raffiné que le sien, ravivé
 des souvenirs et remué des citations. L'entretien le promenait non dans une plaine stérile, mais sur une terre inculte,
 ce qui est fort différent.
 
 Le soir vient. Norton retourne à son bord, et, —
 ne pouvant songer à dormir, — dépense quelques
-heures à arpenter le pont, en regardant la mer :
+heures à arpenter le pont, en regardant la mer:
 
-Le ciel de la nuit était limpide et profond, la lune étincelante; chacune des milliers d'étoiles flamboyait ; certainement son âme ne brillait pas moins en lui-même. Elle passait, comme un général d'armée, une étrange revue; celle
+Le ciel de la nuit était limpide et profond, la lune étincelante; chacune des milliers d'étoiles flamboyait; certainement son âme ne brillait pas moins en lui-même. Elle passait, comme un général d'armée, une étrange revue; celle
 des formes charmantes auxquelles depuis qu'elle se connaissait elle avait voué, ne füt-ce qu'une semaine, un sentiment de tendre admiration. La fraîche Irlandaise aux traits
-fins qui l'avait fait rêver quand il était sorti d'Eton ; Moily
+fins qui l'avait fait rêver quand il était sorti d'Eton; Moily
 Greeves, qui avait tant pleuré quand il avait quitté la maison de son oncle après son premier congé; Catherine
 Ogleby, à laquelle il avait été fiancé, et qui avait épousé un
 officier des gardes pendant son séjour en Chine; Mercédès
 de Silva à Buenos-Ayres, lacinta à Santiago, Marianne
 
 la vie et les prophéties du comte de Gobineau
-Ackerbaum dans un des ports de la Baltique ; en vérité, en
+Ackerbaum dans un des ports de la Baltique; en vérité, en
 vérité, il avait aimé tout cela, plus ou moins, mais il avait
-aimé ; il avait espéré, il avait cru, il s'était agité, il avait eu
-réelle ; tout cela n'était plus que cendres, mais il avait aimé,
+aimé; il avait espéré, il avait cru, il s'était agité, il avait
+réelle; tout cela n'était plus que cendres, mais il avait aimé,
 et ces cendres se réunissant dans un nouveau foyer servaient maintenant à le rendre plus chaud, et au milieu,
 dessus, d'un nouveau bois, d'une nouvelle flamme et plus
 haute de beaucoup que toutes celles qui lavaient jadis
-animé, s'élançait son amour pour la fille de Naxos. ;
+animé, s'élançait son amour pour la fille de Naxos.;
 
 Akrivie, par sa seule beauté, avait-elle pris sur
-lui cet empire ? — M. de Gobineau va nous répondre:
+lui cet empire? — M. de Gobineau nous répondre:
 
 On n'aime plus aujourd'hui une femme uniquement parce
 qu'elle est belle; cela arrivait autrefois, dans les temps
 antiques, dans les temps barbares, mais ne saurait se produire chez des esprits aussi raffinés que ceux de l'époque
 
 En ce cas, pourquoi Henry Norton était-il devenu
-si vite et si éperdûment amoureux d''Akrivie Phrangopoulo ?
+si vite et si éperdûment amoureux d''Akrivie Phrangopoulo?
 
-Il mit du temps à découvrir le secret ; à la fin il y réussit,
+Il mit du temps à découvrir le secret; à la fin il y réussit,
 et cela luï faisait honneur.
 
 Les conditions d'existence réunies autour d'Akrivie étaient
 exactement celles où se trouvaient les femmes d'il y à trois
 du monde extérieur, le résultat produit avait été pareil sur
-la fille de Naxos à ce qu'on avait pu le voir sur les tempé-
+la fille de Naxos à ce qu'on avait le voir sur les tempé-
 raments d'élite de ces temps reculés. Les qualités natives de
 la jeune fille n'avaient pas été supprimées mais concentrées.. elles avaient poussé droit en branches fortes, sans
 nœuds, montant vers le ciel, ayant du charme, mais encore
@@ -6810,7 +6777,7 @@ plus de majesté, de la séduction, mais plus encore de grandeur.. Akrivie étai
 vivant, n'existant, n'ayant de raison d'être que par le milieu
 où elle se mouvait, fille, sœur exclusivement, en attendant
 qu'elle devint, d'une manière non moins absolue, épouse et
-mère. L'être indépendant se retrouve peu dans de telles natures ; ce sont des reflets. (x) Quoi qu'il en soit, voilà ce qu'é-
+mère. L'être indépendant se retrouve peu dans de telles natures; ce sont des reflets. (x) Quoi qu'il en soit, voilà ce qu'é-
 tait Akrivie, et Norton le voyait. Elle lui rappelait avec
 raison une de ces belles filles peintes sur les vases athé-
 niens, puisant l'eau dans leur amphore à la fontaine de la
@@ -6820,16 +6787,16 @@ de la lutte ne les a pas consacrées au vainqueur.
 
 : Et Henry Norton s'était pris à aimer cette
 « grande enfant, étrangère à ses habitudes, à ses
-admirations, à ses mœurs, à ses idées », justement
+admirations, à ses mœurs, à ses idées justement
 pour son contraste avec l'Anglais cultivé, sociable
-et actif, qu'il était lui-même :
+et actif, qu'il était lui-même:
 
 C'est en tant qu'Anglais, et Anglais jusqu'au bout des
 ongles, Anglais d'imagination comme de sang, que l'événement avait lieu. Cette race normande, la plus agissante, la
 plus ambitieuse, la plus turbulente, la plus intéressée de
 toutes les races du globe, est en même temps la plus portée
 à reconnaître et à pratiquer le renoncement aux choses.
-Norton... avait navigué, travaillé sans relàche, lu énormé-
+Norton... avait navigué, travaillé sans relàche, énormé-
 ment, beaucoup pensé, et chaque fois qu'une occasion
 d'agir s'était présentée, il ne l'avait jamais laissée échapper.
 En aucun cas il n'avait permis à la rêverie d'intervenir
@@ -6850,10 +6817,10 @@ fortune l'amenait à Naxos, où rien de ce qu'il avast contemplé jusqu'alors n'
 
 Fort incertain malgré tout, hésitant encore si
 cette belle fille n'est qu'une magnifique créature
-« sans chaleur », ou, au contraire, une « € grande
+« sans chaleur ou, au contraire, une « grande
 âme, bien digne d'être son initiatrice à une vie
-meilleure et plus libre », — Norton décide de la soumettre et de se soumettre lui-même à l'épreuve
-d'une partie en mer : il propose à ses hôtes d'aller
+meilleure et plus libre — Norton décide de la soumettre et de se soumettre lui-même à l'épreuve
+d'une partie en mer: il propose à ses hôtes d'aller
 voir sur sa corvette le volcan nouvellement apparu
 
 Cette épreuve, comme vous allez voir, tourne
@@ -6870,7 +6837,7 @@ se promener avec elle sur la terre ferme. L'air de la mer, la
 vivacité inusitée des conversations, l'aspect de tant de
 choses inconnues, avaient rehaussé les couleurs du teint
 d'Akrivie, et ce fut en riant du meilleur cœur qu'elle accepta
-lempressement jo yeux des officiers à la conduire dans l'embarcation.….
+lempressement yeux des officiers à la conduire dans l'embarcation.….
 
 Après la visite de l'île, on repart, et, en route, la
 nuit venue, on voit poindre à l'horizon une clarté
@@ -6878,7 +6845,7 @@ nuit venue, on voit poindre à l'horizon une clarté
 — Voilà le volcan de Santorin! dit Norton en étendant le
 bras, et il regarda la jeune fille, curieux de voir la sensation qui allait se peindre sur ce charmant visage.
 
-Son .espérance ne fut pas trompée. L'effet produit fut
+Son.espérance ne fut pas trompée. L'effet produit fut
 instantané et sublime. Une admiration profonde se marqua
 dans les beaux traits qu'il examinait avec passion. Akrivie
 parut grandir devant la merveille offerte à sa vue. Rien de
@@ -6890,11 +6857,9 @@ pouvant se détacher des émotions qui la saisissaient puissamment.
 Elle ne tarissait pas de questions sur les causes
 du phénomène. Norton lui répondait de son mieux.
 Mais des raisonnements scientifiques pouvaient-ils
-la satisfaire ?
+la satisfaire?
 
 Il démêla sans peine qu'elle aurait cru beaucoup plus volontiers à ses discours s'il lui avait parlé de géants coupables ensevelis sous les eaux afin d'expier leurs crimes, et
-
-277
 
 la vie et les prophéties du comte de Gobineau
 soufflant leur désespoir, ou de dieux en travail pour étonner l'univers. Probablement, comme bonne chrétienne, elle
@@ -6904,13 +6869,13 @@ puissance de saint Georges ou de celle de saint Dimitri...
 Au retour, le jeune Anglais sent soudain que, de
 cette promenade en mer, — divine, mais si courte,
 
--_ — il emportera un souvenir qui lui rendra « tout
-pénible », — lui faisant à jamais éprouver tout le fastidieux et le vide de son existence, — s'il n'épouse pas
+— il emportera un souvenir qui lui rendra « tout
+pénible — lui faisant à jamais éprouver tout le fastidieux et le vide de son existence, — s'il n'épouse pas
 Akrivie. Et sur le bateau, il tente brusquement
 d'obtenir d'elle son consentement à devenir sa
 femme... Mais il l'effraie, elle se refuse.
 
-Norton fait alors cette réflexion grave :
+Norton fait alors cette réflexion grave:
 
 — Si elle m'aimait, se dit-il, elle ne serait pas ce que j'aime
 en elle, la fille de l'antiquité et de la vie simple, étrangère
@@ -6918,7 +6883,7 @@ aux orages du sentiment. Akrivie ne doit aimer que ses
 parents, son mari et ses enfants; hors de là, le monde
 n'existe pas pour elle. Je me suis laissé égarer dans les maudites routes de mon éducation moderne. Revenons au vrai.
 
-I1 la demanda à ses parents.
+la demanda à ses parents.
 
 Or, même aux Cyclades, pour épouser, il importe
 de justifier d'un rang décent dans la société et d'une
@@ -6926,16 +6891,16 @@ fortune suflisante. Henry Norton put éclairer ces
 points, et fut agréé cérémonieusement.
 
 En retrouvant Akrivie, il vit des larmes sur ses joues, il
-lui serra la main : ‘
+lui serra la main:
 
-— Vous ne m'aimez pas ?
+— Vous ne m'aimez pas?
 
-A — Ce n'est pas cela, lui dit-elle en secouant la tête : j'aurais mieux aimé que vous fussiez Hellène.
+A — Ce n'est pas cela, lui dit-elle en secouant la tête: j'aurais mieux aimé que vous fussiez Hellène.
 
 Le mariage fut fixé à quelques mois de là. Norton
 donna sa démission et vint s'établir à Naxos. Huit
 jours après son mariage, Akrivie disait fièrement
-aux siens : « Je suis Anglaise! »
+aux siens: « Je suis Anglaise! »
 
 — Chère fille de Priam, songeait Norton, elle
 commence à comprendre qu'elle a un mari.
@@ -6944,7 +6909,7 @@ Si j'ai insisté sur cette nouvelle, c'est que je tenais
 à vous montrer la manière de M. de Gobineau conteur. Et il m'a semblé qu'une lecture vous procurerait une impression plus vraie de son talent que
 tous les commentaires du monde.
 
-C'est pourquoi je me dispense aussi de faire ressortir tant de traits que vous aurez relevés au passage : les uns font pressentir déjà l'auteur des
+C'est pourquoi je me dispense aussi de faire ressortir tant de traits que vous aurez relevés au passage: les uns font pressentir déjà l'auteur des
 Pléiades, dans ce petit récit romanesque. Les autres
 permettent d'y retrouver l'auteur de l'Essai sur
 l'inégalité, — son goût pour l'étude des métissages.
@@ -6953,7 +6918,7 @@ Différencier des typeÿ humains, puis les comparer, les rapprocher et les combi
 ce qui attire Gobineau littérateur, après Gobinéau
 
 Au nombre des non-valeurs que l'on doit aux moralistes,
-il n'en est pas de plus complète que cet axiome : « L'homme
+il n'en est pas de plus complète que cet axiome: « L'homme
 
 la vie et les prophéties du comte de Gobineau
 est partout le même... » C'est parce que les hommes sont
@@ -6964,7 +6929,7 @@ pour cela que leur étude présente un intérêt si varié et si
 vif, et qu'il est si important de se livrer à cette étude, pour
 peu que l'on tienne à se rendre compte du rôle que les
 hommes, et non pas l'homme, remplissent au milieu de la
-création. C'est là ce qui donne à l'histoire sa valeur, à la
+création. C'est ce qui donne à l'histoire sa valeur, à la
 poésie une partie de son mérite, au roman toute sa raison
 
 A cet égard, les Nouvelles asiatiques, — second
@@ -6976,17 +6941,17 @@ vivre ce monde asiatique, à son gré si différent de
 notre monde européen.
 
 Ces nouvelles, M. de Gobineau a soin de les situer
-dans des paysages très variés, € tantôt dans les
+dans des paysages très variés, tantôt dans les
 aouls des Tjerkesses, tantôt dans les villes turques
 ou persanes ou afghanes, tantôt au sein des vallées
 fertiles, souvent au milieu des plaines arides et
-poussiéreuses »; mais en se préoccupant toujours de
-peindre, chez ses personnages asiatiques, € un
+poussiéreuses mais en se préoccupant toujours de
+peindre, chez ses personnages asiatiques, un
 
 laisser-aller incomparable et la tyrannie absolue du
 premier mouvement, soit qu'il soit bon, soit aussi
 qu'il soit des pires ». (1) — Les Asiatiques de M. de
-Gobineau, (j'ai déjà eu à vous le dire), rappellent
+Gobineau, (j'ai déjà à vous le dire), rappellent
 d'assez près les Italiens selon Stendhal. Comparés
 à nous, ils sont étrangement spontanés, naïfs, imprudents.
 
@@ -7000,18 +6965,16 @@ rien que nous n'ayons approché déjà.
 Et je m'éloigne à regret de ces nouvelles si pittoresques, contraint comme je suis de me souvenir que;
 j'ai promis de vous montrer, non tous les aspects de
 l'œuvre si riche de M. de Gobineau, mais l'enchaï-
-nement de ses idées et le sens de sa morale. :
+nement de ses idées et le sens de sa morale.:
 
 Toutefois, il en est une sur laquelle je veux un
 instant vous retenir, car, loin de nous distraire, elle
-
-281
 
 la pie et les prophéties du comte de Gobineau
 nous ramènera justement au centre de notre
 
 Cette nouvelle est la dernière du livre. Elle le
-couronne. Intitulée la Vie de voyage, elle mérite |
+couronne. Intitulée la Vie de voyage, elle mérite
 son titre, car elle synthétise les puissances de
 charme riant, puis d'âcreté, que recèle cet exil volontaire et momentané qu'est le voyage.
 
@@ -7021,7 +6984,7 @@ lors de leur séjour en Perse), — voyage en Orient,
 associé à une caravane, entre Erzeroum et Tebriz. La
 jeune femme est d'abord entrée dans cette vienomade
 avec une curiosité extrême, se laissant tout entière
-saisir à la séduction de l'inconnu et de l'aventure :
+saisir à la séduction de l'inconnu et de l'aventure:
 
 Elle s'était enivrée du parfum de tant de révélations singulières, et les êtres humains si différents d'elle-même, qui
 s'agitaient chaque jour sous ses yeux, faisaient naître à la
@@ -7030,8 +6993,8 @@ elle n'était dépouillé d'intérêt.
 
 Mais une nuit, — sans que d'abord il lui soit facile
 de définir au juste pourquoi, — une angoisse l'étreint,
-une panique la domine. Elle s'en va trouver son
-mari, et lui dit :
+une panique la domine. Elle s'en trouver son
+mari, et lui dit:
 
 Il me semble que je suis dans une prison... Je me sens
 prise. Valerio, il faut que je m'en aille d'ici! j'ai tout
@@ -7050,7 +7013,7 @@ les natures que nous avons reçues du ciel! Je voudrais voir
 les gens que nous pouvons reconnaître, sur le visage desquels nous sommes accoutumés à lire, et qui comprennent
 le bien et le mal de la même façon que nous! Enfin,
 Valerio, oui, c'est vrai, je me sens perdue ici; nous sommes
-tout seuls, et, j'en conviens, j'ai peur ! j'ai peur! j'ai peur! Je
+tout seuls, et, j'en conviens, j'ai peur! j'ai peur! j'ai peur! Je
 ne veux pas rester ici! Allons-nous-en!
 
 La nostalgie de cette jeune femme, peut-être sentez-vous comme moi la nécessité de l'élargir et de
@@ -7058,50 +7021,50 @@ l'attribuer, non plus à elle seule, mais à son époux.
 
 Dans notre dernière réunion et aujourd'hui
 même, je vous ai montré un Gobineau « avide
-d'émotions », « amant de l'imprévu », « passionné ;
-pour la sensation présente »; (1) enclin à s'abandonner à l'attrait du monde extérieur, et tenté d'absorber en lui une infinité d'idées et d'images étrangères; moins soucieux de juger que de sentir et de
+d'émotions « amant de l'imprévu « passionné;
+pour la sensation présente (1) enclin à s'abandonner à l'attrait du monde extérieur, et tenté d'absorber en lui une infinité d'idées et d'images étrangères; moins soucieux de juger que de sentir et de
 comprendre, — un Gobineau disposé à la passivité,
 à la contemplation, au rêve. C'est Gobineau en Asie,
 c'est Gobineau en voyage. Mais le moment vient où
 
-( ») Expressions empruntées à la Vie de voyage.
+( Expressions empruntées à la Vie de voyage.
 
-ia pie et les prophéties du comte de Gobineau
+pie et les prophéties du comte de Gobineau
 ilse reprend, — où reparaît en lui le besoin de préférer
 et de choisir; d'ordonner ses notations sur l'homme
-et sur la nature ; d'écarter ce qui est trop différent
-de lui et de s'approprier ce qui lui est pareil : d'imposer au monde moral son empreinte après avoir
+et sur la nature; d'écarter ce qui est trop différent
+de lui et de s'approprier ce qui lui est pareil: d'imposer au monde moral son empreinte après avoir
 reçu la sienne.
-Ce n'est plus là le Gobineau des Vouvelles
+Ce n'est plus le Gobineau des Vouvelles
 asiatiques, de Trois ans en Asie, ni des Souvenirs
-de voyage : c'est le Gobineau des Pléiades, — de la
+de voyage: c'est le Gobineau des Pléiades, — de la
 Lisons les Pléiades. (x)
 Trois voyageurs, ne se connaissant guère, se sont
 réunis pour diner à l'auberge de l'Isola Bella, sur le
 lac Majeur. Le premier, Français, se nomme Louis
-de Laudon ; le second, Allemand, Conrad Lanze; le
-troisième, Anglais, Wilfrid Nore. Après diner, « la ;
+de Laudon; le second, Allemand, Conrad Lanze; le
+troisième, Anglais, Wilfrid Nore. Après diner, « la;
 nature où ils sont transportés, leur rencontre fortuite, la liberté et l'insouciance temporaires de la
-vie de voyage, un goût mutuel », les disposent aux ;
-L'Anglais entame le premier le récit de ses aven- |
-tures, et déclare : : |
-— Nous sommes trois calenders, fils de rois. |
-(1) Paris, chez Plon ; Stockholm, chez Jos. Müller. — 1874.
+vie de voyage, un goût mutuel les disposent aux;
+L'Anglais entame le premier le récit de ses aven-
+tures, et déclare::
+— Nous sommes trois calenders, fils de rois.
+(1) Paris, chez Plon; Stockholm, chez Jos. Müller. — 1874.
 
 Surpris, le Français l'arrête, et lui jure que nul
 sang royal ne coule dans ses veines.
 
-Mais l'Anglais poursuit avec flegme :
+Mais l'Anglais poursuit avec flegme:
 
 — Ceci provient de ce que vous n'examinez la question
 que d'un côté unique, et précisément le plus insignifiant.
 Donnez-vous la peine de descendre au fond des choses,. je
 vous prie. Quand le conteur arabe, prêtant la parole à son
 héros, débute dans ses récits par lui faire prononcer ces
-mots sacramentels : « Je suis fils de roi », il ne se trouve
+mots sacramentels: « Je suis fils de roi il ne se trouve
 pas une seule fois sur plus de cent où le personnage ainsi
 présenté soit autre chose, quant à son extérieur, qu'un
-pauvre diable fort maltraité de la fortune : ou bien c'est un
+pauvre diable fort maltraité de la fortune: ou bien c'est un
 derviche, ou bien un naufragé mourant de faim. et jamais
 surtout, jamais, dis-je, au grand jamais, soit que l'affaire
 tourne bien, soit qu'elle se termine au plus mal, il n'est
@@ -7114,26 +7077,26 @@ de platanes, ni tapis du Khorassan, ni vases craquelés de la
 Chine, ni chevaux harnachés d'or et de turquoises, ni
 harem peuplé de Mingréliennes, ni rien enfin de ce qui
 consacre et, aux yeux de la foule, rend surtout désirable
-le fait d'être issu directement d'un souverain régnant ?
+le fait d'être issu directement d'un souverain régnant?
 
-C'est parce que, en prononçant cette parole magique : « Je
-suis fils de roi », le narrateur établit du premier mot, et sans
+C'est parce que, en prononçant cette parole magique: « Je
+suis fils de roi le narrateur établit du premier mot, et sans
 avoir besoin de détailler sa pensée, qu'il est doué de qualités particulières, précieuses, en vertu desquelles il s'élève
 ‘naturellement au-dessus du vulgaire. « Je suis fils de roi »
-ne veut donc nullement dire : « Mon père n'est pas négociant, militaire, écrivain, artiste, banquier, chaudronnier ou
+ne veut donc nullement dire: « Mon père n'est pas négociant, militaire, écrivain, artiste, banquier, chaudronnier ou
 chef de gare. » Qui est-ce qui lui demande des nouvelles
 
 la pie et les prophéties du comte de Gobineau
 de son père, dont personne ne se soucie dans l'auditoire,
-intéressé uniquement par ce qu'il est lui-même ? Cela signifie:
+intéressé uniquement par ce qu'il est lui-même? Cela signifie:
 « Je suis d'un tempérament hardi et généreux, étranger aux
-suggestions ordinaires des naturels communs. Mes goûts |
+suggestions ordinaires des naturels communs. Mes goûts
 
 ne sont pas ceux de la mode; je sens par moi-même et
-n'aime ni ne hais d'après les indications de mon journal. |
+n'aime ni ne hais d'après les indications de mon journal.
 L'indépendance de mon esprit, la liberté la plus absolue
 dans mes opinions, sont des privilèges inébranlables de ma
-noble origine ; le Ciel me les a conférés dans mon berceau,
+noble origine; le Ciel me les a conférés dans mon berceau,
 à la façon dont les fils de France recevaient le cordon bleu
 du Saint-Esprit, et tant que je vivrai, je les garderai. Enfin,
 par une conséquence très logiquement issue de ces pré-
@@ -7150,7 +7113,7 @@ et au-dessus du gros des subordonnés, des sujets et des
 Ici, l'Allemand intervient. Il a compris. Il accepte
 le symbole. Et même, en sa qualité d'Allemand, il
 lui donne un tour scientifique. On reconnaît à son
-discours qu'il doit avoir lu l'Essai sur l'inégalité:
+discours qu'il doit avoir l'Essai sur l'inégalité:
 
 — Vous avez plus raison que vous ne pensez. Être un
 fils de roi, c'est tout autre chose que d'être un roi. Un roi!
@@ -7169,9 +7132,9 @@ lui a pas communiqués. Où ce monde les eût-il pris quand il
 ne les a pas? Où le nourrisson les eût-il saisis, puisque nulle
 part il ne les avait sous la main? Quel lait de nourrice les lui
 eût donnés? Existe-t-il des nourrices si sublimes? Non! Ce
-qu'il est sort d'une combinaison mystérieuse et native ; c'est
+qu'il est sort d'une combinaison mystérieuse et native; c'est
 une réunion complète en sa personne des éléments nobles,
-divins, si vous voulez, que des aïeux anciens possédaient en \
+divins, si vous voulez, que des aïeux anciens possédaient en
 toute plénitude, et que les mélanges des générations suivantes avec d''indignes alliances avaient, pour un temps,
 déguisés, voilés, affaiblis, atténués, dissimulés, fait disparaîlre, mais qui, jamais morts, reparaissent soudain dans
 le fils de roi dont nous parlons.
@@ -7185,43 +7148,43 @@ se réunir, en expulsant ce que des intrusions fâcheuses y
 auraient apporté de mélanges slupéfiants ou énervants
 pendant des séries plus ou moins longues de générations
 
-| précédentes, et il en résulterait qu'en fait, ces gens-là, dans
+précédentes, et il en résulterait qu'en fait, ces gens-là, dans
 quelque situation sociale que le Ciel les ait fait naître,
 
 seraient les vrais fils survivants des hommes de Rollon et
 
-| voire des Amâles et des Mérowings ?
+voire des Amâles et des Mérowings?
 
 la vie et les prophéties du comte de Gobineau
 
 — Vous m'ouvrez un horizon qui me frappe et m'arrête,
 dit Laudon, et pour me servir du mot qui vous plait, à quel
 nombre supposez-vous que puisse s'élever aujourd'hui dans
-le monde le nombre des fils de rois ?
+le monde le nombre des fils de rois?
 
-— Peuh! repartit Nore, que sais-je? Vous me proposez là
+— Peuh! repartit Nore, que sais-je? Vous me proposez
 une question de statistique dont les moyens de solution
 sont assez maigres. Mais consultez un peu, dans votre
 mémoire, la liste des gens que vous connaissez de/près ou
 de loin. Verriez-vous de la difficulté à admettre qu'en Europe,
 seulement, il peut se trouver trois mille à trois mille cinq
-cents cerveaux bien faits et cœurs bien battants ?
+cents cerveaux bien faits et cœurs bien battants?
 
 — Votre calcul me paraît fortement exagéré, objecta
 
 — Peste! s'écria Laudon, et tous les millions qui restent,
-qu'en faites-vous ?
+qu'en faites-vous?
 
 — Ce que j'en fais? répliqua Wilfrid, et sa voix prit le
 mordant de l'invective; ce que j'en fais? Mais regardez
-plutôt ce qu'ils font d'eux-mêmes ! Tenez, allons à la fenêtre:
+plutôt ce qu'ils font d'eux-mêmes! Tenez, allons à la fenêtre:
 je vais vous les montrer.
 
 Il avait la tête montée; il ouvrit la croisée toute grande et
 s'avança sur le balcon où ses deux amis le suivirent. Tous
 trois s'accoudèrent, les bras croisés, sur la balustrade de
 fer. Leur dîner, leurs entretiens, leurs discussions avaient
-duré longtemps ; il était près de minuit. Tout était calme; la
+duré longtemps; il était près de minuit. Tout était calme; la
 terre dormait. Les eaux du lac, striées de bandes lumineuses, ondoyaient sous la lumière nocturne.
 
 — Je voudrais, dit Wilfrid en serrant les dents et parlant
@@ -7234,7 +7197,7 @@ guenilles. N'excluons personne. Reconnaissez-vous la barbarie toute pleine, non 
 hardie, pittoresque, heureuse, mais une sauvagerie touche,
 maussade, hargneuse, laide et qui tuera tout et ne créera
 rien? Admirez, du moins, sa masse! Sa masse, en effet, est
-énorme ; admirez la belle ordonnance de sa division en trois
+énorme; admirez la belle ordonnance de sa division en trois
 parties; en tête, La tribu bariolée des imbéciles! Ils mènent
 tout, portent les clés, ouvrent les portes, inventent les
 phrases, pleurent de s'être trompés, assurent qu'ils n'auraient jamais cru... Voici maintenant les drôles! Ils sont
@@ -7253,9 +7216,9 @@ et la mort.
 
 — Ceci revient à dire qu'en dehors de ces trois mille ou
 
-| trois mille cinq cents élus, dont le nombre paraît encore
+trois mille cinq cents élus, dont le nombre paraît encore
 trop considérable à Lanze, vous n'apercevez rien qui mérite
-de vivre ?
+de vivre?
 
 — Je ne perçois, en effet, qu'un monde d'insectes de diffé-
 rentes espèces et de tailles diverses, armés de scies, de
@@ -7267,8 +7230,7 @@ bœuf saignant et le vin bleu. Voudriez-vous épargner cette
 tourbe, si vous teniez entre les mains un moyen sûr de la
 détruire? C'est votre affaire! En ce qui me concerne, prêtez-
 
-| : moi un instant les foudres de Jupiter; je n'anéantirai que
-|
+: moi un instant les foudres de Jupiter; je n'anéantirai que
 
 la vie et les prophéties du comte de Gobineau
 ce qu'il faudra de la masse irresponsable des brutes. Elle
@@ -7285,14 +7247,14 @@ ordonné à côté d'elle. Les époques grandioses et florissantes
 Jurent celles où de pareils reptiles ne rampaient pas sur les
 marches du pouvoir.
 
-Un silence prolongé suivit cette déclaration. (1) :
+Un silence prolongé suivit cette déclaration. (1):
 
 Profitons de ce silence pour reprendre entre nous
 la conversation.
 
 Ce besoin de sérier, de cataloguer les valeurs
 humaines, n'a rien, en soi, qui puisse nous paraître
-imprévu chez un Gobineau : c'est le fond de sa nature.
+imprévu chez un Gobineau: c'est le fond de sa nature.
 Découvrir et caractériser l'élite, — je vous le disais au
 premier jour, — voilà la clef de toutes ses investigations et de tous ses travaux. Mais la nouveauté
 que je tiens pour incontestable, c'est que l'auteur
@@ -7320,7 +7282,7 @@ C'est un homme libre. En lui, nulle bassesse. Il est
 raffiné d'esprit, véridique de cœur, étranger aux ambitions plates et aux intérêts mesquins qui décident
 les âmes vulgaires. Il à traversé de grands rêves,
 une vie passionnée, des souffrances extrêmes.
-Presque toujours, il a dû s'avouer vaincu et déçu
+Presque toujours, il a s'avouer vaincu et déçu
 dans ses entreprises. Les dons grossiers lui font
 
 la vie et les prophéties du comte de Gobineau
@@ -7328,14 +7290,14 @@ défaut, qui permettent de subjuguer l'humanité contemporaine. Ces dons lui fus
 « drôle ». Sa défaite n'est pas sans faire naître en lui
 de la tristesse. Maïs nulle amertume, nulle jalousie,
 nulle colère. Son sort lui plaît. Comment serait-il
-envieux de ce qui « suffit à la plèbe »? C'est un déli-
+envieux de ce qui « suffit à la plèbe C'est un déli-
 
 cat. C'est un stoïcien. C'est un noble.
 
 Comme tel, il vit retiré, ne recherchant que ses
 pareils, — et confesse volontiers avec Conrad
 
-\ Je ne saurais m'intéresser à la masse de ce qui s'appelle
+Je ne saurais m'intéresser à la masse de ce qui s'appelle
 hommes. Le monde moral est en tout point semblable à
 ce ciel étoilé dont s'arrondissent en ce moment les magnifiques profondeurs. Mon regard n'y découvre, n'y cherche,
 n'y veut voir que les êtres étincelants qui, le front couronné
@@ -7348,29 +7310,29 @@ je ne tiens nul compte; mon regard, mon affection, mon
 respect, mon attendrissement, ma curiosité ne s'attachent
 qu'à ces êtres lumineux entrecroisant leurs pas dans les
 courbes célestes; je ne m'associe qu'à ces intimités dont je
-les vois si occupés : constellations, réunions, groupes, soit
+les vois si occupés: constellations, réunions, groupes, soit
 fixés, soit errants, cela seul est digne d'admiration et d'amitié, et je trouve bien naturelle et bien juste cette idée pré-
 sente, toujours, dans tous les siècles, sous toutes les formes
 de sociétés, sous toutes les conditions d'existence et avec
 
 toutes les lois religieuses, à la pensée des honnêtes gens, des
 gens de conscience et de puissance, des hommes qui savaient
-penser et exécuter, el qui n'ont jamais manqué, en s'isolant
+penser et exécuter, qui n'ont jamais manqué, en s'isolant
 
 Voilà, — songerez-vous peut-être, — une élite
 bien désenchantée et renonçante, étrangement dédaigneuse et un peu morose. Vous serez moins surpris que les « fils de rois » soient si clairsemés en
 Europe... Ils évoquent pour nous ces brahmanes,
 ces anachorètes des forêts de l'Inde, si chers à
-M. de Gobineau, et qui pensent d'eux-mêmes : (Nous
+M. de Gobineau, et qui pensent d'eux-mêmes: (Nous
 sommes sublimes entre les hommes, et personne icibas ne nous est comparable. Travaillons à devenir
-des dieux ! »
+des dieux! »
 
 A la vérité, dans la vie courante, les « fils de
 rois »'ne se différencient pas si nettement et si noblement du reste des hommes.
 
 Je serais plutôt disposé à croire que tout tempé-
 rament humain participe à l'ordinaire, non pas à
-une seule, mais à plusieurs des catégories gobiniennes : il est si rare qu'aucun de nous soit un pur
+une seule, mais à plusieurs des catégories gobiniennes: il est si rare qu'aucun de nous soit un pur
 imbécile, une pure brute, un pur drôle, un pur
 Jils de roi!
 
@@ -7387,16 +7349,16 @@ si la mixture émbécile-drôle est peut-être la plus
 répandue, la mixture drôle-fils de roi est assuré-
 ment la plus savoureuse, la mieux faite pour constituer le « Grand Homme ». — (Napoléon et Gæœthe
 ne vous apparaissent-ils point comme d'excellents
-exemplaires de ces « drôles » mâtinés de fils de rois ?)
+exemplaires de ces « drôles » mâtinés de fils de rois
 
 Le roman de M. de Gobineau (qui vaudrait à lui
-seul une étude) nous montre des « fils de rois » atti- :
+seul une étude) nous montre des « fils de rois » atti-:
 rés entre eux « par les lois d'une mystérieuse et
 
-irréfragable affinité », et s'associant en pléiade.
+irréfragable affinité et s'associant en pléiade.
 
 Les trois amis du lac Majeur, vous l'avez deviné,
-étaient d'authentiques « fils de rois », au sens gobinien. Des femmes viennent les rejoindre, dont plusieurs les valent. Et les destins de cette « pléiade »
+étaient d'authentiques « fils de rois au sens gobinien. Des femmes viennent les rejoindre, dont plusieurs les valent. Et les destins de cette « pléiade »
 la conduisent à rayonner autour d'une chimérique
 petite principauté allemande, où elle finit par se
 
@@ -7409,19 +7371,19 @@ démodé, un peu Second Empire. Mais la fantaisie
 attendrie et rêveuse en est fine et originale. Nulle
 part, ce n'est un livre médiocre. Moins encore, un
 
-Cette classification des Pléiades, à la bien considérer, n'est pas quadruple : elle est double.
+Cette classification des Pléiades, à la bien considérer, n'est pas quadruple: elle est double.
 
-À quoi revient-elle ?
+À quoi revient-elle?
 
-À répartir l'humanité en deux races contrastantes et irréductibles. « Fils de rois », d'une part.
-Puis, la cohue des « brutes », des « drôles », et
+À répartir l'humanité en deux races contrastantes et irréductibles. « Fils de rois d'une part.
+Puis, la cohue des « brutes des « drôles et
 des « imbéciles ». — Autrement dit, l'aristocratie et
 la plèbe. Les nobles et les non-nobles. L'élite et le
 
-Toute l'opposition nietzschéenne des « deux morales », — morale des Esclaves et morale des
-Maîtres, — est là en germe. Pour la faire surgir, il
+Toute l'opposition nietzschéenne des « deux morales — morale des Esclaves et morale des
+Maîtres, — est en germe. Pour la faire surgir, il
 suflira d'imaginer un retournement d'attitude chez
-les « fils de rois », — une métamorphose dans leur
+les « fils de rois — une métamorphose dans leur
 appréciation de la vie et des choses.
 
 Et rien ne semble si naturel.
@@ -7431,9 +7393,9 @@ rieur, l'être d'élite, le héros parfait, consente à
 se confiner longtemps dans cette sphère de renoncement dédaigneux et inactif où l'exile le Gobineau
 
 la vie et les prophéties du comte de Gobineau
-des Pléiades ? — Bien plutôt, il sera tenté d'aflirmer
+des Pléiades? — Bien plutôt, il sera tenté d'aflirmer
 la valeur de la vie, de la vivre aussi belle et aussi
-forte que possible, de considérer, pour prendre l'expression de Nietzsche, que c'est © lui qui honore les
+forte que possible, de considérer, pour prendre l'expression de Nietzsche, que c'est lui qui honore les
 
 choses et crée la valeur morale ». (1)
 
@@ -7443,7 +7405,7 @@ Tôt ou tard, — chez Gobineau ou chez Nietzsche,
 Et, dans cette Renaissance qui suit les Pléiades
 de Gobineau, nous attendions presque cette page
 dont l'accent nietzschéen a frappé tous ceux qui ont
-su la lire, et qui pourrait être signée par l'auteur
+la lire, et qui pourrait être signée par l'auteur
 d'Au delà du bien et du mal.
 
 Borgia, veuve par le crime de son propre frère, et
@@ -7453,7 +7415,7 @@ Les affaires m'obligent à quitter Rome pour quelque
 temps. Vous y resterez; vous y tiendrez ma place. La conduite du gouvernement sera remise à vos mains; vous seule
 aurez le droit d'ouvrir et de lire les dépêches, de prendre
 les résolutions et de donner les ordres... Vous allez ainsi,
-Lucrèce, diriger mes États, l'Église et le monde. Je vous |
+Lucrèce, diriger mes États, l'Église et le monde. Je vous
 sais digne de comprendre la valeur d'une pareille tàche.
 
 Croyez-moi. Renoncez à des pleurs indignes de vous, par
@@ -7473,7 +7435,7 @@ aérée, plus haute.Ne l'oubliez pas. Marchez droit devant vous.
 Ne faites que ce qui vous plaît, en tant que cela vous sert.
 Abandonnez aux petits esprits, à La plèbe des subordonnés,
 les langueurs et les scrupules. Il n'est qu'une considération
-digne de vous : c'est l'élévation de la maison de Borgia,
+digne de vous: c'est l'élévation de la maison de Borgia,
 c'est votre élévation à vous-même...
 
 Si Frédéric Nietzsche a médité, comme on peut
@@ -7489,16 +7451,16 @@ de M. Camille Doucet, secrétaire perpétuel, sur les concours
 la vie et les prophéties du comte de Gobineau
 en Allemagne pour le chef-d'œuvre de Gobineau.
 Naguère, elle valut à M. de Gobineau l'amitié de
-Richard Wagner. Et M. Schemann me faisait récemment l'honneur de n'écrire : « Nous autres Allemands, nous reconnaissons dans la Renaissance
+Richard Wagner. Et M. Schemann me faisait récemment l'honneur de n'écrire: « Nous autres Allemands, nous reconnaissons dans la Renaissance
 une des créations éternelles du génie humain... » (1)
 
 Chez nous, M. André Hallays, — qui est un homme
-de goût et l'un des premiers Français à avoir lu La
+de goût et l'un des premiers Français à avoir La
 Renaissance, — l'a jugée d'un coloris terne, et voisine de la « composition scolaire ». (2) Pareil est le
-sentiment de M. Ernest Seiïllière : la « fresque » tentée
+sentiment de M. Ernest Seiïllière: la « fresque » tentée
 par Gobineau, il la tient pour une grisaille…. (3) Et
 livre, dit-il, n'est pas un chef-d'œuvre parfait, c'est du
-de l'année 1878 : « Avec des noms et des personnages historiques,
+de l'année 1878: « Avec des noms et des personnages historiques,
 M. de Gobineau a composé une série de tableaux qui ont leur
 mérite, leur grâce et leur charme et dont l'ensemble constitue
 une lecture agréable et intéressante. »
@@ -7516,7 +7478,7 @@ point de vue historique. (Der Tag, 5 mars 1904. — Der Dichter und
 
 (2) Journal des Débats, 6 octobre 1899.
 
-G) Le comte de Gobineau et l'Aryanisme historique, page 354, en
+Le comte de Gobineau et l'Aryanisme historique, page 354, en
 
 moins une mine d'idées ef, à sa manière, une création de génie. » (1)
 
@@ -7544,9 +7506,9 @@ la vie et les prophéties du comte de Gobineau
 nages, — monarques, gens du peuple, prêtres,
 artistes ou capitaines.
 
-Les figures d'artistes sont surtout traitées de main |
-de maître, et par un artiste, qui les aime et qui les |
-comprend. Je vous signalerai notamment une scène |
+Les figures d'artistes sont surtout traitées de main
+de maître, et par un artiste, qui les aime et qui les
+comprend. Je vous signalerai notamment une scène
 entre Titien et l'Arétin, où le Titien est mis à son
 rang exact parmi les peintres, avec une virtuosité, une souplesse, une science de la note équitable
 et vraie, qu'il faudrait souhaiter à tous nos critiques
@@ -7555,7 +7517,7 @@ J'ai aussi isolé pour vous certain dialogue entre
 Raphaël et une dame, dans un jardin, qui me
 paraît incomparable. Mais avant de vous le lire, je
 dois prendre soin de vous avertir que.je me suis
-permis d'y faire çà et là des coupures, de le réduire et
+permis d'y faire et des coupures, de le réduire et
 d'en élaguer tout ce qui m'a paru un peu boursouflé
 ou traînant, afin de vous montrer comme en un raccourci les beautés propres à ce livre:
 
@@ -7565,21 +7527,21 @@ décerner des éloges outrés, qu'il ramène à leur vraie
 Tu te trompes. Je n'ai jamais, par moi seul, reconnu ce
 qu'il fallait trouver. Quelqu'un m'a toujours montré ma
 
-Que voulez-vous dire ?
+Que voulez-vous dire?
 Si je n'étais sorti un jour, pour n'y plus rentrer, de l'atelier du Pérugin, de ma vie je n'aurais compris que ce qu'il
 me montrait. Quand je fus à Florence, la vue du Masaccio
 me révéla ce que je n'aurais jamais deviné sans ce maître;
 ce n'était rien encore... Je ne suis pas sorti de moi-même,
-né de moi-même, et, sans compter les exemples de l'antiquité, bien d'autres ont servi de règle, de guide, de source
+de moi-même, et, sans compter les exemples de l'antiquité, bien d'autres ont servi de règle, de guide, de source
 à ce que tu appelles mon génie.
-Eh bien ! soit! Mais maintenant, tu sais tout... Ce qu'on
-Va remis entre les mains y a fructifié; tu sais plus que le
+Eh bien! soit! Mais maintenant, tu sais tout... Ce qu'on
+remis entre les mains y a fructifié; tu sais plus que le
 Pérugin, plus que le Masaccio, plus que Léonard, plus que
 tous les autres ensemble, et tu commences la vie. L'univers
 apprendra de toi, et tu n'apprendras plus rien de personne.
 Tu te trompes encore. J'apprendrai toujours, et de tout
 le monde. Veux-tu que je teconfesse en quoi je me considère
-peut-être comme plus heureux que mes devanciers ? C'est
+peut-être comme plus heureux que mes devanciers? C'est
 en ceci: chacun d'eux restait enfermé dans un cercle. Il
 connaissait les artistes de sa ville, et n'en fréquentait pas
 d'autres. Il croyait, comme toi, que le talent naturel n'a pas
@@ -7591,20 +7553,20 @@ larbre à fruit que chacun possède, mais je veux l'arbre et
 je veux les fruits, et voilà pourquoi, ma bien-aimée, je suis
 
 la pie et les prophéties du comte de Gobineau
-Non ! je te le répète, je ne suis pas tout. Je suis la raison
+Non! je te le répète, je ne suis pas tout. Je suis la raison
 peut-être, je suis la modération, je suis le bon jugement, je
 suis, si tu veux, la sagesse et le goût éclairé; mais je ne
 suis pas la profondeur, et surtout je ne suis pas le sublime.
-Qui donc est l'un et l'autre ? :
-Michel-Ange ? Cette âme sombre, triste, étroite, obscure,
-tourmentée ?.. Vous n'y pensez pas, Raphaël! Un tel homme
-vous être comparé !.… Quelle fantaisie de modestie vous
-prend à cette heure ?.….
+Qui donc est l'un et l'autre?:
+Michel-Ange? Cette âme sombre, triste, étroite, obscure,
+tourmentée?.. Vous n'y pensez pas, Raphaël! Un tel homme
+vous être comparé!.… Quelle fantaisie de modestie vous
+prend à cette heure?.….
 Si je n'avais copié comme son élève, comme le plus
 attentif et le plus humble des élèves, l'inimitable carton de
-Pise ; si mon oncle Bramante, en me faisant pénétrer secrètement dans la Sixtine, ne m'eüt donné ce bonheur inappré-
+Pise; si mon oncle Bramante, en me faisant pénétrer secrètement dans la Sixtine, ne m'eüt donné ce bonheur inappré-
 ciable de contempler les créations de cet homme tout-puissant, je ne serais pas ce que je suis, je ne pourrais seulement
-rêver ce que je saurai faire. Pourquoi baïsses-tu la tête ?
+rêver ce que je saurai faire. Pourquoi baïsses-tu la tête?
 J'exécuterai de plus grandes, de plus nobles choses que lui,
 bien qu'il soit un plus grand inventeur que moi... Pour moi,
 mon amie, je ne suis peut-être pas autant que lui, le Jéovah
@@ -7617,29 +7579,29 @@ Mais je te montre mon esprit tel que le ciel l'a fait, et non
 tel qu'une affection extrême l'imagine à tort. Je ne m'exalte
 pas, je ne me fais pas plus petit, et j'ai, par-dessus MichelAnge et bien d'autres, une prérogative dont tu ne me parles
 pas et qui vaut mieux, à elle seule, que tout ce qu'ils possèdent.
-Et laquelle, donc, je te prie? Est-elle si apparente ?
+Et laquelle, donc, je te prie? Est-elle si apparente?
 
-Oh ! comme elle l'est ! Comme elle éclate dans tes regards,
+Oh! comme elle l'est! Comme elle éclate dans tes regards,
 comme on la reconnaît dans ta contenance, dans cette grâce
 divine qui mesure ton moindre mouvement! Ta prérogative,
 mon Raphaël, c'est d'être heureux. (1)
 
 Ce qui a surtout manqué peut-être à l'auteur de
-la Renaissance, ce furent les dons de Raphaël : il lui
-a manqué d'être un « ordonnateur » ; il lui a manqué
-aussi d' € être heureux ».
+la Renaissance, ce furent les dons de Raphaël: il lui
+a manqué d'être un « ordonnateur »; il lui a manqué
+aussi être heureux ».
 
 L'Histoire d'Ottar Jarl, pirate norvégien, conqué-
 rant du pays de Bray, en Normandie, et de sa
 descendance, — dont je vais aujourd'hui vous entretenir, — est le dernier livre de M. de Gobineau qui aït
 paru de son vivant. (1) Celivreest, comme vous savez,
-une généalogie sans fissure de ses propres ancêtres :
+une généalogie sans fissure de ses propres ancêtres:
 elle relie, à travers les âges, le pirate odinique à
 Joseph-Arthur, dernier comte de Gobineau. C'est
 proprement la Saga de la famille Gobineau, composée par M. de Gobineau sur le modèle de ces
 vieilles « sagas » scandinaves, où il prétendait
 
-la vie et les prophéties du comte de Gobineau |
+la vie et les prophéties du comte de Gobineau
 trouver les premiers documents certains sur ses
 Dès notre première réunion, je vous ai indiqué
 quelle place il convient d'assigner à cet ouvrage dans
@@ -7647,30 +7609,30 @@ le développement de l'aristocratisme gobinien.
 J'imagine deux méthodes contraires, — mais fort
 légitimes l'une et l'autre, — pour diriger la lecture
 d'un tel livre.
-| On peut le considérer selon les règles éprouvées
+On peut le considérer selon les règles éprouvées
 d'une saine critique historique. Quoi de plus
-naturel? Ne se présente-t-il pas comme la monographie exacte et minutieuse d'une certaine famille ?
+naturel? Ne se présente-t-il pas comme la monographie exacte et minutieuse d'une certaine famille?
 L'auteur entreprend d'établir comme quoi les
 comtes de Gobineau, issus de libres bourgeois de
 Bordeaux, mais se rattachant, dans le passé, à une
 très vieille famille seigneuriale de Normandie et
-d'Angleterre, représentèrent jusqu'à lui la descendance du pirate norvégien Ottar Jarl, lequel fut luimême une émanation d'Odin. Des assertions si positives veulent être accompagnées de preuves. L'au- :
+d'Angleterre, représentèrent jusqu'à lui la descendance du pirate norvégien Ottar Jarl, lequel fut luimême une émanation d'Odin. Des assertions si positives veulent être accompagnées de preuves. L'au-:
 teur les répand. Depuis les antiques « sagas » de Norvège, jusqu'aux archives du département de la
 Gironde, — en passant par le nobiliaire de Guyenne
 et par la Chronique rimée des anciens ducs de Nor308
 
 mandie, — il a fouillé tous les cartons. et puisé à
-toutes les sources : il nous ouvre tout son trésor: il
+toutes les sources: il nous ouvre tout son trésor: il
 accumule les indices et les notes au bas des pages.
 dresse par périodes le tableau des alliances et mésalliances de la famille.
 
 Le lecteur lui remet toute sa confiance. Bientôt pourtant, il la retire. Qu'est-il arrivé? Peu de chose.
 Mais enfin, il a découvert plusieurs citations équivoques, certaines références douteuses, et divers
 escamotages. Ce n'est pas tout. Des « idées » ne
-s'avisent-elles pas de bondir parmi les textes ? Or
+s'avisent-elles pas de bondir parmi les textes?
 les idées sont, — chacun sait cela, — les pires adversaires de la sécurité, en histoire. Mais voici le plus
-grave : ces idées sont neuves. Elles sont hardies, violentes. heurtées, exagérées, tumultueuses, contradictoires. Elles sont cyniques dans leur désordre.
-Et l'auteur a le front d'écrire : « Plus les âmes sont
+grave: ces idées sont neuves. Elles sont hardies, violentes. heurtées, exagérées, tumultueuses, contradictoires. Elles sont cyniques dans leur désordre.
+Et l'auteur a le front d'écrire: « Plus les âmes sont
 meublées de passions vigoureuses, mieux elles se
 passent de logique et savent pousser de front les
 
@@ -7678,20 +7640,20 @@ L'ingénu lecteur, qui s'était confié à une monographie tranquille, sent qu'i
 fâche, comme si on l'avait trompé. Les comtes de
 Gobineau ne descendent point du pirate Ottar Jarl,
 
-(1) Ottar Jarl, I, 8. — (Mathieu de Gournay : suite).
+(1) Ottar Jarl, 8. — (Mathieu de Gournay: suite).
 
 la vie et les prophéties du comte de Gobineau
-il le jure ! Et sur cette belle découverte, il jette le
+il le jure! Et sur cette belle découverte, il jette le
 
 livre de colère...
 
 Reprenons ce livre, qui l'a scandalisé, pour le lire
 à notre manière.
 
-Je voudrais lire Ottar Jarl, comme nous avons lu
+Je voudrais lire Ottar Jarl, comme nous avons
 l'Essai sur l'inégalité des races humaines.
 
-Dans cette œuvre maîtresse du comte de Gobineau, nous avons reconnu | « expression de tous
+Dans cette œuvre maîtresse du comte de Gobineau, nous avons reconnu « expression de tous
 les instincts apportés par lui en naïssant ». (1) Nous
 y avons reconnu aussi certaines théories qui ont fait
 leur chemin dans le monde, et qui nous ont paru
@@ -7705,12 +7667,12 @@ M. de Gobineau fut un grand réaliste.
 J'entends ce mot dans son sens actuel, et aussi
 au sens qu'on lui donnait au moyen-âge. M. de
 
-.  Gobineau fut réaliste, au sens actuel, en ce que,
+. Gobineau fut réaliste, au sens actuel, en ce que,
 semblable toute sa vie au Michel-Ange de La Renaiïssance, il voulut « saisir la nature par toutes ses
 
 (2) Voir Seconde Causerie, page
 
-anfractuosités à la fois », et escalader ses sommets
+anfractuosités à la fois et escalader ses sommets
 en se cramponnant « à ce qu'ils lui présentaient de
 points d'appui ». Et il fut réaliste, au sens scolastique, en ce que, — vaincu comme doit l'être tout
 homme dans cette lutte de l'esprit et de la nature, —
@@ -7724,11 +7686,11 @@ le Langage, (1) — lui parurent autant d'êtres concrets et mouvants. M. de Gob
 définir les relations qui régissent ces êtres et de
 les produire au grand jour.
 
-Là encore, il pouvait dire avec son Michel-Ange :
+encore, il pouvait dire avec son Michel-Ange:
 « Je devinais plus que je n'étais en état de voir, et
 je voyais plus loin que je ne pouvais atteindre. Je
 
-() « Un peuple, pris collectivement, est, dans de nombreuses
+« Un peuple, pris collectivement, est, dans de nombreuses
 fonctions, un être aussi réel que si on le voyait condensé dans un
 seul corps. » (Essai, Conclusion générale). — « Une sociélé enveloppe ses nations comme le ciel enveloppe La terre, et ce ciel, que
 les exhalaisons des marais ou les jets de flammes du volcan matteignent pas, est encore, dans sa sérénité, l'image parfaite des
@@ -7757,7 +7719,7 @@ dans une maison amie, à Stockholm. M. de Gobineau n'était pas loin d'en avoir 
 causer sculpture antique; et M. de Gobineau parla
 sans nulle pédanterie, mais avec fougue, et comme
 un sculpteur. Lorsqu'il fut parti, le jeune homme se
-renseigna : ( Qui est-ce? » — « Cest le comte
+renseigna: ( Qui est-ce? » — « Cest le comte
 Gobineau, ministre de France. » Ce nom ne lui
 apprenait rien. Mais l'homme s'était emparé de lui.
 Sa jeunesse de parole, ses yeux lumineux et bons,
@@ -7765,7 +7727,7 @@ lui semblaient inoubliables. Le prince d'Eulenburg
 revit M. de Gobineau, devint son disciple et son
 
 Sur ces premiers temps de leur intimité, il nous:
-transmet ce souvenir :
+transmet ce souvenir:
 
 Gobineau venait de terminer la Valkyrie, un de ses plus
 beaux bustes. Les regards enflammés de la Valkyrie plon312
@@ -7788,12 +7750,12 @@ les îles rocheuses.
 Je le questionnai du regard.
 
 — Oui, reprit-il avec une conviction absolue et grave,
-c'est d'ici que je sors, — je le sens !(1)
+c'est d'ici que je sors, — je le sens!(1)
 
 Quel était le sens de cette conviction « absolue et
-grave », que sut discerner le prince d'Eulenburg ?
+grave que sut discerner le prince d'Eulenburg?
 
-Rien de plus simple ! direz-vous peut-être, — M. de
+Rien de plus simple! direz-vous peut-être, — M. de
 Gobineau prétendait aflirmer ainsi que, par une
 série de filiations continues le reliant au pirate
 scandinave, il était, dans le sens le plus clair et le
@@ -7802,59 +7764,57 @@ plus direct, le dernier des rejetons d'Ottar. Mais
 Arthur Gobineau, von Philipp von Hertefeld (signature du prince
 d'Eulenburg, qui est prince d'Eulenburg et Hertefeld).
 
-313
-
 la vie et les prophéties du comte de Gobineau
 peut-être aussi me permettrez-vous d'écarter cette
-interprétation trop simple : son moindre défaut, à
+interprétation trop simple: son moindre défaut, à
 mon sens, serait d'impliquer, chez le théoricien des
 « mélanges » de sang, une foi excessive dans la vertu
 de toutes ses grand-mères.
 
 Je préfère ici me souvenir que l'écrivain des
-Pléiades se tenait, de science certaine, pour un :
-« fils de roi », et se classait au premier rang des
+Pléiades se tenait, de science certaine, pour un:
+« fils de roi et se classait au premier rang des
 quelques milliers de personnes « dans l'individualité
 desquelles les atomes les plus précieux de leurs plus
 précieux ancêtres ont réussi à se réunir, en expulsant ce que des intrusions fâcheuses y auraient apporté de mélanges stupéfiants ou énervants pendant
 des séries plus ou moins longues de générations
-précédentes », et qui sont, en conséquence, « dans
+précédentes et qui sont, en conséquence, « dans
 quelque situation sociale que le Ciel les ait fait naitre, les vrais fils survivants des Amäâles et des
 
 D'autre part, nous apprenons qu'à la faveur de
-cette disposition visionnaire où vient de le sai- *
+cette disposition visionnaire où vient de le sai-
 sir le prince d'Eulenburg, il n'hésitait point à
 désigner Ottar Jarl comme « le plus précieux de ses
 précieux ancêtres ». Car, en ce pirate, tel du moins
 qu'il reconstituait sa figure, — il imaginaït découvrir les trois dominantes préférées de sa propre
 
-nature : savoir, l'activité d'esprit, la patience
+nature: savoir, l'activité d'esprit, la patience
 obstinée, et la passion de l'indépendance. (1)
 
 Ainsi, il tenait fortement deux anneaux de la!
 chaîne. Et le bijoutier qu'il était sut forger à sa fantaisie les chaînons intermédiaires.
 
 L'Histoire d'Ottar Jarl n'est point la monographie d'une certaine famille, comme le croit un
-lecteur candide : c'est une histoire de l'Honneur.
+lecteur candide: c'est une histoire de l'Honneur.
 
-Qu'est-ce que l'Honneur ?
+Qu'est-ce que l'Honneur?
 
-Littré répond : c'est « le sentiment qui fait que
+Littré répond: c'est « le sentiment qui fait que
 l'on veut conserver la considération de soi-même et
-des autres ». (2) Et M. Bergson : l'honneur est « une
+des autres ». (2) Et M. Bergson: l'honneur est « une
 obligation envers autrui, qui prend peu à peu
 l'aspect d'une obligation envers soi-même ». (3)
 
 Mieux qu'aucune formule ramassée, cette page
 d'Ottar Jarl nous fait entendre quelle notion M. de
-Gobineau se forme de l'honneur :
+Gobineau se forme de l'honneur:
 
 Le blason, au xrv° siècle, s'éleva dans les imaginations à
-une valeur dont on n'avait jamais eu idée.
+une valeur dont on n'avait jamais idée.
 
 L'écusson d'armes devint pour chaque gentilhomme une
 
-() L, 1. (LX° siècle.) — « Dans la personnalité d'Ottar on relève
+1. (LX° siècle.) — « Dans la personnalité d'Ottar on relève
 facilement trois traits bien prononcés, et il importe de les graver
 ici dès le début, car on les reconnaîtra l'un ou l'autre, sinon tous les
 trois, dans la plupart de ses descendants, etc. »
@@ -7869,14 +7829,14 @@ Ce dieu exigeant était une ligne rouge, noire, blanche ou
 bleue, une merlette, un corbeau, un anneau, n'importe quel
 objet ou dessin géométrique ou figure approximative d'un
 animal, ou d'un volatile, ou d'un instrument quelconque.
-Ce qu'il était en lui-même n'importait pas et n'avait, le plus |
+Ce qu'il était en lui-même n'importait pas et n'avait, le plus
 ordinairement, aucun rapport ni avec le nom, ni avec l'histoire de la famille qui l'avait adopté, quoique plus tard on
-ait imaginé bien des rêveries à cet égard. C'était souvent |
+ait imaginé bien des rêveries à cet égard. C'était souvent
 . une abstraction pure; telle quelle, elle renfermait l'idée de
 l'existence, de l'Aonneur de celui qui l'avait adoptée. Cette
 idole ne demandait pas de prières; elle imposait un genre
-de vie, une ligne de conduite, certaines actions, et elle en ;
-proscrivait telles autres, n'ayant en soi rien de répréhensi- ;
+de vie, une ligne de conduite, certaines actions, et elle en;
+proscrivait telles autres, n'ayant en soi rien de répréhensi-;
 ble, mais qui, à tort ou à raison, étaient jugées indignes.
 La vertu commandée par cette foi singulière n'était pas
 toujours en concordance avec les principes chrétiens. Elle
@@ -7887,21 +7847,21 @@ le respect et la crainte se répandissent autour de lui. {ne
 - lui était pas défendu d'avoir des passions violentes, mais il
 lui était interdit d'en ressentir de basses. On pouvait être, et
 sans reproche, dur à l'occasion, ambitieux comme un
-César, indiscipliné comme un centaure ; si en même temps
+César, indiscipliné comme un centaure; si en même temps
 on se montrait audacieux jusqu'à la folie, fastueux et bien
 disant, l'écusson reluisait comme un soleil.
 C'était, au fond, une doctrine qui se rattachait par des
 déductions inaperçues au paganisme du nord, inspirateur
-de Ragnar Lodbrog et de ses pareïls ; on y sentait Le besoin
+de Ragnar Lodbrog et de ses pareïls; on y sentait Le besoin
 : d'être grand à ses propres yeux et aussi près du divin que
 possible. Les populations gallo-romaines et slaves n'ont
-Jamais su ce que c'était, et ne connurent du blason que les
+Jamais ce que c'était, et ne connurent du blason que les
 
 apparences décoratives, sans en comprendre ce que les races
 nobles imaginèrent seules d'y placer, le signe essentiel de
-leur grande invention : l'Honneur. (1)
+leur grande invention: l'Honneur. (1)
 
-Cette page donne le sens d'Oftar Jarl : lorsqu'on
+Cette page donne le sens d'Oftar Jarl: lorsqu'on
 la possède, toutes les obscurités de ce livre touffu
 s'illuminent. Le regard en domine les masses et les
 
@@ -7909,7 +7869,7 @@ La perpétuité de la notion d'honneur, — dans une
 famille supposée immuable, tandis qu'autour d'elle
 tout change, y compris la notion d'honneur, —
 telle est la trame de cette histoire. A la bien comprendre, elle n'est autre chose qu'une étude sur les
-conflits entre l'honneur vrai et les oblitérations |
+conflits entre l'honneur vrai et les oblitérations
 de l'honneur.
 
 Les huit premières générations de la famille du
@@ -7920,12 +7880,10 @@ Souhaitez-vous connaître l'esprit de la famille? —
 L'Essai sur l'inégalité nous donne, par anticipation,
 le portrait composite de ses chefs originaires.
 
-Relisez le portrait du guerrier aryen :
+Relisez le portrait du guerrier aryen:
 
 La haute idée de sa valeur personnelle, le goût d'isolement
 qui en est la suite, dominent absolument sa pensée et inspirentses institutions. L'esprit d'association nesaurait donc
-
-317
 
 la vie et les prophéties du comte de Gobineau
 lui être familier. Il sait y échapper jusque dans la vie militaire; car chez lui cette organisation n'est que l'effet d'un
@@ -7935,12 +7893,12 @@ ses prérogatives, il n'en fait jamais l'abandon, non pas
 même de la moindre parcelle; et s'il consent à en restreindre, à en suspendre l'usage, c'est qu'il trouve dans cette
 concession temporaire un avantage direct, actuel et bien
 évident. Il a les yeux grands ouverts sur ses intérêts. Enfin,
-perpétuellement préoccupé de sä personnalité et de ce qui
+perpétuellement préoccupé de personnalité et de ce qui
 s'y rapporte d'une façon directe, il n'est pas matériellement
 patriote, et n'éprouve pas la passion du ciel, du sol, du lieu
 où il est né. Il s'attache aux êtres qu'il a toujours connus,
-et le fait avec amour et fidélité ; mais aux choses, point, et
-il change de province et de climat sans difficulté. C'est là
+et le fait avec amour et fidélité; mais aux choses, point, et
+il change de province et de climat sans difficulté. C'est
 une des clefs du caractère chevaleresque au moyen-âge et le
 motif de l'indifférence avec laquelle l'Anglo-Saxon d'Amé-
 rique, tout en aimant son pays, quitte aisément sa contrée
@@ -7954,31 +7912,31 @@ entretiennent avec sa propre personne. » (1)
 
 Bientôt, ces « rapports » vont changer le héros
 aryen en chef féodal. Et M. de Gobineau, — s'identifiant en pensée avec la lignée d'Ottar, — n'hésitera
-pas à nommer, en passant, le roi des Français : « cet
+pas à nommer, en passant, le roi des Français: « cet
 
 (1) Essai, VI, 3. — (Capacité des races germaniques nalives).
 
-(2) Ottar Jarl, I, 6. (XZ siècle) : « Pour ses terres normandes,
+(2) Ottar Jarl, 6. (XZ siècle): « Pour ses terres normandes,
 [Hugues] relevait de l'échiquier de Rouen; pour celles du Beauvoi-
 
 La famille scandinave pousse des branches en
 Normandie et en Angleterre. Mais, en France, les
-progrès de « cet étranger », — je veux dire le roi,
-— ne tardent pas à lui rendre la vie dure. De « feudataires presque indépendants », les petits-fils d'Ottar
-passent à l'état, fort inférieur, de « vassaux riches »:
+progrès de « cet étranger — je veux dire le roi,
+— ne tardent pas à lui rendre la vie dure. De « feudataires presque indépendants les petits-fils d'Ottar
+passent à l'état, fort inférieur, de « vassaux riches
 
 Ce qui chez Ottar n'avait été que l'exercice pur et simple
-du droit, et qui était devenu pour Hugues II non seulement
+du droit, et qui était devenu pour Hugues non seulement
 le droit, mais le devoir d'honneur, ne constituait plus
 chez le dernier maître de Gournay et chez son fils qu'une
 prétention, et la plus malheureuse des prétentions, puisque
 l'un et l'autre se trouvaient hors d'état de la réaliser. Ils
 n'avaient plus des épées scandinaves autour d'eux pour
-soutenir leurs dires; ils n'avaient plus de vaisseauxdragons pour aller remplir leurs coffres sur toutes les plages ;
+soutenir leurs dires; ils n'avaient plus de vaisseauxdragons pour aller remplir leurs coffres sur toutes les plages;
 ils n'avaient plus les gens du Bray pour les aider à dire
 non à leur suzerain, et, tout au contraire, ils se voyaient
 sis, il était l'homme du roi des Français et, à l'occasion, pouvait
-faire appel à l'appui de cet étranger et tenir en échec son autre seigneur.….. » — Ailleurs (1, 9; XZI° siècle) : « [Hugues III de Gournay|
+faire appel à l'appui de cet étranger et tenir en échec son autre seigneur.….. » — Ailleurs (1, 9; XZI° siècle): « [Hugues III de Gournay|
 a vécu comme vivaient dans son siècle les feudataires du nord.
 Comme eux, il a été en lutte avec le duc de Normandie, et aussi
 avec le roi de France. Il a tenu en échec et gêné l'ambition du suzerain, comme l'ont fait ses parents; ainsi qu'eux, il ne s'est montré
@@ -7986,12 +7944,12 @@ ni souple ni maniable. Cet esprit, cette conduite produisaient une
 physionomie qui fut d'abord très admirée, très vantée dans
 les anciennes chansons de geste, parce que celles-là se produisirent
 aux temps de la puissance des vassaux et étaient récitées dans les
-veillées de ces hardis seigneurs. Mais quand les rois furent devenus tout-puissants l'esprit changea ; une nouvelle opinion publique
+veillées de ces hardis seigneurs. Mais quand les rois furent devenus tout-puissants l'esprit changea; une nouvelle opinion publique
 apprécia différemment les faits, et on déclara que la famille de
 Fromons était une famille de traîtres. On lui fit produire les deux
 scélérats, les deux menteurs, les deux assassins, les deux monstres,
-enfin les deux traîtres par excellence : Pinabel et Ganelon. Mais
-les vrais traîtres ce furent les rois ; üls restèrent les plus forts et
+enfin les deux traîtres par excellence: Pinabel et Ganelon. Mais
+les vrais traîtres ce furent les rois; üls restèrent les plus forts et
 jetèrent leur vice sur La tombe des vaincus. »
 
 la vie et les prophéties du comte de Gobineau
@@ -8000,10 +7958,10 @@ faim dans un exil sans gloire. Ils étaient donc absolument
 soumis à l'action d'un milieu qui leur imposait l'obéissance.
 
 Était-elle changée, la famille tombée dans une telle sujé-
-lion? En aucune sorte ; pas la moindre différence n'était
+lion? En aucune sorte; pas la moindre différence n'était
 survenue entre Ottar et l'essentiel du tempérament de ses
-descendants ; mais tout avait changé au dehors et ce
-qu'Ottar faisait avec ses facultés natives, ses fils ne pouvaient plus y songer. ls étaient contraints de trouver de
+descendants; mais tout avait changé au dehors et ce
+qu'Ottar faisait avec ses facultés natives, ses fils ne pouvaient plus y songer. étaient contraints de trouver de
 nouveaux emplois, et c'est ainsi que Gournay et sa lignée
 Jurent des légistes, sans avoir, pour en arriver là, beaucoup
 varié du tempérament original. Pourtant il avait varié
@@ -8034,14 +7992,14 @@ des mélanges trop variés, onse trouve au seuil d'une situation qui ne permet p
 rien de durable, de solide, de sérieux s'établisse dans un
 pays voué tantôt au despotisme, tantôt à l'anarchie. (1)
 
-Ainsi donc, | « anarchie française » ne date point
+Ainsi donc, « anarchie française » ne date point
 de ces dernières années, comme on se plaît à nous
-le dire, ni même de l'an 1789, comme les plus audacieux de nos « néo-monarchistes », — tels que
+le dire, ni même de l'an 1789, comme les plus audacieux de nos « néo-monarchistes — tels que
 M. Paul Bourget, — sont trop timides d'y consentir.
-Elle remonte, en réalité, au crépuscule du quinzième siècle. En voici les preuves :
+Elle remonte, en réalité, au crépuscule du quinzième siècle. En voici les preuves:
 
 Si l'on considère seulement l'ensemble de l'aspect social,
-x° siècle, au xr°, au xn°, au xur° siècle, une noblesse, une
+siècle, au xr°, au xn°, au xur° siècle, une noblesse, une
 bourgeoisie et le peuple; mais combien la valeur de la plupart des familles, dans la noblesse, dans la bourgeoisie,
 est autre! Et, conséquence nécessaire, combien les rapports
 réciproques sont nouveaux et l'esprit de chacune des classes
@@ -8049,13 +8007,13 @@ réciproques sont nouveaux et l'esprit de chacune des classes
 Les armées composées de mercenaires ne se complétaient
 plus féodalement parmi les possesseurs de la terre et leurs
 
-(1) Ottar Jarl, I, 3. — (Ottar Jarl et les siens. — Suite des considérations précédentes). !
+(1) Ottar Jarl, 3. — (Ottar Jarl et les siens. — Suite des considérations précédentes).!
 
 la vie et les prophéties du comte de Gobineau
 tenanciers: c'étaient des aventuriers sortis de la plus basse
 origine qui, dans bien des cas, portant des éperons d'or,
 sintitulant chevaliers et prenant d'assaut ou par surprise
-les châteaux, les manoirs grands et petits, sy installaient,
+les châteaux, les manoirs grands et petits, installaient,
 quelquefois y restaient, le plus souvent en trafiquaient et
 vendaient leur conquête au plus fort enchérisseur...
 
@@ -8069,7 +8027,7 @@ dans les actes, mais quant à l'extraction, elle pouvait parfaitement être sort
 en soit, cette noblesse nouvelle ainsi installée ne possédait
 rien du génie propre aux anciennes familles d'origine germanique. Celles-ci s'étaient montrées fort agricoles, amies
 du sol, pures de mœurs. Ce qui en resta demeura tel et a
-transmis jusqu'à ce jour ses qualités aux familles qui ont pu
+transmis jusqu'à ce jour ses qualités aux familles qui ont
 s'imprégner du même sang. Mais les autres, en grand
 nombre, manifestèrent des dispositions toutes différentes, et
 peu connues jusqu'alors. Fort braves comme leurs devanciers, remarquablement vaniteux, ce que n'étaient point
@@ -8085,20 +8043,20 @@ tout à fait inconnue jusqu'alors. Cette noblesse ainsi faite
 
 plaisait plus aux rois et à leurs conseillers que l'ancienne,
 et à juste titre. Sa vraie patrie, c'était la cour, c'était le
-camp, c'était là où l'on s'amusait. Elle était très propre à
+camp, c'était où l'on s'amusait. Elle était très propre à
 servir l'ambition des conquérants, car avec des phrases et
 du brillant on pouvait la mener partout, licence impossible
 à prendre avec l'ancienne, très obstinée à ne servir que ses
 quarante jours par an, et à passer sa vie au milieu de son
 monde, à moins qu'elle ne courûüt l'univers pour son propre
 compte. En réalité, la France avait gagné ce qui devait la
-rendre peu à peu la terreur et l'ennui des nations*voisines :
+rendre peu à peu la terreur et l'ennui des nations*voisines:
 ce tempérament remuant et batailleur, insolent et pourfendeur, goguenard et prétentieux de ses armées futures, et elle
 avait perdu ce qui lui aurait amené, affermi, conservé la
 liberté politique, tout aussi bien qu'à l'Angleterre.
 
 Et l'ancien gentilhomme dépossédé, déraciné, s'en alla,
-continuant sa famille où il put et comme il put. Ve tenant
+continuant sa famille où il put et comme il put. tenant
 plus la tête de la société civile, il subit les oscillations que
 d'autres donnaient à celle-ci, comme le passager embarqué
 sur un navire est obligé d'accepter les conséquences des
@@ -8110,14 +8068,14 @@ opportunité de les faire valoir (x).
 
 Mon ami Daniel Halévy, — pour railler la manie
 qu'il m'attribue de découvrir en tout lieu des inspirations gobiniennes, — m'écrivait froidement l'autre
-jour : « Je soupçonne Saint-Simon d'avoir lu Gobineau, sans l'avoir jamais nommé. »
+jour: « Je soupçonne Saint-Simon d'avoir Gobineau, sans l'avoir jamais nommé. »
 
-| (2) Oltar Jarl, HI, 7. — On est bien tenté de dédier ces dernières
+(2) Oltar Jarl, HI, 7. — On est bien tenté de dédier ces dernières
 
 la vie et les prophéties du comte de Gobineau
 
 Et à l'appui de sa conjecture, il invoquait cette
-page des Mémoires :
+page des Mémoires:
 
 était touché jusqu'au plus profond du
 cœur de la ruine de la noblesse, des voies prises et tous
@@ -8130,7 +8088,7 @@ presque de la même sorte que le peuple même.
 
 À vous de décider si le duc de Saint-Simon fut un
 lecteur d'Ottar Jarl, ou si M. de Gobineau avait
-peut-être lu les Mémoires.
+peut-être les Mémoires.
 
 Si vous lisez le récit de M. de Gobineau, vous apprendrez de lui comment les libres bourgeois de
 Bordeaux, et non plus les nobles de cour, sont, à
@@ -8138,20 +8096,20 @@ dater du xvi° siècle, les représentants authentiques
 du tempérament et de l'honneur d'Ottar Jari.
 
 Chez ces bourgeois bordelais survivent, dans
-toute leur pureté honorable, cette « valeur », cette
-« vertu », ces « sentiments », abâtardis chez une |
+toute leur pureté honorable, cette « valeur cette
+« vertu ces « sentiments abâtardis chez une
 noblesse devenue « un peuple presque de la même
 
 sorte que le peuple même ». Juristes, marchands ou
 soldats, ils sont gens d'humeur fort intraitable,
 jaloux de leurs franchises municipales, au point de
-dire à l'occasion : « Quand je comparais en justice
-devant le roi, c'est par violence et non de droit ! »
+dire à l'occasion: « Quand je comparais en justice
+devant le roi, c'est par violence et non de droit! »
 Continuant la tradition de leur symbolique ancêtre,
 ces bourgeois pratiquent « de conserve le commerce et la piraterie ». (1) Et ils se fixent à la
-terre, possèdent leurs biens sans tenure, reconstituent ainsi en France une aristocratie & saine »,
-non « parasite », — selon les termes que j'emprunte
-à une récente étude sur la « Noblesse en France »,
+terre, possèdent leurs biens sans tenure, reconstituent ainsi en France une aristocratie saine
+non « parasite — selon les termes que j'emprunte
+à une récente étude sur la « Noblesse en France
 publiée par l'Action française.
 
 M. le marquis de La Tour du Pin-Chambly, auteur de cette étude fort curieuse, définit ainsi la
@@ -8166,15 +8124,13 @@ sa noblesse pût paraître suspecte à un rigoriste tel
 
 (2) L'Action francaise, 17 décembre 1904.
 
-325
-
 la vie et les prophéties du comte de Gobineau
 que le duc de Saint-Simon, — serait reçu comme
 « vrai noble » par l'école « traditionniste » contemporaine. Car il descendait, sans conteste, d'excellents bourgeois de Gascogne, qui, « s'étant élevés
-à une situation considérée », surent s'y maintenir.
+à une situation considérée surent s'y maintenir.
 Du quinzième au dix-huitième siècle, ces fiers
 bourgeois, ses ancêtres, derniers héritiers de l'Aonneur, — sinon du sang d'Ottar Jarl, — achètent des -
-terres à Izon, près d'Anglade et de la Mothe SaintSulpice, dans le voisinage de Libourne :
+terres à Izon, près d'Anglade et de la Mothe SaintSulpice, dans le voisinage de Libourne:
 
 Il est curieux de voir que Matthieu de Gournay, le séné-
 chal des Landes, avait des droits à Izon comme prévôt de
@@ -8201,10 +8157,10 @@ Massip, il est peu d'habitations dans cette place qui n'aient
 grande, longue maison basse, portant leur nom, située
 au bout du pays, sur la route de Vayres, derrière une
 grille de fer, au fond d'un préau. C'est une demeure consistant seulement aujourd'hui en un rez-de-chaussée, avec
-une moulure insignifiante autour de la porte pour tout ornement. Elle a dû être rebâtie telle qu'elle est, vers le
+une moulure insignifiante autour de la porte pour tout ornement. Elle a être rebâtie telle qu'elle est, vers le
 xvn° siècle; cependant on a trouvé entre les pierres du
 perron un teston d'Henry III. Elle est couverte en larges et
-lourdes tuiles ; l'aspect en est tout méridional et romain.
+lourdes tuiles; l'aspect en est tout méridional et romain.
 Sur la gauche et y tenant, se présente une orangerie plus
 vaste de beaucoup que le logis. Devant la maison s'étend
 un jardin, taillé en boulingrin, ayant encore quelque peu
@@ -8224,8 +8180,6 @@ de comes ou comte, et il donne ainsi la mesure de l'estime
 dans laquelle les gens du Bordelais tenaient leurs anciennes
 libertés. Le titre de syndic ou grand-syndic d'Ison vint aux
 
-4
-
 la vie et les prophéties du comte de Gobineau
 
 C'est ainsi que les Gobineau devinrent comtes.
@@ -8241,10 +8195,10 @@ Rejoignons M. de Gobineau à Stockholm, tandis
 qu'il compose cette généalogie si étrange.
 
 Le ministre de France n'habitait point les rues
-élégantes de cette ville. Ce qu'il avait eu de fortune
+élégantes de cette ville. Ce qu'il avait de fortune
 était en train de s'évanouir. Il demeurait modestement au second étage d'une maison voisine du
 
-Cest là que le prince d'Eulenburg lui fit sa première visite. (1) Des souvenirs rapportés de Perse et
+Cest que le prince d'Eulenburg lui fit sa première visite. (1) Des souvenirs rapportés de Perse et
 de Grèce ornaient cet appartement. Des divans très
 bas tentaient les hôtes. On y trouvait M. de Gobineau fumant son narghileh; mais bientôt, tout au feu
 de la causerie, il ne manquait pas de le laisser
@@ -8259,7 +8213,7 @@ sa vie. M. de Gobineau l'honoraiïit de son amitié. au
 point de lui confier ses perruches, lorsqu'il allait en
 voyage. — C'était une faveur non médiocre, car le
 respect et la tendresse de M. de Gobineau envers
-les bêtes étaient vifs et incomparables. On l'a vu
+les bêtes étaient vifs et incomparables. On l'a
 écrire d'importants ouvrages sur une petite chaise
 incommode, auprès de son bureau, afin de laisser
 en paix son vieux chien, qui s'était emparé de son
@@ -8269,15 +8223,15 @@ M. de Gobineau, à Stockholm, participait à une
 (à) « Parmi ses amis, il y avait le comte Charles Zaluski, chargé
 d'affaires d'Autriche, excellent musicien. La soirée commençait
 toujours par une sonate de Beethoven ou du Chopin. Puis, Zaluski
-lisait les vers qu'il avait faits dans la journée ; il traduisait alors
+lisait les vers qu'il avait faits dans la journée; il traduisait alors
 les Sept devant Thèbes en alexandrins français. Venait ensuite la
 lecture de La Renaissance ou de l'Amadis, et la façon dont lisait GoDineau était entraînante, fascinante... » (Communication de madame
-| la comtesse de La Tour). — Dans la société de Stockholm, madame
-| la comtesse de la Tour, le comte Zaluski et M. de Gobineau, portaient ce surnom : les trois calenders.
+la comtesse de La Tour). — Dans la société de Stockholm, madame
+la comtesse de la Tour, le comte Zaluski et M. de Gobineau, portaient ce surnom: les trois calenders.
 
-la pie et les prophéties du comte de Gobineau .
+la pie et les prophéties du comte de Gobineau.
 était née Brimont, et Française. Elle peignait. M. de
-| Gobineau était sculpteur. Ces goûts d'art les rapprochèrent. En janvier 1876, M. de Gobineau lui
+Gobineau était sculpteur. Ces goûts d'art les rapprochèrent. En janvier 1876, M. de Gobineau lui
 dédia sa Renaissance.
 Dans le même temps, il travaillait à son grand
 poème d'Amadis, qui a été pieusement édité après
@@ -8289,40 +8243,40 @@ vers. Les Allemands l'admirent. Maïs je ne crois
 « gens d'esprit » n'y comprenaient pas grand
 chose. — Vous n'êtes jusqu'ici que quatre personnes
 à entendre mon Amadis, écrivait-il à son ami le
-prince d''Eulenburg : la comtesse de la Tour, vous,
+prince d''Eulenburg: la comtesse de la Tour, vous,
 le comte Prokesch, et l'empereur dom Pedro. Mais
 apparaîtra plus tard... (2)
 Depuis 1876, la fortune de la pensée gobinienne
 n'a pas assez grandi en France pour que les « gens
 (1) Cette édition intégrale du manuscrit d''Amadis a été assurée
 par madame la comtesse de la Tour (Plon, 1887, un beau volume
-in-octavo, avec portrait). M. de Gobineau r'avait pu publier, de son
-vivant, que la première partie de son poème. (Librairie des Bibliophiles, 1876, un volume in-18 de 231 pages).
+in-octavo, avec portrait). M. de Gobineau r'avait publier, de son
+vivant, que la première partie de son poème. (Librairie des Bibliophiles, 1876, un volume de 231 pages).
 (2) Stockholm, lettre du 5 septembre 1876. — Le texte de ces
 lettres au prince d'Eulenburg est donné en allemand dans les
 
-Amadis. Peut-être ce jour viendra-t-il ? — Réservons l'avenir.
+Amadis. Peut-être ce jour viendra-t-il? — Réservons l'avenir.
 
 Tandis qu'il écrivait ce poème, si riche d'idées et
 de génie épique, selon ses quatre amis, M. de Gobineau sentait redoubler son admiration pour Richard
 Wagner. — J'éprouve en poésie, disait-il, ce que
 Wagner a traduit en musique... Comme lui, je veux
-unifier le sens et la forme ! (x)
+unifier le sens et la forme! (x)
 
 C'est à Rome, en 1876, que M. de Gobineau entrevit pour la première fois Wagner, comme il terminait ce grand voyage où le Gouvernement fran-
 çais lui avait permis d'accompagner l'empereur
 
 Au retour, il s'arrêta à Paris, où il apprit sa dis-
 
-| grâce. On lui demanda sa démission, et on osa
+grâce. On lui demanda sa démission, et on osa
 même lui enjoindre de regagner son poste sans s'arrêter en route, sous peine de perdre ses frais de
 déplacement. (3) Au mois de février 1877, un télé-
 gramme du duc Decazes, ministre des affaires
 étrangères, lui donna ordre de rester encore trois
-(:) Lettre au prince d'Eulenburg, en date de Stockholm, 5 septembre 1856.
+Lettre au prince d'Eulenburg, en date de Stockholm, 5 septembre 1856.
 (2) Voir Première Causerie, pages 24 et suivantes.
 
-la vie et les prophéties du comte de Gobineau |
+la vie et les prophéties du comte de Gobineau
 semaines à Stockholm, pour y attendre son successeur. (1) Mis à la retraite, M. de Gobineau s'exila
 de France, et vint se fixer à Rome.
 
@@ -8341,13 +8295,13 @@ eut à ce moment de grands ennuis. Absolument désinté-
 ressé, ne comptant jamais, il avait laissé disparaître sa fortune. Il dut se défaire du château de Trye, et la transition
 entre une existence large et une vie gênée lui fut inévitablement assez pénible. Ses goûts étaient cependant d'une
 telle simplicité qu'il se disait fait pour être derviche, et il
-avait raison ; mais il était sensible au plaisir de donner et
+avait raison; mais il était sensible au plaisir de donner et
 il lui était odieux d'avoir à s'occuper des petites économies
 
 Son amertume le détachaït un peu de son pays.
 Comme le guerrier aryen de l'Essai sur l'inégalité,
 
-, M. de Gobineau ne se sentait plus &« matériellement
+, M. de Gobineau ne se sentait plus matériellement
 patriote ». (3) Dureste, il avait de lugubres prophé-
 
 (2) Biographie de la seconde édition de l'Essai.
@@ -8359,7 +8313,7 @@ d'Eulenburg (Bayreuther Blälter, IX, 5): « Vous m'amusez avec
 ties sur le sort de toute l'Europe, annonçait sa
 disparition prochaine sous des flots sauvages de
 Russes et de Jaunes, et se plaisait à concentrer son
-pessimisme dans cette formule :
+pessimisme dans cette formule:
 
 — Nous ne descendons pas du singe, disait-il,
 mais nous y allons! (1)
@@ -8376,18 +8330,18 @@ géants, à qui il fallait une plus forte nourriture que les friandises
 de salons, que lon nous ordonne aujourd'hui. Cest pourquoi
 j'irai à Paris le moins que je pourrai. » (Traduction)
 
-Madame la comtesse de la Tour écrit, dans sa préface d'Amadis :
+Madame la comtesse de la Tour écrit, dans sa préface d'Amadis:
 « Il devint dur pour ses compatriotes, leurs fautes et leurs défauts
 le frappaient douloureusement... Qui pourrait le blâmer de cette
-sévérité ? Dans un cercle littéraire, il fut appelé, par un écrivain de :
-beaucoup d'esprit, l « Alceste du patriotisme », et si quelque jour
+sévérité? Dans un cercle littéraire, il fut appelé, par un écrivain de:
+beaucoup d'esprit, « Alceste du patriotisme et si quelque jour
 les pages qu'il écrivit alors sont publiées, on comprendra combien était puissant son amour pour la France. »
 
-(1) Renseignements inédits. — A cette époque de sa vie, il s'amusait pourtant quelquefois à une sorte de sélectionnisme : € Quand
+(1) Renseignements inédits. — A cette époque de sa vie, il s'amusait pourtant quelquefois à une sorte de sélectionnisme: Quand
 nous le poussions beaucoup en le taquinant, m'écrit madame la
 comtesse de la Tour, il finissait par convenir qu'un mélange bien
-combiné, — prépondérance blanche, pour le génie et l'ordonnance ;
-un peu de noir, pour laptitude aux arts ; un peu de jaune, très
+combiné, — prépondérance blanche, pour le génie et l'ordonnance;
+un peu de noir, pour laptitude aux arts; un peu de jaune, très
 peu, pour la pratique de la vie, — serait peut-être après tout dans
 les vues de la Providence pour le perfectionnement du genre
 humain. Et alors, quelle destruction de jaunes notre imagination
@@ -8397,36 +8351,35 @@ est absolument pessimiste, »
 Ce pessimisme s'accuse dans la conclusion de l'article que M. de
 Gobineau écrivit, en 1881, à la demande de Richard Wagner. Après
 
-333
 ,
 
-la vie et les prophéties du comte de Gobineau |
+la vie et les prophéties du comte de Gobineau
 Passant des journées entières à son atelier de
-sculpture (1) ou à sa table de travail, M. de Gobi- |
-neau continuait son Amadis, traduisait le Koushnameh, projetait une autobiographie. IL aimait le |
-travail, et pourtant le mettait au second plan dans |
-une vie heureuse. — L'amour, dit une de ses lettres, |
+sculpture (1) ou à sa table de travail, M. de Gobi-
+neau continuait son Amadis, traduisait le Koushnameh, projetait une autobiographie. IL aimait le
+travail, et pourtant le mettait au second plan dans
+une vie heureuse. — L'amour, dit une de ses lettres,
 travail. Ensuite, il n'y a rien. (2)
 À Rome, M. de Gobineau avait retrouvé ses amis
 de Stockholm, le comte et la comtesse de la Tour.
 Fort recherché dans la société romaine, il y était un
-y avoir dénoncé le péril slave et le péril jaune, il prédit les cataclysmes qui ne manqueront point de s'abattre rapidement sur |
-PEurope : « Voici des années que j'ai prévu ces étonnants phéno- |
-mènes. Je les ai annoncés dans mon Æssai sur l'inégalité des races |
+y avoir dénoncé le péril slave et le péril jaune, il prédit les cataclysmes qui ne manqueront point de s'abattre rapidement sur
+PEurope: « Voici des années que j'ai prévu ces étonnants phéno-
+mènes. Je les ai annoncés dans mon Æssai sur l'inégalité des races
 humaines. Mais je dois avouer que je ne croyais pas être si vite
 témoin d'événements que je situais dans un lointain avenir. Je
 puis donc ici me corriger moi-même, et convenir que le monde
 4 est plus mobile (beweglicher) que je n'avais supposé. Les mixtures
-de races déjà accomplies auraient dû me convaincre de la rapidité
+de races déjà accomplies auraient me convaincre de la rapidité
 avec laquelle elles sauront porter le mal à l'extrême. Cest à nous
 qu'il sera donné d'en voir la réalisation, avec toutes les calamités
 inséparables d'un mouvement si furieux, et toute la misère qui
-() M. le Docteur Kretzer a dressé avec un soin extrême la liste
+M. le Docteur Kretzer a dressé avec un soin extrême la liste
 de ses œuvres de sculpture. (Graf Gobineau, pages 260-261). On y
-remarque une petite statuette de Pia Colonna, d'après Dante ;
-deux médaillons, PEspérancé et la Charité; une statuette d'Amadis; un Bouddha ; une Tête d'Alexandre divinisé ; un buste de la
+remarque une petite statuette de Pia Colonna, d'après Dante;
+deux médaillons, PEspérancé et la Charité; une statuette d'Amadis; un Bouddha; une Tête d'Alexandre divinisé; un buste de la
 reine Marguerite d'Italie. M. de Gobineau, sculpteur, eut un instant une joie très vive. Un concours était ouvert pour le tombeau
-de la duchesse Melzi. Sa maquette fut préférée. Mais des intrigues :
+de la duchesse Melzi. Sa maquette fut préférée. Mais des intrigues:
 lui firent retirer la commande.
 
 peu craint. Très galant envers les femmes, il ne
@@ -8437,26 +8390,26 @@ assez judicieusement le sentiment commun, en
 disant un jour, dans un salon de Rome:
 
 — La conversation du comte de Gobineau est
-vraiment fatigante; elle vous force trop à penser ! (2)
+vraiment fatigante; elle vous force trop à penser! (2)
 
-Mais là où penser ne fatiguait point, on aimait
-M. de Gobineau ; il plaisait. Dans les curieux souvenirs intimes de mademoiselle Adelheid de
+Mais où penser ne fatiguait point, on aimait
+M. de Gobineau; il plaisait. Dans les curieux souvenirs intimes de mademoiselle Adelheid de
 Schorn, je relève ce passage d'une lettre de
 madame Ida Pinelli, datée de Rome, le 6 juin 1879:
 
-Nous avons eu un déjeuner des plus agréables chez notre
+Nous avons un déjeuner des plus agréables chez notre
 cher Stein. Liszi y était présent, ainsi que le phénoménal
 comte Gobineau, qui vous intéresserait beaucoup, un charmant général génevois, la d'Eichthal, et Consolo... (3)
 
-(1) — « M. de Gobineau voudrait nous ramener au moyen-âge ! »
-s'écrie un jour devant lui un ministre italien. El lui de répliquer :
-— « Oh! pas vous, monsieur... Moi, c'est autre chose! » (Bayreuther Blätter, V, 11).
+(1) — « M. de Gobineau voudrait nous ramener au moyen-âge! »
+s'écrie un jour devant lui un ministre italien. lui de répliquer:
+— « Oh! pas vous, monsieur... Moi, c'est autre chose! » (Bayreuther Blätter, 11).
 
 (2) Préface d'Amadis. — « Si ses boutades étincelantes, souvent
 ironiques et volontiers paradoxales, plaisaient aux uns, souvent
 aussi elles effrayaient les autres. Il n'y prenait pas garde, et un
 jour qu'on lui demandait raison de tant d'esprit dépensé en pure
-perte devant des gens hostiles et obtus, il répondit en riant : « Ils
+perte devant des gens hostiles et obtus, il répondit en riant: « Ils
 m'ennuyaient, et je me suis tiré un feu d'artifice à moi-même pour
 
 (3) Adelheiïid von Schorn, Franz Liszt et la princesse de SaynWittgenstein (Souvenirs intimes et correspondance). Traduit de
@@ -8467,7 +8420,7 @@ Quatre mois plus tard, mademoiselle de Schorn
 
 est elle-même menée, par Liszt, à l'atelier de M. de
 
-Et elle écrit à son tour :
+Et elle écrit à son tour:
 
 Le 21 [octobre 70], Liszt regagna Rome avec nous. Le
 je l''accompagnai dans une visite au comte Gobineau qu'il
@@ -8514,7 +8467,7 @@ climat romain. Une maladie des yeux vint ajouter à
 son délabrement. Les médecins lui firent défense
 
 (1) « Préférer — comme tel — le pauvre au riche, le simple d'esprit au sage, l'infirme à l'homme sain, lui paraissait une erreur
-dont aucun Hindou ne se serait rendu coupable ; et si la dureté
+dont aucun Hindou ne se serait rendu coupable; et si la dureté
 de cette thèse a ici-bas contre elle la douce morale du christianisme, le comte pouvait répondre par son propre exemple,
 qu'une nature d'élite sait d'elle-même être miséricordieuse, et se
 dévouer pleinement sans obéir à aucune contrainte. » (Bayreuther
@@ -8533,7 +8486,7 @@ chez lui et très forte, en vertu de laquelle il était
 porté par instinct à croire qu'il convient toujours
 d'espérer, fût-ce contre tout espoir raisonnable,
 
-/ — et d'aitendre je ne sais quel imprévu heureux.
+— et d'aitendre je ne sais quel imprévu heureux.
 
 Je peindrai cet optimisme invincible de son caractère, en rappelant ici l'apologue conté par l'excellente et noble Harriett des Pléiades, et qui est si
 représentatif de la naïveté confiante de sa propre
@@ -8542,33 +8495,33 @@ dont la vie fut « détruite » par son amour insensé
 pour Carmen Pilar de Meñezès; il devint un criminel.
 
 Comme cet homme déchu allait au supplice, le
-roi lui dit :.
+roi lui dit:.
 
-k — Cette jeune fille vous a-t-elle trompé ? Que lui reprochez-vous ?
+— Cette jeune fille vous a-t-elle trompé? Que lui reprochez-vous?
 
 — Elle m'a toujours détesté, toujours méprisé; je n'ai pas
-eu d'elle un regard.
+d'elle un regard.
 
 (1) Lire la belle lettre de Stockholm, 12 juillet 1876, au prince
 d'Eulenburg, et le fragment dune lettre de Pise, 27 septembre 1859.
 
 Les soldats mirent la main sur l'épaule de don Pierre
 pour le faire marcher. Mais, à ce moment, dona Carmen se
-leva de son siège. Elle était très émue, et ses yeux brillaient :
+leva de son siège. Elle était très émue, et ses yeux brillaient:
 
-— Sire, dit-elle, je serai la femme de cet homme! Regardez-le ! C'est une ombre effrayante ! Et ce qui l'a réduit à
+— Sire, dit-elle, je serai la femme de cet homme! Regardez-le! C'est une ombre effrayante! Et ce qui l'a réduit à
 n'être plus qu'un tel fantôme, c'est son amour pour moi...
 Sans moi, il mourra.. Sans moi, il n'eût pas fait ce qu'il a
-fait... Venez, don Pierre ! (1)
+fait... Venez, don Pierre! (1)
 
-M. de Gobineau avait toujours eu cette illusion
+M. de Gobineau avait toujours cette illusion
 de croire que rien n'est insurmontable à la volonté,
 et que la persévérance ne manque jamais de dominer l'inaccessible. Mais l'inaccessible, pour lui, ce
 n'était point l'amour, comme chez don Pierre;
 c'était la gloire.
 
 L'auteur de l'Essai et de la Renaissance se lassait
-de s'entendre appeler partout : « ce bon Gobineau ».
+de s'entendre appeler partout: « ce bon Gobineau ».
 Mais il ne vécut pas assez pour s'entendre appeler
 
 Quittant Gastein après sa cure, il alla passer
@@ -8576,7 +8529,7 @@ quelques semaines en Auvergne. au château de Chaméane, chez madame la comtesse
 il quitta Chaméane pour se rendre à Pise; son ami
 
 la vie et les prophéties du comte de Gobineau
-le comte Sanvitale l'y attendait. Le 12 octobre 188 »,
+le comte Sanvitale l'y attendait. Le 12 octobre
 il s'arrêtait à Turin, et descendit à l'hôtel Liguria.
 
 Voici le récit de la journée du 13 octobre, où il
@@ -8592,27 +8545,27 @@ de la peine à monter en omnibus et à s'y asseoir. Le conducteur fut effrayé �
 de la difficulté à le faire descendre d'omnibus. IL était paralysé. On le mit au lit: médecin et prêtre vinrent. À minuit,
 il était mort, (1)
 
-Dans une autre lettre, la princesse écrit :
+Dans une autre lettre, la princesse écrit:
 
 Je vous remercie beaucoup, ma chère Adelheid, pour votre
 dernière lettre, malgré la terrible mélancolie qui s'en dégage.
 L'impression m'en a été d'autant plus pénible que par le
 même courrier, je recevais la nouvelle de la mort du comte
 Gobineau, mort tout seul dans un petit hôtel de Turin...
-Cela m'a déchiré le cœur. C'était une âme si noble, un véritable représentant de l'ancienne chevalerie, avec ses sentiments héroïques, nobles et peu pratiques ! Un vrai Don
+Cela m'a déchiré le cœur. C'était une âme si noble, un véritable représentant de l'ancienne chevalerie, avec ses sentiments héroïques, nobles et peu pratiques! Un vrai Don
 Quichotte, ou un Roland sous des formes diplomatiques et
 sociales. Racontez cela à Liszt, et dites-lui que cette mort
 soudaine, dans un voyage que le comte Gobineau faisait
 de France à Rome, nr'a mise hors de moi! Je l'attendais déjà
 
 depuis quatre jours, et au lieu de venir ici, il est allé dans
-un monde meilleur ! Je prie et j'ai fait dire des Messes pour
-lui ! Vous pouvez vous figurer comme un autre événement
+un monde meilleur! Je prie et j'ai fait dire des Messes pour
+lui! Vous pouvez vous figurer comme un autre événement
 possible de ce genre est devant mes yeux et m'effraie jusqu'au fond du cœur. La mort est belle, la mort est même
 douce! La mort délivre. La mort nous fait naître. La mort
-nous amène de la nuit au jour, du malheur et des peines au !
+nous amène de la nuit au jour, du malheur et des peines au!
 bonheur et aux délices éternelles. Mais cette façon de mou-.
-rir n'est point belle et je suis chagrine de ce manque de :
+rir n'est point belle et je suis chagrine de ce manque de:
 
 Cet automne, j'étais à Turin et je suis allé au
 cimetière. Sous le portique circulaire qui est au
@@ -8621,16 +8574,14 @@ une sèche plaque de marbre commémore le dernier
 
 Vous lui ferez, dans vos esprits, une tombe plus
 
-0
-
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires : la souscription ne confère aucune autorité sur
-la rédaction ni sur l'administration ; ces fonctions
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires: la souscription ne confère aucune autorité sur
+la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries: une série paraît
 dans le temps d'une année scolaire, d'une année
-ouvrière, d'octobre-novembre à juin-juillet ; l'abonnement se prend pour une série.
+ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série.
 
 Le prix de l'abonnement est de vingt francs pour la
 série. Nous acceptons que nos abonnés paient leur
@@ -8648,7 +8599,7 @@ transmission de signature, garantit le destinataire
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
-l'achèvement de cette série ; ainsi du 2 octobre au
+l'achèvement de cette série; ainsi du 2 octobre au
 31 décembre 1904 on pouvait encore avoir pour vingt
 francs les vingt cahiers de la cinquième série complète.
 
@@ -8658,7 +8609,7 @@ d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi depuis le premier
 janvier 1905 la cinquième série complète se vend
 
-M. André Bourgeois, administrateur des cahiers, |
+M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de huit
 heures à onze heures et de une heure à sept heures.

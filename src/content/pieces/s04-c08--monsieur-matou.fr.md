@@ -10,14 +10,14 @@ wordCount: 18475
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-‘ dans le comm TR
+dans le comm
 
-He De avec les bons souhaits des cahiers LT
-D REPRe SE, pour cette nouvelle année de travail ;
+De avec les bons souhaits des cahiers
+REPRe SE, pour cette nouvelle année de travail;
 
 }ÉEPNER Pour nos petits +.
-\ 488 Pour nos petites Eu
-Di M ru Pour Marianne Mayer iv
+488 Pour nos petites
+Pour Marianne Mayer
 
 Monsieur Matou est dans la dixième année de son
 âge. C'est dire qu'il devrait être un chat sérieux.
@@ -92,13 +92,13 @@ essuie-mains. Et, dans son coin, un vieux tablier de
 
 — C'estsûr qu'il ne suit jamais les bons conseils.
 L'autre fois, madame l'armoire, la porte de votre
-Seigneurie bâillait un peu : que fait monsieur
+Seigneurie bâillait un peu: que fait monsieur
 Matou? Monsieur Matou, qui est une manière
 d'anguille, se coule dans votre sanctuaire où il joue
 à piétiner vos protégés avec ses petites semelles
 arrondies et griflues. Même qu'il ose venir se vautrer sur moi, qui suis un vieux, utile et honorable serviteur de la maison. Je lui dis en étouffant
-— car il est très lourd, monsieur Matou — : eh, monsieur Matou, vous m'étouflez ; sortez d'ici, que
-diable ! Sinon, Noémi, sans vous voir, poussera la
+— car il est très lourd, monsieur Matou —: eh, monsieur Matou, vous m'étouflez; sortez d'ici, que
+diable! Sinon, Noémi, sans vous voir, poussera la
 porte, tournera la clef dans la serrure, et vous serez
 
 en prison, privé de l'air et de la lumière qui sont
@@ -133,7 +133,7 @@ chonne le tablier. Quel affront pour moi qui suis un
 vieux, utile et honorable serviteur de la maison.
 
 Cependant monsieur Matou somnole ou sommeille
-tout près de la salamandre qui le chauffe bien à regret. Mais ne faut-il pas que bon gré mal gré, la salamandre agisse en salamandre ? Et dans sa somnolence ou son sommeil, comme il arrive quand on a
+tout près de la salamandre qui le chauffe bien à regret. Mais ne faut-il pas que bon gré mal gré, la salamandre agisse en salamandre? Et dans sa somnolence ou son sommeil, comme il arrive quand on a
 mal au cœur, et qu'on a trop chaud, monsieur Matou
 a de très vilains cauchemars et des rêves tout à fait
 
@@ -141,7 +141,7 @@ Sur le palier d'en haut, il est une table à ouvrage
 en acajou. A cette table s'ajuste et s'articule un couvercle, au moyen de deux charnières. Quand le
 couvercle est levé, monsieur Matou saute dans le
 coffre de la table. Ce coffre est divisé par de petites
-cloisons en compartiments dont chacun a son contenu : ici le fil, ici les étuis à aiguilles, ici les écheveaux et les pelotes, ici les boîtes à boutons, ici les
+cloisons en compartiments dont chacun a son contenu: ici le fil, ici les étuis à aiguilles, ici les écheveaux et les pelotes, ici les boîtes à boutons, ici les
 boîtes à épingles. Monsieur Matou se couche indolemment parmi toutes ces choses, tantôt sur le flanc
 et la tête relevée à la manière des phoques, animaux
 marins, tantôt sur le ventre, les pattes antérieures
@@ -155,11 +155,11 @@ ouvrage. Là, il a commencé par mouiller ses pattes
 avec sa petite langue rose qui gratte en léchant.
 
 Puis avec ses pattes mouillées, il s'est installé à la
-manière d'un phoque sur le fil, le coton, les boîtes |
+manière d'un phoque sur le fil, le coton, les boîtes
 et les délicats outils d'acier.
 
 Ce sont les aiguilles qui ne sont pas contentes. IL
-y a là également des ciseaux qui ne sont pas contents non plus.
+y a également des ciseaux qui ne sont pas contents non plus.
 
 — Que ne pouvons-nous lui piquer le ventre!
 murmurent les aiguilles.
@@ -167,7 +167,7 @@ murmurent les aiguilles.
 — Que n'est-ce possible de lui couper les mous- (
 taches! murmurent les ciseaux.
 
-Et tout aussitôt :
+Et tout aussitôt:
 
 — Ces ciseaux ne pensent qu'à couper, murmurent dédaigneusement les aiguilles.
 
@@ -206,10 +206,10 @@ patte griffue, il se gratte impatiemment la tête et,
 de temps en temps, il fait pchtt!!! pchtt!!! Car
 monsieur Matou a les oreilles fort sensibles.
 
-Cependant la table à ouvrage, qui est un peu boîiteuse, — c'est une vieille table à ouvrage : elle a
+Cependant la table à ouvrage, qui est un peu boîiteuse, — c'est une vieille table à ouvrage: elle a
 elle a longtemps habité Paris, — la table, ébranlée
 par les secousses de monsieur Matou, bat une
-mesure en trois temps sur les carreaux du palier :
+mesure en trois temps sur les carreaux du palier:
 
 — Monsieur Matou ne connaît ni le respect ni la
 pitié, soupire la table à ouvrage, ainsi contrainte à
@@ -221,24 +221,24 @@ son âge et de sa condition.
 — Mais aussi, pourquoi ne pas vous faire respecter? disent les aiguilles à la table. Vraiment
 vous n'avez pas de caractère.
 
-Les aiguilles en ont, du caractère : elles ont même
+Les aiguilles en ont, du caractère: elles ont même
 un caractère pointu,
 
 — Vous manquez tout à fait de dignité, ajoutent
-les ciseaux. Pourquoi ne pas faire choir votre couverele sur le dos de cet insolent ?
+les ciseaux. Pourquoi ne pas faire choir votre couverele sur le dos de cet insolent?
 
 Les paroles des ciseaux sont toujours tranchantes.
 
-— Que voulez-vous ? répond la table, je suis tellement fatiguée, tellement fatiguée ! Mes pauvres
+— Que voulez-vous? répond la table, je suis tellement fatiguée, tellement fatiguée! Mes pauvres
 pieds sont engourdis et mes pauvres articulations
 sont nouées. Ne croyez pas que j'aie toujours été
-aussi impotente : moi aussi j'ai eu ma jeunesse.
+aussi impotente: moi aussi j'ai ma jeunesse.
 
 — Bon, bon, interrompent les ciseaux. Vous
 n'allez pas nous raconter une fois de plus vos aventures. Que de fois déjà nous avons baillé en les
 
 Les ciseaux parlent pour eux, car les aiguilles ne
-savent pas bâiller : leur bouche est beaucoup trop
+savent pas bâiller: leur bouche est beaucoup trop
 
 Pendant ce dialogue, monsieur Matou s'est
 recouché, non plus à la manière d'un phoque, mais
@@ -246,7 +246,7 @@ recouché, non plus à la manière d'un phoque, mais
 nomme des sphinx. Son ventre blanc s'adapte au
 
 faîte des cloisons et aux angles des boîtes; ses reins
-s'élargissent et se dressent royalement; ses pattes |
+s'élargissent et se dressent royalement; ses pattes
 antérieures s'allongènt bien devant lui; son nez et
 son regard sont bien dans la ligne de son dos.
 
@@ -262,11 +262,11 @@ Et monsieur Matou sent dans ses deux pattes
 antérieures un chatouillant besoin de pousser un
 peu, un tout petit peu, ce bon gros peloton de laine
 grise à tricoter. Oh! il ne s'agit que de le pousser
-un tout petit peu, seulement pour voir si ça bougera.
+un tout petit peu, seulement pour voir si bougera.
 
 Et monsieur Matou saute à bas de la table à
 
-— Enfin! disent les ciseaux, |
+— Enfin! disent les ciseaux,
 
 — Ce n'est pas malheureux! disent les aiguilles.
 
@@ -296,12 +296,12 @@ D'un bond calculé, nerveux et précis, monsieur
 Matou quitte le sol et retombe sur la console empire,
 juste à côté du gros peloton de laine grise.
 Monsieur Matou repose sur ses quatre semelles
-arrondies et griffues ; le panache de sa queue s'érige
-vers le plafond, tel un cierge ; son dos fourré qui se
+arrondies et griffues; le panache de sa queue s'érige
+vers le plafond, tel un cierge; son dos fourré qui se
 cambre par dehors, a l'air d'un dos bossu; son
 du gros peloton de laine grise, et les pointes de ses
 oreilles se rabattent vers les touffes de ses favoris.
-Ii apparaît que l'aventure où s'est lancé monsieur
+apparaît que l'aventure où s'est lancé monsieur
 Matou parce qu'il avait des chatouillements dans
 les pattes, prend soudain une importance extraordinaire et que, pour n'y rien risquer, monsieur
 Matou doit préalablement reposer sur $es quatre
@@ -310,21 +310,20 @@ manière de cierge, faire le bossu avec son dos,
 flairer le peloton de laine grise avec son petit nez
 couleur d'anémone, et rabattre vers les touffes de
 ses favoris la pointe de ses oreilles.
-24
 
 La table à ouvrage qui est une personne d'expé-
-rience — elle a tant déménagé ! — voit bien qu'il
+rience — elle a tant déménagé! — voit bien qu'il
 se prépare de graves événements.
 
 — Il y aura du grabuge, dit-elle.
 
-— Est-ce que vous avez peur ? répliquent les
+— Est-ce que vous avez peur? répliquent les
 aiguilles et les ciseaux. Nous, vous savez, nous
 n'avons peur de rien. Et même un peu de grabuge
 nous irait assez.
 
-Ces aiguilles et ces ciseaux ! ça ne rêve que plaies
-et bosses. On voit bien que ces gens là ne vivent
+Ces aiguilles et ces ciseaux! ne rêve que plaies
+et bosses. On voit bien que ces gens ne vivent
 que pour piquer ou trouer, tailler ou rogner. Entre
 nous je crois qu'ils ont l'esprit militaire.
 
@@ -332,7 +331,7 @@ Le gros peloton de laine grise, n'ayant pas l'esprit
 militaire, ne partage point leurs sentiments.
 
 — Que me veut, songe-t-il, ce personnage poilu
-et moustachu ? Il n'a pas l'air gauche, timide et
+et moustachu? Il n'a pas l'air gauche, timide et
 ahuri de ces messieurs Moutons sur le dos desquels
 je poussais jadis à l'état de toison drue et huileuse.
 Je ne me sens point rassuré du tout qu'il me flaire
@@ -353,9 +352,9 @@ peloton de laine, prédit la table à ouvrage. Et cette
 prédiction est admirable.
 
 — Les crochets en bois, est-ce que c'est bon à
-quelque chose ? grincent les ciseaux. )
+quelque chose? grincent les ciseaux. )
 
-— Les crochets en bois, fi donc ! ajoutent les
+— Les crochets en bois, donc! ajoutent les
 aiguilles, de leur voix menue et pointue.
 
 Car les aïguilles et les ciseaux, comme tous les
@@ -381,23 +380,23 @@ bon gros peloton de laine.
 
 — Je suis perdu, songe le bon gros peloton de
 laine, tout en glissant un peu sur le marbre de la
-console empire. Quelle horreur ! J'ai senti les
-piquants de ce personnage poilu et moustachu ; car
+console empire. Quelle horreur! J'ai senti les
+piquants de ce personnage poilu et moustachu; car
 ses pieds ont des piquants ni plus ni moins que les
-églantiers de la haïe. Il va me déchirer; ou bien,
-s'il me heurte encore, il va me faire choir dans le
+églantiers de la haïe. Il me déchirer; ou bien,
+s'il me heurte encore, il me faire choir dans le
 
 Car le peloton de laine, dans sa simplicité, se
 figure qu'il repose au bord d'un précipice.
 
 Monsieur Matou s'est redressé sur ses quatre
-pattes. Dame ! il faut se tenir sur ses gardes maintenant que le peloton de laine a bougé. Car il a
+pattes. Dame! il faut se tenir sur ses gardes maintenant que le peloton de laine a bougé. Car il a
 bougé, c'est évident. Et dans l'entendement de
-monsieur Matou, cela signifie que le peloton de :
+monsieur Matou, cela signifie que le peloton de:
 laine est un être malicieux qui veut prendre part
 aux jeux ordinaires de monsieur Matou. Et pourquoi veut-il prendre part aux jeux ordinaires de
 monsieur Matou, sinon pour gagner toutes les
-parties ? C'est ce que monsieur Matou ne soufirira
+parties? C'est ce que monsieur Matou ne soufirira
 
 Monsieur Matou est fort de cette erreur et, persuadé que mieux vaut ne pas se laisser surprendre
 par une manœuvre perfide du gros peloton de laine,
@@ -405,26 +404,26 @@ il attaque le premier. D'un coup de patte rapide et
 bien ajusté, il frappe son partenaire, ou du moins
 celui qu'il tient pour son partenaire. Le peloton de
 
-laine disparaît soudain, et le crâne plat des crochets ;
+laine disparaît soudain, et le crâne plat des crochets;
 en bois sonne contre les carreaux du palier.
 
-Monsieur Matou frémit d'orgueil ; avec la férocité
+Monsieur Matou frémit d'orgueil; avec la férocité
 d'une panthère noire de Java — ne pas oublier que
 monsieur Matou n'est ni panthère, ni noir, ni de
-Java : il est né au Pecq, il est chat, et il porte une
+Java: il est au Pecq, il est chat, et il porte une
 fourrure café au lait, avec un beau gilet blanc et des
 pantalons blancs à la turque, — avec cette férocité,
-donc, il va plonger à son tour dans le précipice pour
+donc, il plonger à son tour dans le précipice pour
 achever l'adversaire. Car le peloton de laine n'est
 plus le partenaire, il est l'adversaire. Ceci n'est plus
-un jeu, c'est une bataille : puisque le peloton de
+un jeu, c'est une bataille: puisque le peloton de
 laine a sauté si vite et de si haut, il ne saurait être
 qu'un personnage mal avisé, subtil et dangereux.
 
 Monsieur Matou pose méthodiquement ses deux
 semelles antérieures au bord du marbre de la console empire, met entre elles deux son nez couleur
 d'anémone, érige majestueusement ses reins en
-forme de montagne. Va-t-il sauter ?
+forme de montagne. Va-t-il sauter?
 
 Cuip, cuip, cuip.— C'est un jeune moïneau qui
 sautille sur le toit, près de la lucarne entrebäillée,
@@ -432,17 +431,17 @@ tout en fredonnant une petite chanson légère qu'on
 lui a sans doute apprise à l'école des Moiïneaux.
 
 Monsieur Matou a repris brusquement une position horizontale. Ses pantalons blancs à la turque
-se tendent comme s'ils voulaient devenir des pantalons à l'anglaise ; le panache de sa queue bat
+se tendent comme s'ils voulaient devenir des pantalons à l'anglaise; le panache de sa queue bat
 
 d'une façon préméditée, mais surprenante, ses
-fourrures café au lait ; ses yeux fixes ont des lueurs
+fourrures café au lait; ses yeux fixes ont des lueurs
 de lampes Édison.
 
 Cuip, cuip, cuip. — Le jeune moineau est déjà
 bien loin, lui et sa chanson légère, qu'il a sans doute
 apprise à l'école des Moineaux.
 
-Les yeux de monsieur Matou s'éteignent ; le
+Les yeux de monsieur Matou s'éteignent; le
 panache de sa queue se détend, puis s'immobilise.
 Monsieur Matou a tout à fait oublié le peloton de
 laine, et sa victoire sur le peloton de laine, et, à
@@ -458,7 +457,7 @@ chambre, au bas de cette petite fenêtre, il est une
 tablette en bois sur laquelle je pose mes coudes
 lorsque je regarde le jardin, et tout spécialement la
 grosse branche d'acacia qui viendra quelque jour
-promener ses menues feuilles — ovales, tendres et |
+promener ses menues feuilles — ovales, tendres et
 veloutées — parmi les livres, les cahiers et les
 manuscrits. Voilà des feuilles qui seront bien mal
 reçues, car les manuscrits, les cahiers et les livres
@@ -472,7 +471,7 @@ lorsqu'elles glissent sur la pente brune et moussue
 du toit, ni que la tablette n'ait d'autre fonction que
 de soutenir mes coudes lorsque je regarde venir la
 
-Sans doute la gouttière reçoit volontiers les eaux, |
+Sans doute la gouttière reçoit volontiers les eaux,
 et la tablette recoit volontiers mes coudes. Mais
 
 chacune d'elles exerce une autre fonction, infiniment plus noble. Car la gouttière est la promenade
@@ -507,9 +506,9 @@ d'étranges petits êtres. Les uns ont une queue qu'ils
 laissent pendre, les autres un doigt qu'ils tiennent
 levé. Il est de ces queues et de ces doigts qui n'ont
 aucune relation avec les autres queues et les autres
-doigts : ceux-là sont munis de fins crochets. Il est,
+doigts: ceux-là sont munis de fins crochets. Il est,
 au contraire, des queues et des doigts qui forment
-des associations : un petit bâton les tient ou les
+des associations: un petit bâton les tient ou les
 soutient par leurs bouts, et souvent ce petit bâton
 est ou bien surmonté ou bien souligné d'autres
 petits bâtons tout pareils à lui.
@@ -541,10 +540,10 @@ très emportée; et le malheur veut que sur les deux
 pages piétinées par monsieur Matou, il y ait beaucoup de croches, de doubles croches et de triples
 croches, gentilles taches noires aux formes elliptiques. Or, si j'ai un conseil à vous donner, c'est
 de ne jamais irriter les croches, les doubles croches
-et les triples croches : car elles ne connaissent pas
+et les triples croches: car elles ne connaissent pas
 les lenteurs de la réflexion.
 
-— Holà ! Qu'est-ce à dire! Malotru! Hors d'ici!
+— Holà! Qu'est-ce à dire! Malotru! Hors d'ici!
 Au secours! Au meurtre! s'écrient en chœur les
 croches, les doubles croches et les triples croches.
 
@@ -578,15 +577,15 @@ aux lois éternelles de l'harmonie.
 — Ce monsieur Matou est un ignorant et grossier personnage, déclare la Grammaire comparée.
 Son esprit est obscur et plein de détestables erreurs.
 Voyez comme il méprise les Arts. Croyez qu'il ne
-méprise pas moins les sciences en général et la linguistique en particulier. Maiïntes fois j'ai dû subir |
+méprise pas moins les sciences en général et la linguistique en particulier. Maiïntes fois j'ai subir
 le contact de sa robe de poils, le frottement de ses
-semelles arrondies et griffues et les attouchements |
+semelles arrondies et griffues et les attouchements
 de son nez pâle. Vainement je lui ai fait observer
 
 que j'étais une grammaire savante, bien renseignée,
 bien documentée, purgée des rêveries étymologiques qui sévissaient dans les anciennes grammaires, exacte en mes définitions et méthodique en
 mes divisions, informée enfin des découvertes grammaticales qui se firent tout dernièrement dans les
-écouté et j'ai dû souffrir qu'il éraillât les endroits
+écouté et j'ai souffrir qu'il éraillât les endroits
 de mes feuillets où se montrent le mieux mon esprit
 critique et mon perpétuel souci d'exactitude.
 
@@ -599,13 +598,13 @@ monsieur Matou qui n'est qu'ignorance et que barbarie.
 Le voyez-vous, bien tranquillement assis sur les
 croches, les doubles croches et les triples croches
 de monsieur Richard Wagner, poète et musicien
-allemand ? Il examine avec attention une grosse
+allemand? Il examine avec attention une grosse
 mouche bleuâtre qui tournoie en bourdonnant audessus des livres, des cahiers et des manuscrits.
-Aussi ne saurais-je peindre l'indignation des eroches, des doubles croches et des triples croches :
+Aussi ne saurais-je peindre l'indignation des eroches, des doubles croches et des triples croches:
 leur clameur est de moins en moins conforme aux
 lois éternelles de l'harmonie. Et c'est en vain que
 
-leurs gouvernantes, les clés de sol — dames arrondies — et les clés de fa — intellectuelles au front
+leurs gouvernantes, les clés de sol — dames arrondies — et les clés de — intellectuelles au front
 lourd — les exhortent au sang-froid et les rappellent
 à la dignité. De la dignité, certes, elles en ont. Mais
 du sang-froid, allez donc en exiger des croches, des
@@ -615,14 +614,14 @@ la musique de Richard Wagner, poète et musicien
 Cependant la mouche bleue est partie. Monsieur
 Matou a-t-il l'intention de se concilier les croches,
 les doubles croches et les triples croches? Veut-il
-pénétrer les secrets de l'Art wagnérien ? Mystère.
+pénétrer les secrets de l'Art wagnérien? Mystère.
 Ce qu'il y a de sûr c'est qu'il a baïssé vers les gentilles taches noires aux formes elliptiques son petit
-nez couleur d'anémone, et qu'il s'occupe à ràper |
+nez couleur d'anémone, et qu'il s'occupe à ràper
 consciencieusement les deux pages avec sa petite
-langue rose qui gratte en léchant,. |
+langue rose qui gratte en léchant,.
 
-Après tout, comme dit Noémi avec beaucoup |
-de sagesse, chacun a sa façon de Lire la musique. |
+Après tout, comme dit Noémi avec beaucoup
+de sagesse, chacun a sa façon de Lire la musique.
 
 : Le Dictionnaire grec entretient la Grammaire
 comparée de l'anglais et de l'allemand. L'entretien roule sur la civilisation dite mycénienne. Le
@@ -630,7 +629,7 @@ Dictionnaire grec, fort bien renseigné par certaines
 Revues de son entourage, parle des petites dames
 crétoises, qu'a découvertes M. Evans dans le palais
 de Cnossos. Ces petites dames sont peintes sur un
-mur ; bien qu'elles aient vécu, je pense, il y a plus
+mur; bien qu'elles aient vécu, je pense, il y a plus
 de quatre mille ans, elles portent déjà des robes
 à volants, des manches à gigot et des coiffures
 
@@ -638,10 +637,10 @@ de quatre mille ans, elles portent déjà des robes
 Mais ces frivolités sont d'intérêt médiocre au prix
 des tablettes en terre cuite dont vous m'entretintes
 hier, lesquelles sont couvertes d'inscriptions qu'on
-n'a pas encore su déchiffrer.
+n'a pas encore déchiffrer.
 
 Et la causerie, pleine de gentillesse et d'érudition,
-va continuer entre le Dictionnaire grec et la Grammaire comparée de l'anglais et de l'allemand,
+continuer entre le Dictionnaire grec et la Grammaire comparée de l'anglais et de l'allemand,
 lorsque apparaît soudain monsieur Matou, dont il
 est superflu d'aflirmer l'indifférence en matière de
 
@@ -650,7 +649,7 @@ féminin ou des archives en terre cuite.
 
 A l'aspect de monsieur Matou, le Dictionnaire
 grec et la Grammaire comparée de l'anglais et de
-l'allemand se taisent et se roïdissent : ils estiment
+l'allemand se taisent et se roïdissent: ils estiment
 que les êtres savants et sages doivent se composer
 une attitude majestueuse quand ils se sentent menacés par l'ignorance et la barbarie.
 
@@ -659,22 +658,22 @@ Grammaire comparée, personne exigeante et bourrue, ni son collègue le gros Dic
 sait dire tant de choses jolies, avec des mots si
 
 Monsieur Matou n'est attentif qu'à un petit arbuste en forme de sapin. Ce petit arbuste, droit
-comme un f, sort d'un pot en vieille porcelaine qui
+comme un sort d'un pot en vieille porcelaine qui
 trône confortablement sur la tablette fixée au bas de
 la fenêtre. Il se nomme araucaria. Il est gracile et
 maladif. Ses zones de verdure grisonnante tendent
-à choir vers le sol ; beaucoup de ses griffes d'émeraude se sont desséchées et ratatinées : car nos
+à choir vers le sol; beaucoup de ses griffes d'émeraude se sont desséchées et ratatinées: car nos
 pays sont de glace pour cet exilé dont les frères
 baïgnent, drus et robustes, là-bas, parmi la pénombre moite et chaude des forêts équatoriales.
 
-Personne au logis n'aime l'araucaria sauf mon- |
-sieur Matou. En quoi monsieur Matou montre qu'il |
-n'est pas tout à fait impitoyable, car l'araucaria est |
+Personne au logis n'aime l'araucaria sauf mon-
+sieur Matou. En quoi monsieur Matou montre qu'il
+n'est pas tout à fait impitoyable, car l'araucaria est
 
 un pauvre arbuste étiolé, souffreteux et débile.
 Monsieur Matou, de sa petite langue rose qui gratte
 en léchant, râpe souvent la tige rêche et grisätre de
-l'arbuste ; il promène volontiers son petit nez couleur d'anémone sur les griffes desséchées et ratatinées. Et les griffes reconnaissantes picotent fort
+l'arbuste; il promène volontiers son petit nez couleur d'anémone sur les griffes desséchées et ratatinées. Et les griffes reconnaissantes picotent fort
 agréablement le petit nez couleur d'anémone.
 
 Monsieur Matou n'est pas comme mon ami le
@@ -688,7 +687,7 @@ que monsieur Matou aime à s'insinuer sous les rameaux de la zone inférieure et
 attitudes de sphinx ou de phoque sans paraître rien
 apercevoir des êtres et des choses d''alentour,
 comme s'il se trouvait isolé dans une chambre de
-verdure, sous une opaque feuillée d'arbres tropi- |
+verdure, sous une opaque feuillée d'arbres tropi-
 
 Il est évident qu'au prix de monsieur Matou,
 mon ami le poète a très peu d'imagination.
@@ -698,7 +697,7 @@ Aujourd'hui, monsieur Matou s'est encore insinué sous les rameaux de la zone in
 s'est couché sur la tablette à la manière d'un phoque.
 Son nez couleur d'anémone se frotte légèrement aux
 petites griffes desséchées et ratatinées. Ses regards
-percent les zones circulaires de verdure grisonnante : ils y découvrent assurément des complications et des épaisseurs qui n'y sont pas, et, parmi
+percent les zones circulaires de verdure grisonnante: ils y découvrent assurément des complications et des épaisseurs qui n'y sont pas, et, parmi
 ces complications et ces épaisseurs, des choses volantes, glissantes et sautillantes, qui n'y sont pas
 davantage. Sinon, le regard de monsieur Matou ne
 resterait pas si longtemps fixe et passionné.
@@ -724,7 +723,7 @@ le langage du Dictionnaire grec.
 — J'admets à la rigueur que cette nymphe soit
 une figure poétique exprimant l'attrait que l'arau-
 
-_ caria exerce sur monsieur Matou, mais si vous
+caria exerce sur monsieur Matou, mais si vous
 croyez qu'elle existe comme vous ou moi nous existons, je dirai, mon cher collègue, que sans doute
 vous extravaguez, et qu'ayant mérité jadis, pour le
 nombre et l'exactitude de vos références, un prix de
@@ -739,13 +738,13 @@ Que répondrait-il? S'il aime le merveilleux, il
 sait bien que le merveilleux n'est pas dans les
 choses. Il sait aussi qu'il est dangereux de substituer aux mots du langage ordinaire des noms de
 créatures merveilleuses, car beaucoup d'âmes simples prennent ces fictions pour des réalités, et il
-n'est point scientifique de produire une telle ;
+n'est point scientifique de produire une telle;
 erreur. Aussi le Dictionnaire grec se dispose-t-il à
 faire des excuses à la Grammaire comparée de
 l'anglais et de l'allemand.
 
 Mais la Grammaire comparée de l'anglais et de
-l'allemand n'attend pas d'excuses ; sa pensée munie
+l'allemand n'attend pas d'excuses; sa pensée munie
 d'observations précises et pliée aux bonnes mé-
 thodes expérimentales, s'applique à l'examen du
 fait curieux, qui est l'admirable accord du vilain
@@ -754,10 +753,10 @@ petit arbre avec monsieur Matou. Et ce fait curieux
 . lui suggère une explication rationnelle.
 
 — L''attrait qu'exerce le vilain petit arbre sur
-monsieur Matou n'a rien de mystérieux. Les ancêtres lointains de monsieur Matou vivaient librement dans d'épaisses forêts ; ils faisaient partie de
-ces épaisses forêts ; ils se coulaïent et se vautraïent
-sous des végétaux enchevêtrés ; ils se frottaient le
-dos et le nez aux lianes, aux rameaux griffus, poilus ou feuillus qui tombaïent d'aplomb ou s'inclinaient vers le sol ; ils regardaient parfois vers la
+monsieur Matou n'a rien de mystérieux. Les ancêtres lointains de monsieur Matou vivaient librement dans d'épaisses forêts; ils faisaient partie de
+ces épaisses forêts; ils se coulaïent et se vautraïent
+sous des végétaux enchevêtrés; ils se frottaient le
+dos et le nez aux lianes, aux rameaux griffus, poilus ou feuillus qui tombaïent d'aplomb ou s'inclinaient vers le sol; ils regardaient parfois vers la
 cime des arbres, parmi l'inextricable réseau des
 branches, voler ou bondir des êtres aériens. Et ces
 ancêtres eurent des enfants. Et ces enfants eurent
@@ -766,11 +765,11 @@ des végétaux qu'il est nécessaire et facile de manger
 ou de respirer. Et il y eut des générations de messieurs Matous qui sortirent des forêts. Mais, pas plus
 que de manger ou de respirer, ils n'oublièrent de
 se couler ou de se vautrer sous les buissons et les
-arbustes qu'ils rencontrèrent de ci de là. Car les
+arbustes qu'ils rencontrèrent de de là. Car les
 mouvements coutumiers des ancêtres se reproduisent d'eux-mêmes chez les descendants, sans que
 la cause ou la raison subsiste pour laquelle ces
 mouvements furent jadis exécutés. Et il y eut des
-messieurs Matous qui vinrent dans les villes : là ils
+messieurs Matous qui vinrent dans les villes: ils
 aimèrent à frôler les fleurs des tout petits jardins
 
 qu'étouffent de hautes maisons, à se serrer contre
@@ -801,10 +800,10 @@ De tous ces individus, le plus intéressant, quant
 aux mœurs et quant aux souvenirs, c'est incontestablement l'étui à lunettes. C'est un fort vieil étui,
 contemporain des grosses besicles à monture d'argent, qui cachent dans sa gaine en cuir leur forme
 ancienne et vénérable. Il aime les choses et les
-usages d'autrefois ; il est hostile aux innovations;
+usages d'autrefois; il est hostile aux innovations;
 sa mémoire est un musée de figures honnêtes et
 
-C'est la nuit : les volets sont clos et les rideaux
+C'est la nuit: les volets sont clos et les rideaux
 tirés. Dehors, les branches d'acacia gémissent et
 
 la pluie tapote les gouttières. Dans la salle à manger, madame la Salamandre rougeoie, et de la lampe
@@ -815,7 +814,7 @@ lunettes, les journaux, et la Revue des Deux
 Monsieur Matou s'est fourré sous la petite table
 vêtue d'un vieux tapis de laine aux teintes feuille
 morte. On ne saurait l'apercevoir, attendu qu'il est
-caché par les pans verticaux du tapis ; mais comme
+caché par les pans verticaux du tapis; mais comme
 il se meut à tout moment, soit pour gratter son nez
 couleur d'anémone, soit pour mâchonner son beau
 gilet blanc, soit pour fouler ou frotter les lames du
@@ -843,36 +842,36 @@ faire choir dans les abîmes!
 des Deux Mondes, s'applique à faire le mal parce
 qu'il n'a nulle idée du bien, et il n'a nulle idée du
 bien parce qu'il n'a pas été nourri à la religion,
-étant fort peu probable qu'il ait jamais lu Bossuet
+étant fort peu probable qu'il ait jamais Bossuet
 ni les Pères de l'Église.
 
 — Ah! vous tous, si vous aviez connu monsieur
-Mouton ! soupire l'étui à lunettes.
+Mouton! soupire l'étui à lunettes.
 
-— Bien l'ai-je connu, dit la corbeille : c'était un
-chat des plus respectables et qui faisait honneur à ,
+— Bien l'ai-je connu, dit la corbeille: c'était un
+chat des plus respectables et qui faisait honneur à,
 la maison. Il n'était pas comme monsieur Maïou
 ridiculement orné d'üne grosse cravate en poils et
 d'un gros jabot également en poils, ce qui ne ressemble à rien et ce qui est impertinent dans nos
 pays. Monsieur Mouton portait un habit tout blanc,
 confortablement fourré, j'en conviens, mais sans
-houppes ni touffes superflues. Au rebours de monsieur Matou, c'était un personnage régulier, ponctuel et méthodique : chaque jour à la même heure
+houppes ni touffes superflues. Au rebours de monsieur Matou, c'était un personnage régulier, ponctuel et méthodique: chaque jour à la même heure
 il faisait sa toilette, à quoi il apportait un esprit de
 suite et une logique admirables.
 
 — Ta, ta, ta, ma chère, toussote l'étui à lunettes.
-Si l'on n'y mettait bon ordre, vous tiendriez le crachoir jusqu'à demain : or, vos commérages sont
+Si l'on n'y mettait bon ordre, vous tiendriez le crachoir jusqu'à demain: or, vos commérages sont
 
 parfaitement oiseux. Vous ne vîtes ni ne verrez
 jamais que le petit côté des choses, en sorte que vos
 discours n'évoquent d'ordinaire que des images
 
-- minuscules, insignifiantes et ratatinées. Or çà,
-écoutez-moi, vous tous. On était alors à la campagne : la maison était grande et entourée d'un
+- minuscules, insignifiantes et ratatinées. çà,
+écoutez-moi, vous tous. On était alors à la campagne: la maison était grande et entourée d'un
 grand jardin. Parmi les êtres du logis, — tous gens
 respectueux de l'ordre public, pratiquant la plupart des vertus privées et gouvernés par des habitudes anciennes, — il y avait monsieur Fox et monsieur Mouton. Monsieur Fox aboyait beaucoup, ce
-qui fait que je n'ai jamais eu pour lui une affection
-bien vive : je l'estimais, néanmoins, car il avait l'air
+qui fait que je n'ai jamais pour lui une affection
+bien vive: je l'estimais, néanmoins, car il avait l'air
 très comme il faut. Quant à monsieur Mouton, il
 fut, à n'en point douter, quelqu'un de considérable,
 tant par la bravoure, l'audace et le génie du vol,
@@ -884,11 +883,11 @@ se content l'hiver à ma clarté, dans les chambres
 closes, quand dehors les arbres gémissent et que la
 pluie tapote les gouttières.
 
-— Or çà, fait observer la Repue des Deux
+— çà, fait observer la Repue des Deux
 Mondes, ne dites-vous pas que ce monsieur Mouton
 avait le génie du vol? Comment croire après cela
 qu'il ait été respectueux de l'ordre public et qu'il
-ait pratiqué la plupart des vertus privées ?
+ait pratiqué la plupart des vertus privées?
 
 — Attendez, réplique un peu sèchement l'étui à
 lunettes, — car il n'aime pas les objections. Les vols
@@ -900,7 +899,7 @@ buffets, ayant exercé judicieusement ses pattes à en
 faire tourner la clef dans la serrure. Il usait aussi
 d'impayables ruses pour qu'on l'enfermât dans le
 garde-manger, et l'une d'elles consistait à suivre de
-L près et fort silencieusement la vieille Marie dans
+près et fort silencieusement la vieille Marie dans
 toutes ses allées et venues, dans tous ses tours et
 détours, prenant bien garde surtout de ne jamais
 passer devant elle, si bien qu'elle n'avait point soup-
@@ -936,8 +935,8 @@ casse une assiette.
 ronchonne la Repue des Deux Mondes.
 
 — Faut-il tout de même que le monde soit mé-
-chant pour dire des choses pareilles ! gémit la corbeille. Monsieur Mouton un bandit! Lui si bien
-élevé, si complaisant et si respectable ! Car vous
+chant pour dire des choses pareilles! gémit la corbeille. Monsieur Mouton un bandit! Lui si bien
+élevé, si complaisant et si respectable! Car vous
 
 - saurez, madame la pimbêche, — ceci, bien entendu,
 s'adresse à la Revue des Deux Mondes, — que monsieur Mouton, outre qu'il était fort soigneux de
@@ -957,13 +956,13 @@ mia, mia, d'une petite voix éteinte, à ceux qui lui
 posaient des questions.
 — C'est par de telles histoires, chante la lampe
 familiale, qu'on reproduit à ma clarté, dans les
-| chambres bien closes, les travaux et les artifices
+chambres bien closes, les travaux et les artifices
 des héros d'autrefois, qu'on fait revivre leur âme et
 leur figure, pour émouvoir, instruire et charmer
 les êtres d'à présent.
 — Les êtres d'a présent ne valent pas ceux
 d'autrefois, grince le vieil étui à lunettes. Quoi
-_ qu'en dise cette Revue acariâtre et mal polie, en
+qu'en dise cette Revue acariâtre et mal polie, en
 dépit de son âge avancé, monsieur Mouton fut
 quelqu'un de considérable, et je tiens pour acquis
 
@@ -975,20 +974,20 @@ y envisage, en particulier, la hardiesse et la finesse
 de l'exécution, d'autant que la tenue correcte et les
 sentiments conservateurs de monsieur Mouton
 étaient de salutaire exemple à tous ceux qui jouissaient de son commerce... Pauvre cher monsieur
-Mouton ! il est mort de vieillesse, à la cave, sur un
-tas de copeaux, et ce jour-là j'ai vu pleurer le petit
+Mouton! il est mort de vieillesse, à la cave, sur un
+tas de copeaux, et ce jour-là j'ai pleurer le petit
 garçon en tablier bleu, sur l'épaule duquel monsieur
 Mouton se juchait parfois pour méditer quelque
 projet de chasse en garenne ou quelque problème
 de philosophie spiritualiste.
 
-— Que pense de tout cela monsieur Matou ?
+— Que pense de tout cela monsieur Matou?
 demande la corbeille.
 
 Monsieur Matou est toujours sous la table, caché
 par les pans verticaux du vieux tapis de laine aux
 teintes feuille morte. Il n'aurait garde assurément
-de rien penser de tout cela : pendant qu'on racontait l'histoire de monsieur Mouton, monsieur Matou
+de rien penser de tout cela: pendant qu'on racontait l'histoire de monsieur Mouton, monsieur Matou
 s'est endormi d'un profond sommeil.
 
 J'ignore si la Grammaire comparée de l'anglais
@@ -996,12 +995,12 @@ et de l'allemand, personne exigeante et bourrue
 
 . qui explique tout d'une façon rationnelle, saurait
 nous dire pourquoi monsieur Matou a l'instinct de
-la propriété ; mais il est certain que monsieur
+la propriété; mais il est certain que monsieur
 Matou a l'instinct de la propriété. Cet instinct lui
 vient-il des messieurs Matous primitifs qui vivaient
 parmi la pénombre moite et chaude des forêts
-équatoriales ? Ou bien est-ce un instinct de formation récente, auquel peut-être ont travaillé les
-murs, gardiens renfrognés du jardin ?
+équatoriales? Ou bien est-ce un instinct de formation récente, auquel peut-être ont travaillé les
+murs, gardiens renfrognés du jardin?
 
 La fréquentation des murs est détestable, que
 leur faîte soit ou ne soit pas hérissé de tessons de
@@ -1031,7 +1030,7 @@ humaines, ainsi que toutes les morales divines et
 humaines, condamnent sévèrement les violations
 de domicile.
 
-Un qui a dû rire en oyant les murs parler ainsi,
+Un qui a rire en oyant les murs parler ainsi,
 c'est notre ami le jeune moineau — celui qui apprend
 des petites chansons légères à l'école des Moineaux, — car s'il entend le langage des murs, il a
 
@@ -1044,10 +1043,10 @@ le sable des allées, les petits vers onctueux et succulents, les petits insecte
 
 queter, et les bouts de mie de pain — nourriture
 honnête — et les graines menues — la santé au
-corps — : il n'y a propriétaire si jaloux de ses droits
+corps —: il n'y a propriétaire si jaloux de ses droits
 qui n'admette, bon gré mal gré, messieurs les moineaux à jouir de ses domaines.
 
-C'est ainsi qu'a dû penser notre ami le jeune
+C'est ainsi qu'a penser notre ami le jeune
 moineau,— qui apprend des petites chansons légères
 à l'école des Moïineaux, — et beaucoup d'autres gens
 ont pensé comme lui. Tous les oiseaux ont pensé
@@ -1060,13 +1059,13 @@ sur les pelouses, sur l'écorce des arbres, sur les
 pierres stériles, et la lumière, et la fraîcheur du
 matin et du soir, et la chaleur de midi — et tant
 
-Mais au gré de monsieur Matou ces gens-là font :
+Mais au gré de monsieur Matou ces gens-là font:
 partie du jardin. Ce ne sont pas des intrus, ce sont
 des camarades de jeu, des petits repas sur l'herbe,
 des doigts drôles qui caressent et qui picotent, de
 bons parfums, de douces tiédeurs, des surfaces
 moelleuses, des joujoux et des ustensiles délicats,
-tout un ensemble de choses ingénieusement disposées là pour faire naître des désirs et pour
+tout un ensemble de choses ingénieusement disposées pour faire naître des désirs et pour
 les satisfaire. — Et les chats du dehors, qu'en
 
 fait monsieur Matou? Cela dépend, comme vous
@@ -1092,16 +1091,16 @@ vêtements élégants et confortables. Ses pensées
 sont celles d'un chat qui se sent propriétaire, bien
 nourri, de bonne mine, vêtu de vêtements élégants
 et confortables, c'est-à-dire qu'il ne pense rien ou
-pas grand chose ; il regarde le chat du dehors
-comme un être qu'on aurait mis là pour amuser
+pas grand chose; il regarde le chat du dehors
+comme un être qu'on aurait mis pour amuser
 
-ses regards de propriétaire : oui, pour amuser ses
-regards. Les yeux sont comme les pattes : il faut que
+ses regards de propriétaire: oui, pour amuser ses
+regards. Les yeux sont comme les pattes: il faut que
 
 Le chat du dehors est un pauvre chat maigre qui
 ne porte ni fourrures, ni pantalons à la turque, mais
 une simple robe de poils ras. Ses destinées sont
-errantes ; il sait les êtres et les choses des toits, les
+errantes; il sait les êtres et les choses des toits, les
 tours et détours surprenants des voyages qu'on
 fait au monde des cheminées, des greniers et des
 mansardes, l'aspect redoutable des ramoneurs et
@@ -1117,7 +1116,7 @@ couché en forme de boule sur son mur ou sur son
 gazon, lève vers le chat du dehors un museau fixe
 et intéressé. Et monsieur Matou est tellement persuadé de ses droits exclusifs sur le jardin que l'idée
 
-* ne lui vient même pas que le chat du dehors puisse
+ne lui vient même pas que le chat du dehors puisse
 rêver d'y descendre. Et monsieur Matou continue
 paisiblement à charmer ses regards de ce museau
 qui pointe au bord d'un toit.
@@ -1126,7 +1125,7 @@ Devant ces regards persistants de monsieur Matou, propriétaire, le chat du deho
 
 son museau, et sa queue mince traînant dans la
 
-_ gouttière, ses os saillant sous sa simple robe de poils
+gouttière, ses saillant sous sa simple robe de poils
 ras, il s'éloigne lentement vers le monde si compliqué des cheminées, des greniers et des mansardes.
 
 C'est un chat du dehors qui respecte les droits
@@ -1134,11 +1133,11 @@ acquis, — réels ou imaginaires. Il serait dangereux
 de lui abandonner la conduite d'une expédition
 
 Je sais des chats du dehors qui sont plus entreprenants. J'en ai surtout connu jadis, — est-ce que
-décidément tout dégénère ? — quand nous habitions
+décidément tout dégénère? — quand nous habitions
 rue du Vieil-Abreuvoir. Alors monsieur Matou possédait, ou croyait posséder une longue cour ombragée de trois tilleuls. Il s'y livrait au divertissement barbare de la chasse, à la gymnastique, à la
 méditation et au sommeil.
 
-Il y avait non loin de là un quartier de cavalerie
+Il y avait non loin de un quartier de cavalerie
 et, tout à côté, les écuries d'un marchand de vins
 en gros. De ces antres redoutables émanaient des
 chats redoutables, personnages sans timidité ni
@@ -1167,7 +1166,7 @@ Et cela finissait toujours par des incivilités.
 Il y avait échange de gifles, des corps poilus roulés et boulés, des museaux éraillés, des déchirures
 d'oreilles. Maïs chaque bataille aboutissait à la victoire de monsieur Matou, lequel se sentait fort
 parce qu'il avait de son côté toutes les lois divines
-et humaines, ce qui est assurément un appoint con- |
+et humaines, ce qui est assurément un appoint con-
 
 Et le chat du dehors s'enfuyait éperdu vers le
 quartier de cavalerie ou vers les écuries du marchand de vins en gros.
@@ -1179,10 +1178,10 @@ domaine herbu et feuillu. N'étant plus menacé d'intrusions nouvelles, il s'ass
 se désintéresse des questions sociales. Quand il
 aperçoit, débordant une gouttière, le museau d'un
 chat du dehors, il s'imagine tout bonnement que ce
-museau est là pour amuser ses yeux de propriétaire;
-les yeux sont comme les pattes : il faut que ça joue.
+museau est pour amuser ses yeux de propriétaire;
+les yeux sont comme les pattes: il faut que joue.
 
-Les chats du dehors sont-ils plus timides qu'autrefois ? Je pense qu'en nos parages leur timidité
+Les chats du dehors sont-ils plus timides qu'autrefois? Je pense qu'en nos parages leur timidité
 vient de ce qu'ils ne hantent pas le quartier de cavalerie ou les écuries des marchands de vins en
 gros, lieux redoutables où l'on s'habitue à toutes
 sortes d'excès délictueux ou criminels.
@@ -1202,7 +1201,7 @@ et qui n'ignore rien des grandes hypothèses biologiques non plus que des bonnes
 
 Comment monsieur Matou n'aurait-il pas acquis
 des connaïissances utiles ou même superflues, lui
-qui a le goût et la patience d'observer ? Car vous
+qui a le goût et la patience d'observer? Car vous
 saurez que monsieur Matou est très observateur.
 Et ses observations portent également sur les
 
@@ -1219,7 +1218,7 @@ Tenez, le voici dans la salle à manger qui frotte
 son petit nez couleur d'anémone aux rideaux de la
 croisée. De temps en temps lui sort du gosier une
 voix courte, grêle et pitoyable. Cette croisée, il
-demande qu'elle s'ouvre, qu'au moins elle s'entrebâille ; et comme elle tarde à s'ouvrir, tout au moins
+demande qu'elle s'ouvre, qu'au moins elle s'entrebâille; et comme elle tarde à s'ouvrir, tout au moins
 à s'entrebâiller, la voix de monsieur Matou se fait
 plus courte, plus grêle, plus pitoyable. Monsieur
 Matou sait attendrir nos cœurs endurcis.
@@ -1227,22 +1226,22 @@ Matou sait attendrir nos cœurs endurcis.
 sur la tête de monsieur Matou, et la croisée s'entrebâille, et monsieur Matou se coule dehors, d'abord
 sur l'appui de la fenêtre, ensuite sur le toit de la
 petite serre adossée à la maison. A qui appartiennent les deux mains bienfaisantes qui sont
-intervenues ? C'est une question que monsieur
+intervenues? C'est une question que monsieur
 Matou ne se pose pas. Il lui paraît tout simple que
 la ferveur de sa détresse et l'humble douceur de ses
 
-plaintes réitérées aient eu raison d'une fenêtre
+plaintes réitérées aient raison d'une fenêtre
 
 Maintenant, il siège gravement sur le mur, le mur
 à l'âme égoïste et glacée qui ne parle que du mien
 et du tien. Il surgit du bourrelet circulaire de poils
 que forme autour de lui le panache de sa queue.
 Son nez couleur d'anémone s'abaisse vers la rue
-tranquille ; sa nuque fait une grosse pelote fourrée.
+tranquille; sa nuque fait une grosse pelote fourrée.
 
 La rue est bien tranquille en effet, bordée de
 vieilles maisons à deux étages et de murs par dessus
-lesquels se penchent ou s'étirent des rameaux ; c'est
+lesquels se penchent ou s'étirent des rameaux; c'est
 une rue grossièrement pavée de blocs informes,
 guère bruyante et guère passante.
 
@@ -1260,7 +1259,7 @@ Matou ne remarque pas précisément Les choses que
 remarqueraient vous, moi et la Grammaire comparée, faut-il en conclure qu'il est incapable
 d'acquérir des connaissances utiles ou même
 
-— Que fait monsieur Matou ? chuchotent les
+— Que fait monsieur Matou? chuchotent les
 
 Vous savez comme les feuilles aiment à chuchoter.
 
@@ -1286,9 +1285,9 @@ du dehors.
 
 Mais comment les brins d'herbe et les petites
 plantes du jardin comprendraient-ils ce que cela
-veut dire ? Pour les petites plantes et pour les brins
+veut dire? Pour les petites plantes et pour les brins
 
-d'herbe, le monde ne va pas plus loin que le mur à
+d'herbe, le monde ne pas plus loin que le mur à
 l'âme égoïste et glacée.
 
 Pourtant notre ami le jeune moineau a raison. Il
@@ -1302,7 +1301,7 @@ redoutables, en chiens qui aboïent et en véhicules
 qui écrasent. Il s'y rencontre aussi nombre de soupiraux entr'ouverts sur des caves où il est bien
 chanceux de s'engoufirer, car beaucoup s'y aventurèrent qui jamais plus n'en sortirent. Monsieur
 Matou sait tout cela, confusément peut-être, mais
-il le sait : et vous voyez bien qu'il ne faut pas
+il le sait: et vous voyez bien qu'il ne faut pas
 l'accuser d'ignorance et de barbarie.
 
 Monsieur Matou sait tout cela parce qu'il a fait
@@ -1355,14 +1354,14 @@ murmurait, chantait ou miaulait de l'autre côté des
 
 Monsieur Matou commença par de courtes expé-
 ditions. Ils'en fut chez le marchand de vins en gros,
-vers les écuries, les caves et le grenier à foin. Là
+vers les écuries, les caves et le grenier à foin.
 vivaient des chats qui, je pense vous l'avoir déjà
 dit, n'avaient ni l'élégance du costume, ni la politesse des mœurs. Parmi eux sévissait même un certain chat jaune de fort mauvaise mine, et selon
 moi, ce chat jaune était capable de tout, hors le
 bien.
 
 Les plantes dans les pots de terre et les orangers
-dans leurs caisses conçurent des inquiétudes vives. |
+dans leurs caisses conçurent des inquiétudes vives.
 Leurs âmes végétales sont tellement faites à la vie
 contemplative et sédentaire qu'elles ne saisissent
 pas du tout la nécessité des déplacements.
@@ -1382,21 +1381,21 @@ connut l'humeur intolérante et malfaisante des
 autres chats, et qu'il convient d'en affronter bravement ou d'en esquiver adroitement les effets. Et ce
 fut le commencement de sa prudence.
 
-Fut-il jamais au quartier de cavalerie ? J'en
+Fut-il jamais au quartier de cavalerie? J'en
 doute fort, bien que nul document ou témoignage
 ne m'autorise à affirmer qu'il n'y fut jamais. J'en
 doute parce que monsieur Matou déteste les façons
 brutales et les voix injurieuses. Bien qu'il ait parfois guerroyé contre les chats du dehors, il n'a pas
 l'esprit militaire.
 
-— Vous saurez aussi qu'au quartier, il y a beaucoup de rats; or monsieur Matou craint les rats. Je
+— Vous saurez aussi qu'au quartier, il y a beaucoup de rats; monsieur Matou craint les rats. Je
 crois même qu'il a peur des souris.
 
 Je ne sais plus quand se fit le premier grand
 voyage de monsieur Matou. L'importance de ce
 voyage m'apparaît surtout à présent que bien
 d'autres faits sont intervenus et que mes souvenirs
-ont pâli. Tant d'actes se jouent et tant de visions |
+ont pâli. Tant d'actes se jouent et tant de visions
 se dressent entre mon désir de narrer le premier
 voyage de monsieur Matou et la réalité lointaine
 
@@ -1405,8 +1404,8 @@ de ce voyage, que j'ai grand peine à rétrograder
 Pourquoi n'ai-je pas, au temps même où monsieur
 Matou disparut, fut absent, puis revint, noté au
 moyen de signes écrits les sentiments des gens et
-les impressions des choses? Il faut bien l'avouer :
-je n'avais pas su prévoir les hautes destinées de
+les impressions des choses? Il faut bien l'avouer:
+je n'avais pas prévoir les hautes destinées de
 monsieur Matou, ni qu'un jour son utilité sociale
 s'affirmerait tout aussi impérieusement que celle de
 certains prélats, gens de guerre et personnages
@@ -1414,7 +1413,7 @@ politiques. Et voilà pourquoi je négligeai de noter
 au moyen de signes écrits ce qu'éprouvèrent les
 êtres et les choses lors de ce premier grand voyage.
 Les principaux événements de l'histoire grossissent
-à la longue, à mesure que s'en imposent les effets :
+à la longue, à mesure que s'en imposent les effets:
 il est rare que, sur le moment, on en mesure exactement la portée.
 
 Ma mémoire, encore que trouble et vacillante à
@@ -1435,7 +1434,7 @@ l'indulgence. Au dessert, on s'attendrissait. Au
 café, on analysait avec intelligence et sympathie
 les curiosités inquiètes de la jeunesse.
 
-Que ne puis-je vous conter par le menu les fortunes diverses de ce voyage ? Hélas ! je n'ai pas
+Que ne puis-je vous conter par le menu les fortunes diverses de ce voyage? Hélas! je n'ai pas
 suivi monsieur Matou sur les murs et sur les toits,
 au monde si compliqué des cheminées, des greniers
 et des mansardes, ni dans les ruelles sombres où
@@ -1453,11 +1452,11 @@ cour commentaient cette absence. Les orangers, qui
 ont des sentiments délicats, estimèrent préférable
 que monsieur Matou ne revint pas.
 
-| — Car s'il revenait, disaient-ils, monsieur Matou
+— Car s'il revenait, disaient-ils, monsieur Matou
 introduirait dans cette honorable cour et dans cet
 
 honorable logis la mauvaise tenue, les mauvaises
-_ manières et le mauvais esprit des chats du dehors.
+manières et le mauvais esprit des chats du dehors.
 
 Les orangers en tiennent pour le decorum, pour
 les façons exquises et pour la morale des gens bien
@@ -1466,22 +1465,22 @@ aux chats du dehors.
 
 Dans leurs pots de terre, les géraniums, personnages simples et routiniers, tout contre lesquels
 monsieur Matou avait coutume de faire la sieste, ne
-se hasardaient pas à répondre aux orangers : car
+se hasardaient pas à répondre aux orangers: car
 l'oranger a des principes sociaux tandis que le
 géranium n'en a pas, ce qui rend celui-ci incapable
 de discuter contre celui-là. Mais ils murmuraient
 imperceptiblement, les bons géraniums, du bout de
-leurs feuilles dentelées et nuancées :
+leurs feuilles dentelées et nuancées:
 
 — Eh! que monsieur Matou introduise ici tout ce
 qu'il voudra, pourvu qu'il revienne ici nous tenir
 
 Car ces bons géraniums, comme tant de citoyens
 
-Cependant, Louis allait de porte en porte interroger les voisins. N'avaient-ils pas vu monsieur
+Cependant, Louis allait de porte en porte interroger les voisins. N'avaient-ils pas monsieur
 Matou? Et à ceux qui ne connaissaient pas monsieur
 Matou, Louis fournissait le signalement du voyageur. Mais ces démarches n'aboutirent à rien. Louis
-ne nous rapporta que les condoléances de trois voisines éminemment respectables : la femme du mar-
+ne nous rapporta que les condoléances de trois voisines éminemment respectables: la femme du mar-
 
 chand de vins en gros, la blanchisseuse borgne et la
 sage-femme. Car ces trois dames aïmaient les animaux.
@@ -1503,7 +1502,7 @@ nous donnaient à réfléchir sur les conséquences des
 
 Pourtant, de même qu'Odysseus, après avoir erré
 dix ans de mer en mer et d'île en île, revit enfin
-Ithaque sa patrie, sa femme Pénélope et ses trou- |
+Ithaque sa patrie, sa femme Pénélope et ses trou-
 peaux de cochons, ainsi monsieur Matou, après dix
 jours et plus d'un voyage mystérieux, revit sa
 famille, sa cuisine, sa cour et ses géraniums.
@@ -1512,7 +1511,7 @@ Un sauveur se présenta.— Était-ce un garçon bou-
 
 langer ou un garçon marchand de vins? A quelle
 corporation appartenait ce personnage oflicieux et
-sympathique ? Hélas! beaucoup de circonstances
+sympathique? Hélas! beaucoup de circonstances
 remarquables tombent dans l'oubli, — et l'histoire
 est pleine de héros obscurs.
 
@@ -1521,7 +1520,7 @@ voisine. Il oyait depuis des heures et des heures un
 chat miauler de façon lamentable sur le toit de
 cette maison. Il vint querir Louis. Louis parvint au
 
-_ dit toit et nous en rapporta un chat effroyablement
+dit toit et nous en rapporta un chat effroyablement
 maigre et effroyablement noir qui, introduit dans
 la cuisine, commença à se frotter joyeusement aux
 jambes de la table, aux jupes de Noémi, aux torchons et à l'essuie-mains, tout en ronronnant avec
@@ -1542,7 +1541,7 @@ bien comme il faut.
 
 — Eh! venez donc, monsieur Matou, dirent les
 bons géraniums; venez vous mettre sous nos feuilles.
-Pourquoi donc nous aviez-vous quittés ?
+Pourquoi donc nous aviez-vous quittés?
 Ils parlèrent ainsi parce que leurs âmes végétales
 sont tellement faites à la vie contemplative et
 sédentaire qu'elles ne saisissent pas du tout la
@@ -1557,10 +1556,10 @@ ouverte: car l'air s'est fait rare et pesant. Sur la
 tablette que vous savez, monsieur Matou s'est installé à la manière d'un phoque. Les fines gouttelettes aspergent ses oreilles pointues, sa robe de
 fourrures, son museau couleur d'anémone. Mais
 monsieur Matou n'est pas de ces chats qui craignent
-l'eau : tout au contraire, monsieur Matou est un chat
+l'eau: tout au contraire, monsieur Matou est un chat
 
-Je voulais vous dire ses deux derniers voyages :
-mais le récit vous en serait monotone. Pour le premier voyage, je n'ai pu que hasarder timidement
+Je voulais vous dire ses deux derniers voyages:
+mais le récit vous en serait monotone. Pour le premier voyage, je n'ai que hasarder timidement
 quelques conjectures et relater ce qui se passa chez
 nous entre le départ et le retour du voyageur. Pour
 les deux derniers, je ne saurais procéder différemment, puisque, pas plus la seconde et la troisième
@@ -1573,19 +1572,19 @@ et menue, tombe et que monsieur Matou s'en réjouit,
 de dire en quoi monsieur Matou s'est révélé chat
 
 Monsieur Matou naquit au Pecq, au bord de la
-Seine, fleuve paisible et sinueux. Du père de monsieur Matou, je n'ai rien su ni ne saurai jamais rien.
+Seine, fleuve paisible et sinueux. Du père de monsieur Matou, je n'ai rien ni ne saurai jamais rien.
 Mais on m'a dit que la mère de monsieur Matou,
 déesse féconde et nourricière, avait accoutumé de
 descendre le long des berges et de happer, au risque
 de mouiller son museau moustachu et d'envaser ses
 
-_ pattes griffues, les petits poissons qui s'attroupent
+pattes griffues, les petits poissons qui s'attroupent
 et jouent presque à fleur d'eau. Ne nous étonnons
 donc pas que cette chatte fluviale ait donné le jour
 à un chat aquatique.
 
 Monsieur Matou tient d'ancêtres lointains le goût
-des caresses végétales ; il tient de sa mère chatte,
+des caresses végétales; il tient de sa mère chatte,
 déesse féconde et nourricière, une prédilection
 singulière pour les bains de pieds et de museau,
 pour le poisson cru, pour les attouchements de
@@ -1616,7 +1615,7 @@ caressait de sa petite langue rose qui gratte en
 léchant, la surface du contenu liquide et incolore.
 Mais alors, c'était dans l'ancienne maison: un
 porteur montait l'eau de la cour au second étage. A
-présent, dans le nouveau logis, l'eau vient d'ellemême là où il est bon qu'elle vienne, de sorte que
+présent, dans le nouveau logis, l'eau vient d'ellemême où il est bon qu'elle vienne, de sorte que
 les seaux ne servent plus guère. C'est pourquoi
 
 monsieur Matou a reporté ses affections de chat
@@ -1624,8 +1623,8 @@ aquatique des seaux à la fontaine de grès, personne
 d'âge, qui occupe un coin de la cuisine.
 
 Aux beaux jours, il la vient trouver, s'installe sur
-son couvercle : là il trône et préside aux agissements
-culinaires. Et cependant, la fraicheur du grès l'imprègne d'agréables sensations ; le chant des eaux qui
+son couvercle: il trône et préside aux agissements
+culinaires. Et cependant, la fraicheur du grès l'imprègne d'agréables sensations; le chant des eaux qui
 coulent du robinet dans les carafes plaît à son âme
 
 Monsieur Matou aime à varier les circonstances
@@ -1641,7 +1640,7 @@ chassait à courre. Il bondissait sur une chaise, de
 cette chaise sur une petite table, et de cette petite
 table sur la tablette qui saillit en bas de ma fenêtre.
 
-Là monsieur Matou cherchait une position confortable et remarquable. IL ne la trouvait pas tout de
+monsieur Matou cherchait une position confortable et remarquable. IL ne la trouvait pas tout de
 suite. Pour se reposer de la fatigue que l'on gagne
 à chercher une position confortable et remarquable,
 il s'installait sur son derrière et me regardait me
@@ -1660,25 +1659,25 @@ qu'il passerait ses nuits ailleurs. Il nous laisse, nous
 autres, à la routine de nos habitudes, et il suit ses
 petits caprices, que gouvernent de petites causes
 Donc après avoir gravi l'escalier en galopant,
-t comme s'il chassait à courre, au lieu de s'élancer
+comme s'il chassait à courre, au lieu de s'élancer
 dans ma chambre, monsieur Matou s'élança dans la
 pièce où je travaille, domicile ordinaire de la
 Grammaire comparée de l'anglais et de l'allemand
 et de son collègue le gros Dictionnaire grec. 11 y
 coucha plusieurs nuits de suite, d'abord sur la
-tablette de la fenêtre, puis sur le fauteuil de cuir, |
+tablette de la fenêtre, puis sur le fauteuil de cuir,
 puis sur la table parmi mes paperasses, malgré les
 protestations de la Grammaire comparée qui n'aime
 ni les poils ni les puces.
 Mais advint un jour que ce gîte nocturne cessa
 d'être le gîte idéal. L'idéal de monsieur Matou est
-mobile : il subit des crises perpétuelles. Monsieur
-Matou ne connaît pas la quiétude des âmes banales. |
+mobile: il subit des crises perpétuelles. Monsieur
+Matou ne connaît pas la quiétude des âmes banales.
 Subitement, monsieur Matou fit cette découverte
 admirable que rien n'était plus pittoresque, ni plus
 sûr, ni plus doux que de se vautrer sur le palier du
 premier étage, dans l'embrasure d'une porte close.
-nuits sur le palier du premier étage dans l'embra- |
+nuits sur le palier du premier étage dans l'embra-
 sure de la porte close. En vain le marbre froid de
 
 la console lui offrait l'hospitalité. Monsieur Matou
@@ -1687,19 +1686,19 @@ console que les nuits fussent un peu moins chaudes.
 prouver à lui-même l'indépendance de son moi.
 
 Je prétends que si monsieur Matou avait ses
-entrées au salon, c'est là qu'il établirait son gîte
+entrées au salon, c'est qu'il établirait son gîte
 nocturne de façon presque définitive. Dans ce salon,
 à droite de la fenêtre, il y a une porte sur laquelle
-tombe une imposante portière en peluche rouge. |
-Or coucher entre la porte et l'imposante portière en
+tombe une imposante portière en peluche rouge.
+coucher entre la porte et l'imposante portière en
 peluche rouge, c'est un plaisir qui ne peut laisser
 dans une mémoire de chat que des souvenirs
 voluptueux et durables. Entre la porte et l'imposante
 portière en peluche rouge, il fait tiède comme en
-un nid de feuillages veloutés dans une forêt des $
-tropiques ; on y est loin des ennemis à deux et à
+un nid de feuillages veloutés dans une forêt des
+tropiques; on y est loin des ennemis à deux et à
 quatre pattes comme au creux d'un arbre ou au trou
-d'un rocher ; il y fait silencieux comme au désert.
+d'un rocher; il y fait silencieux comme au désert.
 Monsieur Matou ne connaît ni les forêts chaudes,
 ni les rochers, ni les déserts, et il n'a pas d'ennemis
 dangereux. Mais la sagesse des ancêtres parle
@@ -1711,7 +1710,7 @@ armoires entrebäillées et dans les tables à ouvrage.
 Quand une malle est ouverte sur le palier,
 monsieur Matou couche dans la malle.
 
-Je me rappelle ce propos d'une petite fille :
+Je me rappelle ce propos d'une petite fille:
 
 — Monsieur Matou ne rit jamais.
 
@@ -1730,25 +1729,25 @@ fonctions de chat. Quand je suis là, nous jouons
 . ensemble au pied de bœuf.
 
 Monsieur Matou a beau jouer, jamais il ne rit.
-Est-ce qu'on joue pour rire ? On joue pour attraper
+Est-ce qu'on joue pour rire? On joue pour attraper
 les choses qui remuent, et pour les sentir domptées
 sous ses griffes, toutes prêtes à être mordues.
 
 Quand les choses ne remuent pas, on peut les
 pousser avec sa patte pour les rendre mobiles.
 
-Rien de tout cela n'est drôle. :
+Rien de tout cela n'est drôle.:
 
 Monsieur Matou ne connaît pas les inconvénients
 du langage verbal. Nommer un sentiment n'est pas
-expressif : Le mot qu'on fait sonner en l'articulant
+expressif: Le mot qu'on fait sonner en l'articulant
 éveille chez autrui des sensations étrangères à nos
 sensations et des images lointaines de nos images.
 
 Crier un sentiment est expressif. C'est le procédé
 ordinaire de monsieur Matou. Ses cris sont une
 manière d'être de ses sentiments. Ils nous suggèrent
-des sentiments pareils : sur quoi nos désirs s'accordent aux désirs de monsieur Matou, nos volontés à
+des sentiments pareils: sur quoi nos désirs s'accordent aux désirs de monsieur Matou, nos volontés à
 ses volontés.
 
 Il n'est qu'une âme d'airain pour ne pas s'émouvoir quand il gémit son besoin d'air et de promenade.
@@ -1767,8 +1766,8 @@ recherche, méditées et exécutées pour l'amusement
 et l'ébahissement des spectateurs.
 
 On fait cercle autour de monsieur Matou. Onrit.
-On dit : ce chat est un poseur, ou bien : il n'est
-vraiment pas ordinaire, ou bien : monsieur Matou,
+On dit: ce chat est un poseur, ou bien: il n'est
+vraiment pas ordinaire, ou bien: monsieur Matou,
 vous êtes tout bonnement grotesque.
 
 Monsieur Matou ne parait ni se réjouir ni
@@ -1786,14 +1785,14 @@ La gravité lui est coutumière. L'attention s'impose devant l'inconnu.
 Il ne les regarde pas avec étonnement. Chez
 monsieur Matou les étonnements ne se distinguent
 pas des frayeurs, et n'appellent point la méditation,
-mais la fuite. Or ici, il n'y a point matière à
+mais la fuite. ici, il n'y a point matière à
 frayeur. Ces gens qui montent au premier étage ou
 qui en descendent, monsieur Matou ne les craint
 pas, puisqu'il est plus haut qu'eux dans l'escalier.
 Jadis vivait chez nous mademoiselle Fédora, dite
-Petit Loup, chienne griffonne de menue taille qui |
-ayant ioujours été rageuse, criarde et vindicative, |
-devint en sus obèse et sourde avant l'âge, par l'effet |
+Petit Loup, chienne griffonne de menue taille qui
+ayant ioujours été rageuse, criarde et vindicative,
+devint en sus obèse et sourde avant l'âge, par l'effet
 Monsieur Matou et mademoiselle Petit Loup se
 
 souffraient l'un l'autre. Après quelques rares conflits où mademoiselle Petit Loup eut tous les torts,
@@ -1815,9 +1814,9 @@ les roulait et les boulait dans la cour. Pacifique à
 son ordinaire, il se muait contre eux en guerrier
 pour la seule raison qu'ils n'étaient pas de chez
 nous. Et ceci m'a rappelé souvent une pensée de
-Pascal qu'il est excellent de savoir par cœur :
+Pascal qu'il est excellent de savoir par cœur:
 
-Pourquoi me tuez-vous ?— Eh quoi! ne demeur'ezvous pas de l'autre côté de l'eau ? Mon ami, si vous
+Pourquoi me tuez-vous Eh quoi! ne demeur'ezvous pas de l'autre côté de l'eau? Mon ami, si vous
 demeuriez de ce côté, je serais un assassin, cela
 serait injuste de vous tuer de la sorte; mais, puisque
 vous demeurez de l'autre côté, je suis un brave, et
@@ -1825,14 +1824,14 @@ cela est juste.
 
 Nous mangeons. Monsieur Matou s'approche de
 moi et s'érigeant sur ses pattes de derrière, il emploie celles de devant à me gratter le bras ou la
-cuisse : c'est une façon d'exprimer qu'il aime le
+cuisse: c'est une façon d'exprimer qu'il aime le
 gigot. Ce mode d'expression est généralement
 désastreux pour les pantalons et pour les manches.
 
 Un petit ronflement affectueux et complimenteur
 accompagne ces gestes expressifs.
 
-Inutile de repousser monsieur Matou : il reviendra tout de suite avec une ardeur nouvelle à gratter
+Inutile de repousser monsieur Matou: il reviendra tout de suite avec une ardeur nouvelle à gratter
 et à ronfler. Le plus sage est de lui abandonner une
 bouchée de gigot.
 
@@ -1853,7 +1852,7 @@ amène dans le jardin que monsieur Matou considère comme sa propriété des dam
 
 . claires, des messieurs bruns très moustachus, des
 enfants qui font des courses sans but et des gestes
-inutiles. Le croquet ne va pas sans boules de bois
+inutiles. Le croquet ne pas sans boules de bois
 qui filent dans les allées ni sans le bruit sec des
 maillets heurtant les boules de bois.
 
@@ -1876,7 +1875,7 @@ un rôle fort important. Dès neuf heures, monsieur
 Maiou se poste auprès du panier vide. La présence
 de monsieur Matou rappelle au dit panier que l'heure
 
-Le panier s'en va au marché. Monsieur Matou
+Le panier s'en au marché. Monsieur Matou
 
 attend son retour. Pendant une bonne heure, monsieur Matou, assis et tassé en boule sur une chaise
 de l'antichambre, attend avec impatience et gravité.
@@ -1900,7 +1899,7 @@ sensible à tant de politesses, s'entrebâille et laisse
 voir son contenu.
 
 Il y a bien une personne qui porte le panier. Mais
-qu'est-ce que cela peut faire à monsieur Matou ? Il
+qu'est-ce que cela peut faire à monsieur Matou? Il
 est évident — n'est-ce pas? — que c'est le panier
 qui gouverne la personne et non la personne qui
 gouverne le panier.
@@ -1922,14 +1921,14 @@ des Mark Twain et des Artemus Ward, ne vous eût
 point honoré de la sorte. Elle ne vous eût point, de
 sa façon imprévue, singulière, gravement comique,
 inscrit sur les registres de l'humaine cité, qui n'est
-pas encore, hélas ! la cité harmonieuse de nos désirs,
+pas encore, hélas! la cité harmonieuse de nos désirs,
 celle dont tous les vivants seront les citoyens.
 
-Or vous étiez un chat remarquable à plusieurs
+vous étiez un chat remarquable à plusieurs
 égards. Bien que d'humeur toujours indépendante
 
 et fantasque, vous considériez d'un œil indulgent
-la conduite des actions humaines. Vous assistiez |
+la conduite des actions humaines. Vous assistiez
 attentivement à la pratique de nos usages, au travail
 de nos habitudes. Votre curiosité courtoise et gentille nous flattait. Et bien que gentillesse et courtoisie soient d'ordinaire vertus acquises chezun chat
 qu'on traite avec civilité, nous nous plaisions à
@@ -1981,7 +1980,7 @@ grec et autres objets aient des opinions et tiennent
 des discours. C'est qu'il n'y eut entre vous et eux ni
 commerce réfléchi ni échange de bons oflices. Moi
 qui les connais depuis longtemps, qui les ai maniés,
-palpés, consultés, examinés, ou qui les ai vu
+palpés, consultés, examinés, ou qui les ai
 manier, palper, consulter et examiner, je sais ce
 qu'ils penseraient, voudraient et diraient, si la
 
@@ -1990,7 +1989,7 @@ la conscience leur était venue. Je l'ai fait sans pré-
 méditation, sans étude, sans effort, comme si de
 longue date je connaissais leur langage.
 
-Que voulez-vous ? Là où s'est dépensé l'effort de
+Que voulez-vous? où s'est dépensé l'effort de
 l'homme pour serviret pour plaire, onretrouve, pour
 peu qu'on sache voir et réfléchir, de la pensée et de
 la vie. Les choses, comme les animaux, attendent les

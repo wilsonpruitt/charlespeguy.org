@@ -14,7 +14,7 @@ ocrSource: "fr.wikisource.org — Œuvres complètes, Tome 6 (NRF 1919), 2026-05
 
 *cahier pour le dimanche des Rameaux*
 
-*et pour le dimanche de Pâques de la treizième série ;*
+*et pour le dimanche de Pâques de la treizième série
 
 *pour le quatre cent quatre-vingt-troisième anniversaire*
 
@@ -80,7 +80,7 @@ La Foi est une église, c’est une cathédrale enracinée au sol de France.
 
 La Charité est un hôpital, un hôtel-Dieu qui ramasse toutes les misères du monde.
 
-Mais sans l’espérance, tout ça ne serait qu’un cimetière.
+Mais sans l’espérance, tout ne serait qu’un cimetière.
 
 Je suis, dit Dieu, le Seigneur des Vertus.
 
@@ -144,23 +144,23 @@ Et pourtant c’est de lui que tout vient au contraire. Sans un bourgeon qui est
 
 Il faut que toute place soit tenue. Toute vie vient de tendresse. Toute vie vient de ce tendre, de ce fin bourgeon d’avril, et de cette sève qui pleure en mai, et de la ouate et du coton de ce fin bourgeon blanc qui est vêtu, qui est chaudement, qui est tendrement protégé d’un flocon d’une toison d’une laine végétale, d’une laine d’arbre. En ce flocon cotonneux est le secret de toute vie. La rude écorce a l’air d’une cuirasse, en comparaison de ce tendre bourgeon. Mais la rude écorce n’est rien, que du bourgeon durci, que du bourgeon vieilli. Et c’est pour cela que le tendre bourgeon perce toujours, jaillit toujours dessous la dure écorce.
 
-L’homme de guerre le plus dur a été un tendre enfant nourri de lait ; et le plus rude martyr, le martyr le plus dur sur le chevalet, le martyr à la plus rude écorce, à la plus rugueuse peau, le martyr le plus dur à la serre et à l’onglet a été un tendre enfant laiteux.
+L’homme de guerre le plus dur a été un tendre enfant nourri de lait; et le plus rude martyr, le martyr le plus dur sur le chevalet, le martyr à la plus rude écorce, à la plus rugueuse peau, le martyr le plus dur à la serre et à l’onglet a été un tendre enfant laiteux.
 
 Sans ce bourgeon, qui n’a l’air de rien, qui ne semble rien, tout cela ne serait que du bois mort.
 
 Et le bois mort sera jeté au feu.
 
-Ce qui vous trompe, c’est que cette rude écorce vous écorche les mains ; et ni de l’épaule vous ne faites bouger le tronc d’un millième de millimètre, ni du pied vous ne pouvez faire bouger une de ces grosses racines d’un millième de millimètre ; ni de la main une seule de ces grosses branches ; et c’est à peine si vous ébranleriez quelques-unes de ces petites branches ; et si vous les feriez balancer ;
+Ce qui vous trompe, c’est que cette rude écorce vous écorche les mains; et ni de l’épaule vous ne faites bouger le tronc d’un millième de millimètre, ni du pied vous ne pouvez faire bouger une de ces grosses racines d’un millième de millimètre; ni de la main une seule de ces grosses branches; et c’est à peine si vous ébranleriez quelques-unes de ces petites branches; et si vous les feriez balancer;
 
-au lieu que le bourgeon ne résiste point sous le doigt et d’un coup d’ongle le premier venu vous fait sauter un bourgeon ;
+au lieu que le bourgeon ne résiste point sous le doigt et d’un coup d’ongle le premier venu vous fait sauter un bourgeon;
 
-qui développé vous ferait une branche plus grosse que la cuisse ;
+qui développé vous ferait une branche plus grosse que la cuisse;
 
-Car il est plus facile, dit Dieu, de ruiner que de fonder ;
+Car il est plus facile, dit Dieu, de ruiner que de fonder;
 
-Et de faire mourir que de faire naître ;
+Et de faire mourir que de faire naître;
 
-Et de donner la mort que de donner la vie ;
+Et de donner la mort que de donner la vie;
 
 Et le bourgeon ne résiste point. C’est qu’aussi il n’est point fait pour la résistance, il n’est point chargé de résister.
 
@@ -174,27 +174,27 @@ Mais le tendre bourgeon n’est fait que pour la naissance et il n’est chargé
 
 (Et de se faire aimer).
 
-Or je vous le dis, dit Dieu, sans ce bourgeonnement de fin avril, sans ces milliers, sans cet unique petit bourgeonnement de l’espérance, qu’évidemment tout le monde peut casser, sans ce tendre bourgeon cotonneux, que le premier venu peut faire sauter de l’ongle, toute ma création ne serait que du bois mort.
+je vous le dis, dit Dieu, sans ce bourgeonnement de fin avril, sans ces milliers, sans cet unique petit bourgeonnement de l’espérance, qu’évidemment tout le monde peut casser, sans ce tendre bourgeon cotonneux, que le premier venu peut faire sauter de l’ongle, toute ma création ne serait que du bois mort.
 
 Et le bois mort sera jeté au feu.
 
 Et toute ma création ne serait qu’un immense cimetière.
 
-Or mon fils le leur a dit : *Il faut laisser les morts ensevelir leurs morts.*
+mon fils le leur a dit: *Il faut laisser les morts ensevelir leurs morts.*
 
-Hélas mon fils, hélas mon fils, hélas mon fils ;
+Hélas mon fils, hélas mon fils, hélas mon fils;
 
-Mon fils qui sur la croix avait une peau sèche comme une sèche écorce ;
+Mon fils qui sur la croix avait une peau sèche comme une sèche écorce;
 
-une peau flétrie, une peau ridée, une peau tannée ;
+une peau flétrie, une peau ridée, une peau tannée;
 
-une peau qui se fendait sous les clous ;
+une peau qui se fendait sous les clous;
 
-mon fils avait été un tendre enfant laiteux ;
+mon fils avait été un tendre enfant laiteux;
 
-une enfance, un bourgeonnement, une promesse, un engagement ;
+une enfance, un bourgeonnement, une promesse, un engagement;
 
-un essai ; une origine ; un commencement de rédempteur ;
+un essai; une origine; un commencement de rédempteur;
 
 une espérance de salut, une espérance de rédemption
 
@@ -244,23 +244,23 @@ Et ce cœur ne battait plus, qui avait tant battu d’amour.
 
 Trois ou quatre femmes qui pleuraient tout debout. Des hommes je ne me rappelle pas, je crois qu’il n’y en avait plus.
 
-Ils avaient peut-être trouvé que ça montait trop. Tout était fini. Tout était consommé. C’était fini.
+Ils avaient peut-être trouvé que montait trop. Tout était fini. Tout était consommé. C’était fini.
 
-Et les soldats s’en retournaient, et dans leurs épaules rondes ils emportaient la force romaine :
+Et les soldats s’en retournaient, et dans leurs épaules rondes ils emportaient la force romaine:
 
 C’est alors, ô Nuit, que tu vins. Ô nuit la même.
 
 La même qui viens tous les soirs et qui étais venue tant de fois depuis les ténèbres premières.
 
-La même qui étais venue sur l’autel fumant d’Abel et sur le cadavre d’Abel, sur ce corps déchiré, sur le premier assassinat du monde ;
+La même qui étais venue sur l’autel fumant d’Abel et sur le cadavre d’Abel, sur ce corps déchiré, sur le premier assassinat du monde;
 
 ô nuit la même tu vins sur le corps lacéré, sur le premier, sur le plus grand assassinat du monde. C’est alors, ô nuit, que tu vins.
 
-La même qui étais venue sur tant de crimes depuis le commencement du monde ;
+La même qui étais venue sur tant de crimes depuis le commencement du monde;
 
-Et sur tant de souillures et sur tant d’amertumes ;
+Et sur tant de souillures et sur tant d’amertumes;
 
-Et sur cette mer d’ingratitude, la même tu vins sur mon deuil ;
+Et sur cette mer d’ingratitude, la même tu vins sur mon deuil;
 
 Et sur cette colline et sur cette vallée de ma désolation c’est alors, ô nuit, que tu vins.
 
@@ -270,7 +270,7 @@ Ne soit qu’une grande nuit de clarté qui tombera sur les péchés du monde.
 
 Sera-ce alors, ô nuit, que tu viendras.
 
-C’est alors, ô nuit, que lu vins ; et seule tu pus finir, seule tu pus accomplir ce jour entre les jours.
+C’est alors, ô nuit, que vins; et seule tu pus finir, seule tu pus accomplir ce jour entre les jours.
 
 Comme tu accomplis ce jour, ô nuit accompliras-tu le monde.
 
@@ -318,7 +318,7 @@ Et sur cette mer immense d’ingratitude
 
 La longue retombée d’une nuit éternelle.
 
-Ô nuit tu n’avais pas eu besoin d’aller demander la permission à Pilate. C’est pourquoi je l’aime et je te salue.
+Ô nuit tu n’avais pas besoin d’aller demander la permission à Pilate. C’est pourquoi je l’aime et je te salue.
 
 Et entre toutes je te glorifie et entre toutes tu me glorifies.
 
@@ -358,7 +358,7 @@ Un peu de remise, un peu d’abandonnement dans mes mains,
 
 Un peu de désistement. Il se raidit tout le temps.
 
-Or toi, ma fille la nuit, tu réussis, quelquefois, tu obtiens quelquefois cela
+toi, ma fille la nuit, tu réussis, quelquefois, tu obtiens quelquefois cela
 
 De l’homme rebelle.
 
@@ -388,7 +388,7 @@ C’est un bon exercice.
 
 Mais enfin il ne faut pas s’en torturer au point d’en perdre le sommeil.
 
-À cette heure-là la journée est faite, et bien faite ; il n’y a plus à la refaire.
+À cette heure-là la journée est faite, et bien faite; il n’y a plus à la refaire.
 
 Ces péchés qui vous font tant de peine, mon garçon, eh bien c’était bien simple.
 
@@ -436,7 +436,7 @@ Celui qui s’abandonne ne s’abandonne pas et il est le seul qui ne s’abando
 
 Celui qui ne s’abandonne pas s’abandonne et il est le seul qui s’abandonne.
 
-Or toi, ma fille la nuit, ma fille au grand manteau, ma fille au manteau d’argent.
+toi, ma fille la nuit, ma fille au grand manteau, ma fille au manteau d’argent.
 
 Tu es la seule qui vaincs quelquefois ce rebelle et qui fais plier cette nuque dure.
 
@@ -490,7 +490,7 @@ Cette perpétuellement imparfaite *imitation de Jésus-Christ*,
 
 Dont ils parlent toujours,
 
-Il y a eu cette très parfaite imitation de l’homme par Jésus-Christ,
+Il y a cette très parfaite imitation de l’homme par Jésus-Christ,
 
 Cette inexorable imitation, par Jésus-Christ,
 
@@ -620,7 +620,7 @@ Transporter dans le temple la mémoire même et le souci de la boue
 
 C’est encore transporter de la boue dans le temple.
 
-Or il ne faut point que la boue passe le seuil de la porte.
+il ne faut point que la boue passe le seuil de la porte.
 
 Quand l’hôte arrive chez l’hôte qu’il s’essuie simplement les pieds avant d’entrer
 
@@ -628,7 +628,7 @@ Qu’il entre propre et les pieds propres et qu’ensuite
 
 Il ne pense pas toujours à ses pieds et à la boue de ses pieds.
 
-Or vous êtes mes hôtes, dit Dieu, et je vaux bien ce Dieu qui était le Dieu des hôtes.
+vous êtes mes hôtes, dit Dieu, et je vaux bien ce Dieu qui était le Dieu des hôtes.
 
 Vous êtes mes hôtes et mes enfants qui venez dans mon temple.
 
@@ -672,7 +672,7 @@ Imitez ce pèlerin qui ne voit plus que l’éclat
 
 Du resplendissement de mon fils
 
-Entrez dans ma nuit comme chez moi. Car c’est là que je me suis réservé
+Entrez dans ma nuit comme chez moi. Car c’est que je me suis réservé
 
 D’être le maître.
 
@@ -812,9 +812,9 @@ Et de vivre.
 
 Et de mourir.
 
-Mais quand je vous dis : Pensez plutôt à demain je ne vous dis pas : Calculez ce demain.
+Mais quand je vous dis: Pensez plutôt à demain je ne vous dis pas: Calculez ce demain.
 
-Pensez-y comme à un jour qui viendra ; et que c’est tout ce que vous en savez.
+Pensez-y comme à un jour qui viendra; et que c’est tout ce que vous en savez.
 
 Ne soyez point ce malheureux qui se retourne et se consume dans son lit
 
@@ -828,7 +828,7 @@ Sachez seulement que ce demain
 
 Dont on parle toujours
 
-Est le jour qui va venir,
+Est le jour qui venir,
 
 Et qu’il sera de mon gouvernement
 
@@ -886,7 +886,7 @@ Loyal comme un Français.
 
 Je suis le roi de France, droit comme le roi de France.
 
-Ce que le dernier des pauvres n’eût pas craint de saint Louis, allez-vous le craindre de moi ?
+Ce que le dernier des pauvres n’eût pas craint de saint Louis, allez-vous le craindre de moi?
 
 Enfin je vaux peut-être saint Louis.
 
@@ -894,7 +894,7 @@ Croyez-vous que je vais m’amuser à vous faire des feintes comme un bretteur.
 
 Toute la malice que j’ai, c’est la malice de ma grâce, et la feinte et la ruse de ma grâce, qui si souvent joue avec le pécheur pour son salut, pour l’empêcher de pécher.
 
-Qui séduit le pécheur ; pour le sauver. Mais croyez-vous. Croyez-vous que moi Dieu que je vais m’amuser à leur faire des misères et ce que ne ferait pas un honnête homme. Je suis bon chrétien, dit Dieu. Croyezvous que je vais m’amuser à les surprendre comme un assassin de nuit.
+Qui séduit le pécheur; pour le sauver. Mais croyez-vous. Croyez-vous que moi Dieu que je vais m’amuser à leur faire des misères et ce que ne ferait pas un honnête homme. Je suis bon chrétien, dit Dieu. Croyezvous que je vais m’amuser à les surprendre comme un assassin de nuit.
 
 Il viendra comme un larron et comme un voleur de nuit.
 
@@ -902,19 +902,19 @@ Et il prendra comme au filet. *Le royaume des cieux est* *encore semblable à un
 
 *Laquelle, quand elle fut emplie, tirant de l’eau, et assis sur le bord du rivage, ils choisirent les bons pour leurs vaisseaux, mais jetèrent les mauvais dehors.*
 
-*Il en sera ainsi dans la consommation du siècle : les anges sortiront et sépareront les mauvais du milieu des justes.*
+*Il en sera ainsi dans la consommation du siècle: les anges sortiront et sépareront les mauvais du milieu des justes.*
 
-*Et répondant Jésus leur dit : Voyez que personne ne vous séduise.*
+*Et répondant Jésus leur dit: Voyez que personne ne vous séduise.*
 
 *Mais de ce jour-là et de l’heure personne ne le sait, ni les anges des cieux, sinon le père seul.*
 
 *Mais comme dans les jours de Noé, ainsi sera aussi l’avènement du Fils de l’homme.*
 
-*(Le ciel et la terre passeront ; mais mes paroles ne passeront pas).*
+*(Le ciel et la terre passeront; mais mes paroles ne passeront pas).*
 
 *Ainsi en effet qu’il y avait dans les jours avant le déluge des gens qui mangeaient et buvaient, se mariaient et donnaient en mariage, jusqu’à ce jour où Noé entra dans l’arche.*
 
-*Et ils ne connurent pas jusqu’à ce que vint le déluge, et les emporta tous :*
+*Et ils ne connurent pas jusqu’à ce que vint le déluge, et les emporta tous
 
 *Ainsi sera aussi l’avènement du Fils de l’homme.*
 
@@ -926,11 +926,11 @@ Je suis surtout leur père.
 
 Enfin je suis leur père. Celui qui est père est surtout père. *Notre Père qui êtes aux Cieux.* Celui qui a été une fois père ne peut plus être que père.
 
-Ils sont les frères de mon fils ; ils sont mes enfants ; je suis leur père.
+Ils sont les frères de mon fils; ils sont mes enfants; je suis leur père.
 
 *Notre Père qui êtes aux Cieux*, mon fils leur a enseigné cette prière. *Sic ergo vos orabitis. Vous prierez donc ainsi.*
 
-*Notre Père qui êtes aux cieux*, il a bien su ce qu’il faisait ce jour-là, mon fils qui les aimait tant.
+*Notre Père qui êtes aux cieux*, il a bien ce qu’il faisait ce jour-là, mon fils qui les aimait tant.
 
 Qui a vécu parmi eux, qui était un comme eux.
 
@@ -944,7 +944,7 @@ Qui a rapporté dans le ciel un certain goût de l’homme un certain goût de l
 
 Mon fils qui les a tant aimés, qui les aime éternellement dans le ciel.
 
-Il a bien su ce qu’il faisait ce jour-là, mon fils qui les aime tant.
+Il a bien ce qu’il faisait ce jour-là, mon fils qui les aime tant.
 
 Quand il a mis cette barrière entre eux et moi, *Notre Père qui êtes aux cieux*, ces trois ou quatre mots.
 
@@ -966,7 +966,7 @@ Et qui fendent le flot de ma colère.
 
 Et quand l’éperon est passé, le navire passe, et toute la flotte derrière.
 
-Actuellement, dit Dieu, c’est ainsi que je les vois ;
+Actuellement, dit Dieu, c’est ainsi que je les vois;
 
 Et pour mon éternité, éternellement, dit Dieu,
 
@@ -974,7 +974,7 @@ Par cette invention de mon Fils éternellement c’est ainsi qu’il faut que je
 
 (Et qu’il faut que je les juge. Comment voulez-vous, à présent, que je les juge.
 
-*Notre Père qui êtes aux cieux*, mon fils a très bien su s’y prendre.
+*Notre Père qui êtes aux cieux*, mon fils a très bien s’y prendre.
 
 Pour lier les bras de ma justice et pour délier les bras de ma miséricorde.
 
@@ -982,7 +982,7 @@ Pour lier les bras de ma justice et pour délier les bras de ma miséricorde.
 
 Et quelquefois ma charité).
 
-Et à présent il faut que je les juge comme un père. Pour ce que ça peut juger, un père. *Un homme avait deux fils.*
+Et à présent il faut que je les juge comme un père. Pour ce que peut juger, un père. *Un homme avait deux fils.*
 
 Pour ce que c’est capable de juger. *Un homme avait deux fils.* On sait assez comment un père juge. Il y en a un exemple connu.
 
@@ -994,11 +994,11 @@ Voilà ce que mon fils leur a conté. Mon fils leur a livré
 
 le secret du jugement même.
 
-Et à présent voici comme ils me paraissent ; voici comme je les vois ;
+Et à présent voici comme ils me paraissent; voici comme je les vois;
 
 Voici comme je suis forcé de les voir.
 
-De même que le sillage d’un beau vaisseau va en s’élargissant jusqu’à disparaître et se perdre,
+De même que le sillage d’un beau vaisseau en s’élargissant jusqu’à disparaître et se perdre,
 
 Mais commence par une pointe, qui est la pointe même du vaisseau.
 
@@ -1024,7 +1024,7 @@ Mais il commence par une pointe et c’est cette pointe qui est tournée vers mo
 
 Qui s’avance vers moi.
 
-Et cette pointe ce sont ces trois ou quatre mots : *Notre Père qui êtes aux cieux* ; mon fils en vérité savait ce qu’il faisait.
+Et cette pointe ce sont ces trois ou quatre mots: *Notre Père qui êtes aux cieux*; mon fils en vérité savait ce qu’il faisait.
 
 Et toute prière monte vers moi dérobée derrière ces trois ou quatre mots.
 
@@ -1076,7 +1076,7 @@ Il était avec eux, il était comme eux, il était un d’eux.
 
 Tourné vers moi il s’était revêtu,
 
-II avait jeté sur ses épaules
+avait jeté sur ses épaules
 
 Le manteau des péchés du monde.
 
@@ -1102,17 +1102,17 @@ Par les hommes innombrables,
 
 (Par les simples hommes, ses frères).
 
-Prières du matin, prières du soir ;
+Prières du matin, prières du soir;
 
-(Prières prononcées toutes les autres fois) ;
+(Prières prononcées toutes les autres fois);
 
-Tant d’autres fois dans les innombrables jours ;
+Tant d’autres fois dans les innombrables jours;
 
-Prières du midi et de toute la journée ;
+Prières du midi et de toute la journée;
 
 Prières des moines pour toutes les heures du jour,
 
-Et pour les heures de la nuit ;
+Et pour les heures de la nuit;
 
 Prières des laïcs et prières des clercs
 
@@ -1140,7 +1140,7 @@ Comme une belle flotte antique, comme une flotte de trirèmes
 
 Qui s’avancerait à l’attaque du roi.
 
-Et moi que voulez-vous que je fasse : je suis attaqué.
+Et moi que voulez-vous que je fasse: je suis attaqué.
 
 Et dans cette flotte, dans cette innombrable flotte
 
@@ -1194,7 +1194,7 @@ Fendant et bravant le flot de ma colère.
 
 Puissamment assis sur leurs trois rangs de rames.
 
-(Voilà comme je suis attaqué. Je vous le demande. Est-ce juste ?)
+(Voilà comme je suis attaqué. Je vous le demande. Est-ce juste
 
 (Non, ce n’est point juste, car tout ceci est du règne de ma Miséricorde)
 
@@ -1230,7 +1230,7 @@ Et ce sont des rames juives et ce sont des rames grecques.
 
 Et ce sont des rames latines et ce sont des rames françaises.
 
-Et le premier rang de rames est :
+Et le premier rang de rames est:
 
 (S’il n’y a que la justice, qui sera sauvé.
 
@@ -1238,7 +1238,7 @@ Mais s’il y a la miséricorde, qui sera perdu.
 
 S’il y a la miséricorde, qui peut se vanter de se perdre.
 
-Se sauver est impossible à l’homme ; mais rien n’est impossible à Dieu.
+Se sauver est impossible à l’homme; mais rien n’est impossible à Dieu.
 
 Du haut de mon promontoire,
 
@@ -1274,7 +1274,7 @@ Et ils se sont mis derrière lui de proche en proche
 
 Et de proche en [)roche ils disparaissent tous au regard de ma colère.
 
-Ils sont massés comme des peureux : et qui leur en ferait un reproche.
+Ils sont massés comme des peureux: et qui leur en ferait un reproche.
 
 Comme des passereaux timides ils sont massés derrière celui qui est fort.
 
@@ -1286,9 +1286,9 @@ Et le souffle de ma colère n"a plus aucune prise sur cette masse angulaire,
 
 Car ils me présentent cet angle et je ne puis les prendre que sous cet angle.
 
-Que sont ici les flottes grecques et les flottes persiques ;
+Que sont ici les flottes grecques et les flottes persiques;
 
-Et les flottes puniques et les flottes romaines ;
+Et les flottes puniques et les flottes romaines;
 
 Et les flottes anglaises et les flottes françaises
 
@@ -1313,17 +1313,17 @@ C’est-à-dire comme des soldats pesamment armés
 Et ils se meuvent invinciblement portés sur leurs trois
 rangs de rames.
 
-Et le premier rang de rames est :
+Et le premier rang de rames est:
 Que votre nom soit sanctifié,
 
-Et le deuxième rang de rames est :
+Et le deuxième rang de rames est:
 Que votre règne arrive,
 
 Et le troisième rang de rames est la parole entre toutes
 
 Que votre volonté soit faite sur la terre comme au ciel,
 
-Sicut in cœlo et in terra.
+Sicut cœlo et terra.
 
 Et telle est la flotte des Pater, solide et plus innom-
 brable que les étoiles du ciel. Et derrière je vois la
@@ -1333,19 +1333,19 @@ des Ave Maria.
 
 Et c’est une flotte de birèmes. Et le premier rang de
 
-rames est :
-Ave Maria, grafia plena ;
+rames est:
+Ave Maria, grafia plena;
 
-Et le deuxième rang de rames est :
+Et le deuxième rang de rames est:
 Sancta Maria, mater Dei.
 
 Et tous ces Ave Maria, et toutes ces pi-ières de la Vierge
 et le noble Salve Regina sont de blanches caravelles,
 humblement couchées sous leurs voiles au ras de
-Teau ; comme de blanches colombes que Ton prendrait
+Teau; comme de blanches colombes que Ton prendrait
 dans la main.
 
-Or ces douces colombes sous leurs ailes,
+ces douces colombes sous leurs ailes,
 
 Ces blanches colombes familières, ces colombes dans la
 
@@ -1372,7 +1372,7 @@ Et le Benedicite qui se dit pour se mettre à table.
 Devant une bonne soupière fumante.
 Toutes, enfin toutes. Et il n’en reste plus.
 
-Or je vois la quatrième flotte. Je vois la flotte invisible.
+je vois la quatrième flotte. Je vois la flotte invisible.
 Et ce sont toutes les prières qui ne sont pas même
 dites, les paroles qui ne sont pas prononcées.
 
@@ -1406,7 +1406,7 @@ Après cela on veut que je les condamne. Gomme c’est
 On veut que je les juge. On sait assez comment finissent
 tous ces jugements-là et toutes ces condamnations.
 
-Un homme avait deux fih. Ça finit toujours par des
+Un homme avait deux fih. finit toujours par des
 
 (Et c’est encore le père qui pleure le plus).
 
@@ -1422,7 +1422,7 @@ Et vers les temples qui étaient sur les promontoires.
 Mais cette fois-ci voici la flotte
 Qui assaille le saint des saints.
 
-Le royaume des deux souffre la violence. El les violents
+Le royaume des deux souffre la violence. les violents
 le ravissent.
 
 Et voici l’ordre de ce rapt et de ce ravissement.
@@ -1474,7 +1474,7 @@ l’homme et la femme.
 Qui vont l’un derrière l’autre et qui fendent la foule qui
 
 est venue pour la procession.
-L’homme va devant et fend le flot de la foule,
+L’homme devant et fend le flot de la foule,
 
 La foule de ma colère,
 Et la femme suit derrière dans le sillage.
@@ -1525,7 +1525,7 @@ Et il veut gagner, contre moi, c’est-à-dire perdre.
 Et moi son adversaire je veux le faire gagner.
 
 Et le royaume du Notre Père est le royaume mcme de
-l’espérance : Donnez-nous aujouriVhui notre pain de
+l’espérance: Donnez-nous aujouriVhui notre pain de
 chaque jour.
 
 (Et le royaume du Je vous salue Marie est un royaume
@@ -1539,7 +1539,7 @@ ces pauvres enfants.
 Suis-je pas leur père.
 Et que je vais m’amuser à leur faire des surprises comme
 
-Est-ce que je leur fais la guerre ?
+Est-ce que je leur fais la guerre?
 Oui je leur fais la guerre, mais sait bien pourquoi.
 
 C’est pour les empêcher de perdre la bataille.
@@ -1550,9 +1550,9 @@ leur sommeil
 Comme un homme de guerre qui pi’end son ennemi.
 Croyez-vous que j’aie quelque goût à les prendre en
 
-Et que ça m’amuse, de condamner.
+Et que m’amuse, de condamner.
 Pauvres gens. Je vous le demande.
-Suis-je donc un bourreau d’Orient ?
+Suis-je donc un bourreau d’Orient?
 Sans doute il est arrivé quelquefois, —
 
 Que j’ai saisi un criminel tout endormi
@@ -1563,7 +1563,7 @@ Et que je l’ai traîné tout pantelant devant mon Tribunal.
 Comme un chien crevé.
 
 Mais cela même je l’ai fait pour bien peu. Pour trop peu.
-Je ne l’ai pas fait assez souvent. J’aurais dû le faire
+Je ne l’ai pas fait assez souvent. J’aurais le faire
 
 plus souvent.
 J’ai laissé Caïphe, et Pilate, et Judas
@@ -1576,20 +1576,20 @@ Ce que j’ai fait à peine pour les rois d’Orient.
 Marie, Thecel, Phares vous voudriez que je le fasse.
 Pour un bon chrétien, pour un bon paysan de mes
 
-Qui a labouré tout le jour, qui a lrav ; iillé, comme c’est
+Qui a labouré tout le jour, qui a lrav; iillé, comme c’est
 
 la loi, pour nourrir sa femme et ses trois enfants.
-Qui le soir a mangé une bonne assiettée de soupe et bu
+Qui le soir a mangé une bonne assiettée de soupe et
 
 un malheureux verre de vin.
-El qui s’est couché dans son lit recru de fatigue,
+qui s’est couché dans son lit recru de fatigue,
 Ce que je n’ai pas fait pour les rois d’Égypte et pour
 
 les rois de Babylonie.
 Vous voudriez que je le fasse pour ce malheureux.
 Qui a femme et enfants.
 
-Croyez-vous que je vais le prendre en traître ?
+Croyez-vous que je vais le prendre en traître?
 Et qui serais-je, moi leur père. Non, non, rassurez-
 vous.
 Suis-je donc un mercenaire qui ramasserait
@@ -1597,7 +1597,7 @@ Et qui volerait du bois pour son feu.
 Quand un de ces malheureux meurt dans son sommeil,
 Ayant fait sa prière du soir,
 Son Noire Père et son Je vous salue Marie,
-C’est bon signe ; son affaire est bonne.
+C’est bon signe; son affaire est bonne.
 C’est signe qu’il était mûr pour paraître devant mon
 
 Mûr dans le bon sens.
@@ -1617,9 +1617,9 @@ Et le déraidissement de l’homme.
 Et qu’il se taise, surtout, qu’il se taise, il n’en finit pas
 de parler.
 
-Pour ce qu’il tlit. Pour ce que ça vaut ce qu’il dit.
+Pour ce qu’il tlit. Pour ce que vaut ce qu’il dit.
 
-Et qu’il cesse de penser. Pour ce que ça vaut.
+Et qu’il cesse de penser. Pour ce que vaut.
 
 Créature à la nuque raide. Créature aux tempes
 barrées. Je n’aime pas, dit Dieu,
@@ -1770,9 +1770,9 @@ Mais c’est qu’ils préparaient de telles horreurs et de
 
 Que moi Dieu j’en ai été épouvanté.
 Et que dans ma propre nuit j’en ai été saisi d’horreur.
-Et que je n’ai pas pu attendre au soir du jour qu’ils
+Et que je n’ai pas attendre au soir du jour qu’ils
 
-Et que je n’ai pas même pu supporter l’idée.
+Et que je n’ai pas même supporter l’idée.
 Que cela se ferait, que cela se passerait, que cela aurait
 
 Qu’ils préparaient.
@@ -1780,8 +1780,8 @@ Qu’ils préparaient.
 Et que j’ai perdu patience. Et pourtant je suis patient.
 Farce que je suis éternel.
 
-I- ! t je les ai saisis dans la préparation de l’accomplisse-
-Mais je nai pas pu me retenir. C’était plus fort que moi.
+! je les ai saisis dans la préparation de l’accomplisse-
+Mais je nai pas me retenir. C’était plus fort que moi.
 
 J’ai aussi ma face de colère.
 Mais ces bourreaux et ces criminels.
@@ -1789,7 +1789,7 @@ Que j’ai pris par la peau de l’échiné et que j’ai traînés
 
 tout vivants.
 Combien étaient-ils et combien de fois cela est-il arrivé.
-Or ce que je n’ai pas fait pour Gyrus et pour Gambyse.
+ce que je n’ai pas fait pour Gyrus et pour Gambyse.
 Et pour les festins de Sardanapale.
 Et pour les rois de Ninive et de Babylone.
 Et pour les peuples de Babel.
@@ -1805,9 +1805,9 @@ Et tout le tremblement contre mes vieilles paroisses
 Non, non, bonnes gens, mangez votre soupe et dormez.
 Faites une bonne journée, (si vous pouvez), mangez
 votre soupe, une bonne platée de soupe, une pleine
-soupière si vous pouvez, s’il y en a, une bonne sou-
-pière bien fumante pleine de pommes de terre ; faites
-votre prière ; et dormez.
+soupière si vous pouvez, s’il y en une bonne sou-
+pière bien fumante pleine de pommes de terre; faites
+votre prière; et dormez.
 Celui qui fait sa prière. Notre Père qui êtes aux deux,
 
 pose entre lui et moi
@@ -1815,9 +1815,9 @@ Une barrière infranchissable à ma colère.
 
 Et peut s’abandonner au sommeil de la nuit.
 
-(O nuit, je t’ai créée la première). Que votre volonté soii
+nuit, je t’ai créée la première). Que votre volonté soii
 
-Or ce que je n"ai pas fait contre les races perdues.
+ce que je n"ai pas fait contre les races perdues.
 
 Vous voudriez que je le fasse contre mes paroisses
 
@@ -1828,7 +1828,7 @@ C’est que mon fils est venu.
 
 Et moi qu’est-ce que je serais sans mes vieilles paroisses
 
-Qu’est-ce que je deviendrais. C’est là que mon nom
+Qu’est-ce que je deviendrais. C’est que mon nom
 
 Depuis quand le général décime-t-il ses meilleurs sol-
 dats. Ce sont mes meilleures troupes.
@@ -1905,7 +1905,7 @@ Et si je ne le soutiens pas assez, il tombe.
 
 Si je le soutiens trop, j’expose sa liberté
 
-Si je ne le soutiens pas assez, j’expose son salut :
+Si je ne le soutiens pas assez, j’expose son salut:
 
 Deux biens en un sens presque également précieux.
 
@@ -1944,12 +1944,12 @@ Un salut qui ne serait pas libre, qui ne serait pas, qui
 ne viendrait pas d’un homme libre ne nous dirait
 plus rien. Qu’est-ce que ce serait.
 
-Qu’est-ce que ça voudrait dire.
+Qu’est-ce que voudrait dire.
 
 Quel intérêt un tel salut présenterait-il.
 
 Une béatitude d’esclaves, un salut d’esclaves, une
-béatitude serve, en quoi voulez-vous que ça m’inté-
+béatitude serve, en quoi voulez-vous que m’inté-
 resse. Aime-t-on à être aimé par des esclaves.
 
 S’il ne s’agit que de faire la preuve de ma puissance,
@@ -1984,7 +1984,7 @@ soumissions n’ont plus aucun goût.
 Quand on a connu d’être aimé par des hommes libres,
 les prosternements d’esclaves ne vous disent plus
 
-Quand on a vu saint Louis à genoux, on n’a plus envie
+Quand on a saint Louis à genoux, on n’a plus envie
 de voir
 
 Ces esclaves d’Orient couchés par terre
@@ -2041,7 +2041,7 @@ libre baron de l’Ile de France. Quand saint Louis
 
 Je sais, je connais ce que c’est que d’être aimé.
 
-(Or c’est tout’ ; . Sans doute il craint Dieu.
+(Or c’est tout’;. Sans doute il craint Dieu.
 Mais c’est d’une noble crainte, toute emplie, toute
 
 Toute pleine d’amour, comme un fruit gonflé de jus.
@@ -2069,10 +2069,10 @@ m’aime), c’est vrai.
 Lui je sais que c’est vrai.
 Ce n’est pas vrai seulement qu’il le dit. C’est vrai que
 
-c’est vrai. Il ne dit pas ça pour que ça fasse bien.
-11 ne dit pas ça parce qu’il a vu ça dans les livres ni
+c’est vrai. Il ne dit pas pour que fasse bien.
+11 ne dit pas parce qu’il a dans les livres ni
 
-parce qu’on lui a dit de le dire. Il dit ça parce que ça
+parce qu’on lui a dit de le dire. Il dit parce que
 
 Il m’aime à ce point. Il m’aime ainsi. Librement. La
 
@@ -2118,7 +2118,7 @@ Est ce grand air que l’on respire dans une belle vallée
 Et encore plus à flanc de coteau et encore plus sur un
 
 large plateau bien aéré.
-Or il y a un certain goût de l’air pur et du grand air
+il y a un certain goût de l’air pur et du grand air
 Qui fait les hommes forts, un certain goût de santé,
 D’une pleine santé, virile, qui fait paraître tout autre
 
@@ -2168,7 +2168,7 @@ Ainsi j’ai créé la liberté de rhomme à l’image et à la
 De ma propre, de mon originelle liberté. Aussi quand
 
 saint Louis tombe à genoux
-Sur les dalles de là Sainte-Chapelle, sur les dalles de
+Sur les dalles de Sainte-Chapelle, sur les dalles de
 
 C’est un homme qui tombe à genoux, ce n’est pas une
 
@@ -2176,7 +2176,7 @@ chiffe, ce n’est pas une loque
 Un tremblant esclave d’Orient
 C’est un homme et c’est un Français et quand saint
 
-C’est un homme qui m’aime el quand saint Louis se
+C’est un homme qui m’aime quand saint Louis se
 
 ( -’est un homme qui se donne. Et quand saint Louis me
 
@@ -2268,7 +2268,7 @@ estiment non seulement librement mais comme gra-
 J’aime qu’ils aiment enfin, dit Dieu, non seulement
 librement mais comme gratuitement.
 
-Or pour cela, dit Dieu, avec mes Français je suis bien
+pour cela, dit Dieu, avec mes Français je suis bien
 
 C’est un peuple qui est venu au monde la main ouverte
 et le C(i>ur libéral.
@@ -2278,7 +2278,7 @@ Il donne, il sait donner. Il est naturellement gratuit.
 Quand il donne, il ne vend pas, celui-là, et il ne prête
 pas à la petite semaine.
 
-Il donne pour rien. .Autrement est-ce donner.
+Il donne pour rien..Autrement est-ce donner.
 
 Il aime pour rien. Autrement est-ce aimer.
 
@@ -2292,7 +2292,7 @@ Peuple gratuit, peuple gracieux.
 Peuple de barons français, peuple qui lève la tête,
 peuple qui sais parler aux grands
 
-El par conséquent à moi le Très-Grand. Ceux qui
+par conséquent à moi le Très-Grand. Ceux qui
 baissent toujours la tête
 
 On ne voit pas qu’ils baissent aussi la tête
@@ -2312,7 +2312,7 @@ Pour l'offrande et l'offertoire
 
 Et pour la consécration et pour l'élévation du corps de mon fils,
 
-Ça se voit, qu’ils baissent la tête et tout le monde comprend
+se voit, qu’ils baissent la tête et tout le monde comprend
 
 Que c’est un instant solennel et le plus grand mystère
 
@@ -2347,7 +2347,7 @@ donne. Quand il demande, il demande.
 Il ne fait pas traîner ce qu’il donne dans ce qu’il
 
 demande et ce qu’il demande dans ce qu’il donne.
-Il n’embarbouillepas tout ça l’un dans l’autre.
+Il n’embarbouillepas tout l’un dans l’autre.
 Il n’emmêle pas. Il ne demande pas pour donner, il ne
 
 donne pas pour demander, il ne donne pas pour rece-
@@ -2374,7 +2374,7 @@ A une gratuité de ma grâce ils répondent par une cer-
 taine gratuité de la prière.
 Et par une certaine gratuité du vœu même.
 
-Ils me répondent comme je demande. Or s’il en est
+Ils me répondent comme je demande. s’il en est
 ainsi du menu peuple et d’un baron français
 
 Que sera-ce d’un saint Louis, baron lui-même et roi des
@@ -2439,7 +2439,7 @@ L’horreur et la honte de l’homme.
 
 Cet ulcère, cette pourriture sèche, enfin cette définitive lèpre
 
-Et le ventre et la peau et les os et les nerfs et les veines.
+Et le ventre et la peau et les et les nerfs et les veines.
 
 Cette sèche moisissure blanche qui gagne de proche en proche
 
@@ -2457,7 +2457,7 @@ Et qui avance toujours et jamais ne recule
 
 Et qui gagne toujours et qui jamais ne perd DES SAINTS INNOCENTS
 
-Et qui va jusqu’au bout,
+Et qui jusqu’au bout,
 
 Et qui fait d’un homme un cadavre qui marche,
 C’est de cette lèpre-là qu’ils parlaient, de nulle autre.
@@ -2474,7 +2474,7 @@ Ce que c’est que cette lèpre de l’âme
 
 Que nous ne nommons pas en vain le péché mortel,
 
-Si avec les yeux de l’âme il avait vu
+Si avec les yeux de l’âme il avait
 
 Cette pourriture sèche de l’âme infiniment plus mau-
 
@@ -2501,7 +2501,7 @@ de saint Louis. Au moins il disait ce qu’il pense.
 
 Ces gens-là font le gros de Tarmée. Il faut aussi des
 
-troupes. II ne suffît pas d’avoir des chefs qui marchent
+troupes. ne suffît pas d’avoir des chefs qui marchent
 
 Ces gens-là partent fort honnêtement en croisade, au
 
@@ -2532,7 +2532,7 @@ Ils attaquent le royaume du ciel comme on attaque un
 royaume de la terre,
 A main foi^te et cela ne réussit déjà pas si mal. Violenli
 
-Us vous font d’ailleurs tout cela fort honnêtement,
+vous font d’ailleurs tout cela fort honnêtement,
 
 très communément, comme allant de soi.
 Gomme si ce fût la chose la plus naturelle du monde.
@@ -2544,7 +2544,7 @@ propre. Ils aimeraient mieux autre chose.
 Les malheureux, les sots, s’ils voyaient la lèpre de
 
 Et s’ils voyaient la saleté ou la propreté de Tâme.
-Mais voilà, ils se disent : Je n"ai qu’un corps (les sots,
+Mais voilà, ils se disent: Je n"ai qu’un corps (les sots,
 
 ils oublient le principal,
 Ils oublient non pas seulement l’âme, mais le corps de
@@ -2565,8 +2565,8 @@ toujours
 Les bords des lèvres de ses affreuses plaies.
 Si je suis pris, je suis perdu.
 
-Ça commence par un point, ça finit par tout le corps.
-Ça ne pardonne pas, quand c’est commencé c’est fini.
+commence par un point, finit par tout le corps.
+ne pardonne pas, quand c’est commencé c’est fini.
 C’est une maladie impossible à défaire.
 Elle défait tout, ce qui est parti ne revient jamais plus.
 
@@ -2581,7 +2581,7 @@ C’est une gangrène irrévocable et qui ne retourne
 
 jamais en arrière.
 
-Or ils y tiennent à leur corps. On dirait qu’ils croient
+ils y tiennent à leur corps. On dirait qu’ils croient
 
 qu’ils n’ont que ça.
 Ils savent pourtant bien qu’ils ont une âme. La vie est
@@ -2594,7 +2594,7 @@ Ils ont l’impression que la lèpre anéantira tout leur
 corps et qu’elle les tiendra jusqu’au bout (ils ne con-
 sidèrent point qu’au bout de ce bout
 Commence le véritable commencement)
-Et alors ils aimeraient mieux avoir autre chose que hi
+Et alors ils aimeraient mieux avoir autre chose que
 
 Je pense qu’ils aimeraient mieux attraper
 Lue maladie qui leur plairait. C’est toujours le même
@@ -2606,17 +2606,17 @@ Choisis. Là-dessus les Pharisiens s’écrient et font des
 
 Et poussent des cris et font des mines et ces exécrables
 
-Surtout prient disant : Seigneur nous vous rendons
+Surtout prient disant: Seigneur nous vous rendons
 
 De ce que vous ne nous avez point fait semblables à
 
 cet homme
-Qui a peur d’attraper la lèpre. Or moi je dis au con-
+Qui a peur d’attraper la lèpre. moi je dis au con-
 traire, dit Dieu,
-C’est moi qui dis : Ce n’est pas rien que d’attraper la
+C’est moi qui dis: Ce n’est pas rien que d’attraper la
 
 Je sais ce que c’est que la lèpre. C’est moi qui l’ai faite.
-Je la connais. Je dis : Ce n’est pas rieh que d’attraper
+Je la connais. Je dis: Ce n’est pas rieh que d’attraper
 
 la lèpre.
 
@@ -2714,7 +2714,7 @@ même pour lui-même en lui-même.
 
 Et voyez comme il reprend doucement le pécheur.
 
-Or moi, dit Dieu, je suis du côté des saints et aullemenl
+moi, dit Dieu, je suis du côté des saints et aullemenl
 
 du côté des Pharisiens.
 Aussi j’absorbe et je dévore ma peine et je la souffre
@@ -2723,22 +2723,22 @@ moi-même en moi-même pour moi-même,
 Et voyez comme je parle doucement au pécheur
 Et comme je reprends doucement le pécheur.
 
-Fa quand les frères s’en furent partis,
+quand les frères s’en furent partis,
 
-II attend que les deux frères qu’il avait appelés,
+attend que les deux frères qu’il avait appelés,
 
 Qu’il avait fait venir s’en soient partis. Il attend qu’ils
 
 soient seuls. 11 ne veut pas
 Faire un semblant d’affront à un baron français),
-// m’appela tout seul, et me fit seoir à ses pieds et me
+m’appela tout seul, et me fit seoir à ses pieds et me
 
-« Comment me dites-vous hier ce ? »
+« Comment me dites-vous hier ce? »
 Et je lui disque encore lui disais-je.
 
-Et je, qui onques ne lui mentis ;
+Et je, qui onques ne lui mentis;
 
-Et je lui dis que encore lui disais-je ; en vérité, dit
+Et je lui dis que encore lui disais-je; en vérité, dit
 
 Cette franchise de Joinville, qui ose répétercela au roi,
 
@@ -2762,7 +2762,7 @@ Qui me couvre, qui me garantit la g-ratuité, la grâce de
 
 Entendez-moi c’est le péché de Joinville, ce bon chré-
 
-Qui me couvre, qui me garanti l la sainteté même de
+Qui me couvre, qui me garanti la sainteté même de
 
 Je, qui onques ne lui inenlis, c’est parce que Joinville
 ne mentit jamais à saint Louis,
@@ -2784,20 +2784,20 @@ l’^’anche, terrienne,
 
 Teri’euse, une sainteté de race et de belle race,
 
-Et il me dit : « Vous dîtes comme vif étourdi ;
+Et il me dit: « Vous dîtes comme vif étourdi;
 
-(Rien de plus, comme vif étourdi, comme vif élourneau) ;
+(Rien de plus, comme vif étourdi, comme vif élourneau);
 
 car vous devez savoir que nulle si laide lèpre nest comme
 d’être en péché mortel, pour ce que Vâme qui est en
-péché mortel est semblable au diable ; par quoi nulle
+péché mortel est semblable au diable; par quoi nulle
 si laide lèpre ne peut être.
 
 « Et bien est vrai que quand l’homme meurt, il est
-guéri de la lèpre du corps ; mais quand Vhomme
+guéri de la lèpre du corps; mais quand Vhomme
 qui a fait le péché mortel meurt, il ne sait pas ni
-nest certain que Hait eu en sa vie telle repentance que
-Dieu lui ait pardonné : par quoi grand peur doit
+nest certain que Hait en sa vie telle repentance que
+Dieu lui ait pardonné: par quoi grand peur doit
 avoir que cette lèpre lui dure tant comme Dieu sera
 en paradis. Si vous prie, fit-il, tant comme je puis,
 que vous mettiez votre cœur à ce, pour Vamour de Dieu
@@ -2859,7 +2859,7 @@ Il parle comme un tremblant solliciteur.
 C’est qu’il tremble en effet et c’est qu’il sollicite.
 Il tremble que son fidèle Joinville ne fasse pas son
 
-Va il demande à Joinville, il sollicite que le fidèle « Toi
+il demande à Joinville, il sollicite que le fidèle « Toi
 
 Fasse son salut. Veuille bien faire son salut. Quelle
 
@@ -2869,21 +2869,21 @@ que les deux frères soient partis.
 Quelle douceur, quel père parlerait plus doucement à
 
 son fils.
-Comment me dites-vous hier ce ’/
+Comment me dites-vous hier ce
 Et je lui dis que encore lui disais-je.
-Et il me dit : Vous dites comme hastis musars ;
+Et il me dit: Vous dites comme hastis musars;
 
 (comme hâtif musard, comme hâtif étourdi,
 
-comme hâtif étourneau^ ;
+comme hâtif étourneau^;
 il feint presque de plaisanter, de commencer sur un Ion
 
 assez plaisant, justement comme un qui a peur,
-l’récisément comme celui qui va entrer dans le piopos
+l’récisément comme celui qui entrer dans le piopos
 
 le plus grave,
-Qui va causer, qui va traiter de l’intérêt le plus grave) ;
-(ainsi commencent les joutes les plus redoutables) ;
+Qui causer, qui traiter de l’intérêt le plus grave);
+(ainsi commencent les joutes les plus redoutables);
 Et le sérieux profond arrive tout aussitôt après.
 Entre incontinent dans le corps même et dans le texte
 
@@ -2910,9 +2910,9 @@ Il a été donné à des martyrs de subir une mort
 Non indigne de la mort de Jésus. Ainsi ces paroles qui
 
 Ne sont point indignes de la prédication de Jésus même.
-El bien est vrai que quand Vhomme meurt,
+bien est vrai que quand Vhomme meurt,
 
-il est quéri de la lèpre du corps ;
+il est quéri de la lèpre du corps;
 (comme c’est la même voix que dans les Évangiles,
 
 mon enfant, la même profondeur,
@@ -2921,12 +2921,12 @@ La même résonance de la même voix dans la même
 (c’est qu’aussi c’est la même sainteté. Jésus et les autres
 
 saints. La même commune éternelle sainteté,
-La même communion des saints) ;
+La même communion des saints);
 
 mais quand l'homme qui a fait le péché mortel meurt,
-il ne sait pas ni n est certain que il ait eu en sa vie telle
+il ne sait pas ni est certain que il ait en sa vie telle
 
-que Dieu lui ait pardonné :
+que Dieu lui ait pardonné:
 
 par quoi grand peur doit avoir que cette lèpre lui dure
 tant comme Dieu sera en paradis. Mais les paroles qui
@@ -3022,7 +3022,7 @@ Parce que je suis parfait et il n’y a que moi qui est
 Je suis le Toul-Parfait. Aussi je suis moins difficile.
 Moins exigeant. Je suis le Saint des saints.
 Je sais ce que c’est. Je sais ce qu’il en coûte.
-Je sais ce que ça coûte, je sais ce que ça vaut. Les
+Je sais ce que coûte, je sais ce que vaut. Les
 
 Pharisiens veulent toujours de la perfection
 Pour les autres. Chez les autres.
@@ -3048,7 +3048,7 @@ Que ce Joinville est homme et que c’est saint Louis qui
 a trente fois vaincu,
 Trente fois surmonté, trente fois remonté, trente fois
 
-surpassé la nature dé l’homme.
+surpassé la nature l’homme.
 Je trouve que ce Joinville est commun, que c’est un bon
 
 chrétien, un bon pécheur de l’espèce commune,
@@ -3107,7 +3107,7 @@ Qui les défait morceau par morceau,
 
 Qu’un homme qui en a vu, réellement.
 
-Qui a vu de la lèpre et des vrais lépreux
+Qui a de la lèpre et des vrais lépreux
 
 Dise tranquillement qu’il aimerait mieux attraper la
 lèpre que de tomber en péché mortel,
@@ -3141,7 +3141,7 @@ Moi-même je n’en reviens pas, dit Dieu, qu’il y ait un
 
 homme comme ce saint Louis,
 (et tant d’au très saints et tant d’autres martyrs)
-Kl je suis confondu d’être tant aimé.
+je suis confondu d’être tant aimé.
 
 Et il faut que ma grâce soit tellement grande.
 
@@ -3226,7 +3226,7 @@ Un regard d’homme qui se croise avec un regard
 
 d’homme.
 
-Or je suis leur père, dit Dieu, et je connais la condition
+je suis leur père, dit Dieu, et je connais la condition
 
 de l’homme.
 C’est moi qui l’ai faite.
@@ -3266,7 +3266,7 @@ Pour faire jouer cette liberté, cette gratuité.
 
 Pour lui apprendre la liberté.
 
-Or je n’ai pas trop de toute ma Sagesse
+je n’ai pas trop de toute ma Sagesse
 
 Pour lui apprendre la liberté.
 
@@ -3280,7 +3280,7 @@ Quel autre pourrait la calculer. Et comme il faut que je
 
 Et comme il faut que je compose prudemment ce dou-
 
-(\’oilà qui va encore scandaliser nos Pharisiens),
+(\’oilà qui encore scandaliser nos Pharisiens),
 
 Comme il faut que je calcule prudemment cette duplicité
 même.
@@ -3308,7 +3308,7 @@ Gagnât lui-même ses éperons de chevalier.
 Il faut qu’ils gagnent le ciel eux-mêmes et qu’ils fassent
 
 eux-mêmes leur salut.
-Tel est l’ordre, tel est le secret, tel est le mystère. Or
+Tel est l’ordre, tel est le secret, tel est le mystère.
 
 dans cet ordre, et dans ce secret, et dans ce mystère
 Nos Français sont avancés entre tous. Ils sont mes
@@ -3333,7 +3333,7 @@ la bataille.
 
 Ils ne demandent pas toujours des ordres et ils ne
 demandent pas toujours des explications sur ce qu’il
-faut faire et sur ce qui va se passer.
+faut faire et sur ce qui se passer.
 
 ils trouvent tout d’eux-mêmes, ils inventent tout d’eux-
 mêmes, à mesure qu’il faut.
@@ -3351,7 +3351,7 @@ tent, ils devancent l’événement.
 Ils se retournent, ils savent toujours ce qu’il faut faire
 sans aller demander au général.
 
-Sans déranger le général. Or il y a toujours la bataille,
+Sans déranger le général. il y a toujours la bataille,
 dit Dieu,
 
 11 y a toujours la croisade.
@@ -3419,22 +3419,22 @@ Et c’est Eve et Marie.
 Nos Français sont comme tout le monde, dit Dieu. Peu
 
 de saints, beaucoup de pécheurs.
-Un saint, trois pécheurs. Kt trente pécheurs. Et trois
+Un saint, trois pécheurs. trente pécheurs. Et trois
 
 cents pécheurs. Et plus.
 Mais j’aime mieux un saint qui a des défauts qu’un
 
-pécheur qui n’en a pas. Non, je veux dire :
+pécheur qui n’en a pas. Non, je veux dire:
 J’aime mieux un saint qui a des défauts qu’un neutre
 
 qui n’en a pas.
 rJe suis ainsi. Un homme avait deux fils.)
-Or ces Français, comme ils sont, ce sont mes meilleurs
+ces Français, comme ils sont, ce sont mes meilleurs
 
 Ils ont été, ils seront toujours mes meilleurs soldats
 
 dans la croisade.
-Or il y aui’a toujours la croisade.
+il y aui’a toujours la croisade.
 Enfin ils me plaisent. C’est tout dire. Ils ont du bon et
 
 du mauvais.
@@ -3464,17 +3464,17 @@ Combien une seule goutte de sang de Jésus
 
 Pèse dans mes balances éternelles.
 
-Que donc celui qui est né pour dormir, dorme. La, terre
-était informe et nue ; les ténèbres couvraient la face
-de V abîme ; et V Esprit de Dieu était porté sur les
+Que donc celui qui est pour dormir, dorme. La, terre
+était informe et nue; les ténèbres couvraient la face
+de abîme; et Esprit de Dieu était porté sur les
 eaux. Et ce ne fut qu’ensuite que j’ai créé la lumière.
-Or Dieu dit : Que la lumière soit : et la lumière fut.
+Dieu dit: Que la lumière soit: et la lumière fut.
 
 Dieu vit que la lumière était bonne, et il sépara la
 lumière d’avec les ténèbres.
 
 Il donna à la lumière le nom de jour, et aux ténèbres le
-nom de nuit : et du soir et du matin se fit le premier
+nom de nuit: et du soir et du matin se fit le premier
 jour.
 
 Sera-t-il dit qu’il y aura des regards si éteints, des
@@ -3491,7 +3491,7 @@ D’épreuves, de détresse,
 
 De larmes, de prière, de travail,
 
-Et d’avoir vu ce qu’elles ont vu. Et d’avoir souffert ce
+Et d’avoir ce qu’elles ont vu. Et d’avoir souffert ce
 
 qu’elles ont souffert.
 Et d’avoir passé par où elles ont passé. Et de savoir ce
@@ -3505,7 +3505,7 @@ deront c’est qu’on leur fiche la paix.
 
 Dona eis, Domine, pacem,
 
-El requiem aeternam. La paix et le repos éternel.
+requiem aeternam. La paix et le repos éternel.
 
 Parce qu’ils auront connu certaines histoires de la terre.
 
@@ -3540,14 +3540,14 @@ Et pour ma vie éternelle.
 
 Et que tout ce que je pourrai mettre sur tant de bles-
 
-Sur tant de cicatrices et sur tant de sacrifices ;
+Sur tant de cicatrices et sur tant de sacrifices;
 
-VA sur l’amertume de tant de calices ;
-Et sur les ingratitudes de tant de malices ;
-Et sur les pointes d’épines de tant de cilices ;
-Et sur les écartèlements de tant de supplices ;
+sur l’amertume de tant de calices;
+Et sur les ingratitudes de tant de malices;
+Et sur les pointes d’épines de tant de cilices;
+Et sur les écartèlements de tant de supplices;
 
-Et sur les éclaboussements de tant de sang ;
+Et sur les éclaboussements de tant de sang;
 
 (J’ai pris le criminel accroupi sur son crime
 
@@ -3599,7 +3599,7 @@ Et que le couronnement du jugement et le commen-
 cement du Paradis et de ma Béatitude sera
 Le coucher de soleil d’un éternel été.
 
-Or il en serait ainsi, dit Dieu.
+il en serait ainsi, dit Dieu.
 
 Et tout ce que je pourrais mettre sur les bords des
 
@@ -3617,7 +3617,7 @@ Car elle seule, comme elle seule dans les jours de cette
 
 D’une vieille veille fait jaillir un lendemain nouveau
 
-Ainsi elle seule des résidus du Jugemenl cl des ruines
+Ainsi elle seule des résidus du Jugemenl des ruines
 
 et du débris du temps
 Fera jaillir une éternité neuve.
@@ -3639,7 +3639,7 @@ luisemble agenouillés dans le même geste et dans la
 même voix
 De la même prière.
 
-Et autour de la Charité je vois tous mes pauvres ’
+Et autour de la Charité je vois tous mes pauvres
 
 Assis en rond autour de ce feu
 Et tendant leurs paumes à la chaleur du foyer.
@@ -3690,7 +3690,7 @@ Le seul qui ne verses que des larmes décentes.
 /Et des larmes perpendiculaires.
 
 Le seul qui ne fasses monter que des prières décentes
-{ Et des prières et des vœux perpendiculaires)
+Et des prières et des vœux perpendiculaires)
 
 Dans toute famille, dit Dieu, il y a un dernier-né.
 
@@ -3732,11 +3732,11 @@ Un homme avait deux fils. Un homme avait douze fils.
 Et ainsi devant toute sœur chrétienne
 S’avance une sœur juive qui est sa sœur aînée et qui
 
-l’annonce et qui va devant.
+l’annonce et qui devant.
 Et qui a posé sa tente dans le désert. Et le puits de
 
 Avait été creusé avant le puits de la Samaritaine.
-Or entre toutes une histoire a planté sa tente.
+entre toutes une histoire a planté sa tente.
 Et avant l’histoire de l’homme qui avait deux fils
 Mon enfant c’est l’histoire de l’homme qui avait douze
 
@@ -3756,84 +3756,84 @@ Ministre du Pharaon et gouverneur du royaume d’Égypte.
 — Je suis Joseph, votre frère. Quel Juif, quel chrétien
 N’a pleuré à cette retrouvaille. Israël aimait Joseph
 
-plus que tous ses autres enfants, parce quil l’avait eu
+plus que tous ses autres enfants, parce quil l’avait
 
-étant déjà vieux ^
+étant déjà vieux
 
 Et il lui avait fait faire une robe de plusieurs couleurs.
 
-// Hrrii\% aussi que Joseph rapport ; ! k ses frères un
+Hrrii\% aussi que Joseph rapport;! ses frères un
 songe quil avait eu, rjui fut la semence d’une plus
 
-Car il leur dit :
+Car il leur dit:
 
 Quel cœur juif, quel cœur chrétien n’a tressailli au lil
 de cette histoire. Quel cœur juif, quel cœur chrétien
 n’a tressailli à cette retrouvaiUe.
 
-Car il leur dit : Écoutez le songe que j’ai eu.
+Car il leur dit: Écoutez le songe que j’ai eu.
 
 Juif, chrétien, qui n’a pleuré à cette reconnaissance.
 
-// nie semblait c/ue je liais avec vous des gerbes dans le
-champ ; que ma gerbe se leva et se tint debout ; et que
+nie semblait c/ue je liais avec vous des gerbes dans le
+champ; que ma gerbe se leva et se tint debout; et que
 les vôtres étant autour de la mienne, Vadnraient.
 
-Ses frères lui répondirent : Est-ce que vous serez notre
-Boi, et que nous serons soumis à votre puissance ?
+Ses frères lui répondirent: Est-ce que vous serez notre
+Boi, et que nous serons soumis à votre puissance?
 Ces songes et ces entretiens allumèrent donc encore
 davantage Venvie et la haine qu’ils avaient contre lui.
 
-// est encore un autre songe quil raconta à ses frères
-en leur disant : J’ai cru voir en songe que le soleil el
+est encore un autre songe quil raconta à ses frères
+en leur disant: J’ai cru voir en songe que le soleil
 la lune, et onze étoiles ni adoraient.
 
 Lorsqu’il eut rapporté ce songe à son père et à ses
-frères, son père lui en fit réprimande, et lui dit :
-Que voudrait dire ce songe que vous avez eu ? Est-ce
+frères, son père lui en fit réprimande, et lui dit:
+Que voudrait dire ce songe que vous avez? Est-ce
 que votre mère, vos frères et moi nous vous adorerons
-sur la terre ?
+sur la terre?
 
-Ainsi ses frères étaient transportés d’envie contre lui :
+Ainsi ses frères étaient transportés d’envie contre lui:
 mais le père considérait tout ceci dans le silence.
 
-// arriva alors que les frères de Joseph s’arrêtèrent it
+arriva alors que les frères de Joseph s’arrêtèrent
 Sichem où ils faisaient paître les troupeaux de leur
 père.
 
-Et Israël dit à Joseph : Vos frères font paître nos
+Et Israël dit à Joseph: Vos frères font paître nos
 brebis dans le pays de Sichem. Venez, et je vous
 enverrai vers eux.
 
 {Je suis tout prêt, lui dit Joseph). — Allez, et voyez si
 vos frères se portent bien, et si les troupeaux sont en
 
-bon état ; et vous me rapporterez ce qui se passe. —
-Ayant (donc) été envoyé de la vallée d Héhron, il vint
+bon état; et vous me rapporterez ce qui se passe. —
+Ayant (donc) été envoyé de la vallée Héhron, il vint
 
 et un homme l’ayant trouvé errant dans un champ, lui
 demanda ce qu’il cherchait.
 
-// lui répondit : Je cherche mes frères ; je vous prie de
+lui répondit: Je cherche mes frères; je vous prie de
 me dire où ils font paître leurs troupeaux.
 
-Cet homme lui répondit : Ils se sont retirés de ce lieu ;
-et f ai entendu qu’ils se disaient : Allons vers Dothaïn.
-Joseph alla donc après ses frères ; et illes trouva dans
+Cet homme lui répondit: Ils se sont retirés de ce lieu;
+et ai entendu qu’ils se disaient: Allons vers Dothaïn.
+Joseph alla donc après ses frères; et illes trouva dans
 [la plaine de) Dothaïn.
 
 Lorsqu’ils Veurent aperçu de loin, avant qu’il se jût
-approché d’eux, ils résolurent de le tuer ;
+approché d’eux, ils résolurent de le tuer;
 
-Et ils se disaient l’un à l’autre : Voici notre songeur
+Et ils se disaient l’un à l’autre: Voici notre songeur
 qui vient.
 
-Allons, tuons-le, et le jetions dans cette vieille citerne :
-nous dirons quunehéte sauvage l’a dévoré ; et après
+Allons, tuons-le, et le jetions dans cette vieille citerne:
+nous dirons quunehéte sauvage l’a dévoré; et après
 cela on verra à quoi ses songes lui auront servi.
 
 Buben les ayant entendu parler ainsi, tâchait de le tirer
-d’entre leurs mains, et il disait :
+d’entre leurs mains, et il disait:
 
 Ne le tuez point, et ne répandez point son sang, mais
 jettez-le dans cette citerne qui est dans le désert, et
@@ -3841,13 +3841,13 @@ conservez vos mains pures.
 
 comme donnant un renseignement, pour qu’on n’aille
 
-// disait ceci dans le dessein de le tirer de leurs mains,
+disait ceci dans le dessein de le tirer de leurs mains,
 et de le rendre à son père.
 
 Aussitôt donc qu’il fut arrivé près de ses frères, ils lui
 ôtèrent sa robe de plusieurs couleurs qui le couvrait
 
-Et ils le j citèrent dans cette vieille citerne qui était sans
+Et ils le citèrent dans cette vieille citerne qui était sans
 
 S’étant ensuite assis pour manger, ils virent des
 Ismaélites qui passaient, et qui venant de Galaad
@@ -3860,17 +3860,17 @@ Déjà l’or, déjà l’encens, déjà la myrrhe.
 
 Et ce fut la première fuite en Égypte.
 
-Alors Juda dit à ses frères : Que nous servira d’avoir
-tué notre frère, et d’avoir caché sa mort ?
+Alors Juda dit à ses frères: Que nous servira d’avoir
+tué notre frère, et d’avoir caché sa mort?
 
 Il vaut mieux le vendre…
 
-// vaut mieux le vendre à ces Ismaélites, et ne point
-souiller nos mains ; car il est notre frère et notre
+vaut mieux le vendre à ces Ismaélites, et ne point
+souiller nos mains; car il est notre frère et notre
 
-comme condescendant :
+comme condescendant:
 
-Ses frères consentirent à ce quil disait :
+Ses frères consentirent à ce quil disait:
 
 L’ayant donc tiré de la citerne, et voyant ces marchands
 Madianiles qui passaient, ils le vendirent vingt
@@ -3923,77 +3923,77 @@ Un homme avait douze fils. Et nous autres nous som-
 mes ces frères ingrats,
 
 les onze ou enfin les dix ou enfin les neuf mauvais fils
-de Jacob. Ruben étant retourné à la citerne, et ny
+de Jacob. Ruben étant retourné à la citerne, et
 ayant point retrouvé l’enfant.
 
-déchira ses vêtements, et vint dire à ses frères ; L’enfant
-ne paraît plus, et que deviendrai-je ?
+déchira ses vêtements, et vint dire à ses frères; L’enfant
+ne paraît plus, et que deviendrai-je?
 
 Après cela ils prirent la robe…
 
 Une autre robe fut ravie. Après cela ils prirent la robe
 
-de Joseph, et Vayant trempée dans le sang d*un *
+de Joseph, et Vayant trempée dans le sang d*un
 chevreau qu’ils avaient tué,
 
 ils renvoyèrent au père, lui faisant dire par ceux qui
-la lui portaient : Voici une robe que nous avons
+la lui portaient: Voici une robe que nous avons
 trouvée, voyez si cest celle de votre fils, ou non.
 
-Le père Vayanl reconnue, dit : C’est la robe de mon
-fils, une héte cruelle Va dévoré, une bêle a dévoré
+Le père Vayanl reconnue, dit: C’est la robe de mon
+fils, une héte cruelle dévoré, une bêle a dévoré
 
 Et ayant déchiré ses vêtements, il se couvrit d’un
 cilice, pleurant son fils fort longtemps.
 
 Alors tous ses enfants s’assemblèrent, pour tâcher de
-soulager leur père dans sa douleur : mais il ne voulut
-point recevoir de consolation, et il dit : Je pleurerai
+soulager leur père dans sa douleur: mais il ne voulut
+point recevoir de consolation, et il dit: Je pleurerai
 toujours jusqu’à ce que je descende avec mon fils au
 fond de la terre. Ainsi il continua toujours de
 
 Cependant les Madianiies vendirent Joseph en Égypte.
 
-Un homme avait douze fils. Or celui qu’il aimait plus
+Un homme avait douze fils. celui qu’il aimait plus
 que tous les autres [Israël aimait Joseph plus que
 
-tous ses autres enfants, parce quil lavAiL eu étant
+tous ses autres enfants, parce quil lavAiL étant
 déjà vieux, et il lui avait fait faire une robe de plu-
 sieurs couleurs) celui-là même était esclave en Kgypte
 et il croyait qu’il était mort.
 
-Or c’est pour cela même quil eut plus tard cette
+c’est pour cela même quil eut plus tard cette
 
 Qu’il ne pouvait pas en avoir autrement.
 
-…et je n aurai au-dessus de vous que le Iràne et la
+…et je aurai au-dessus de vous que le Iràne et la
 qualité de Roi.
 
-Pharaon dit encore à Joseph : Je vous établis aujour-
+Pharaon dit encore à Joseph: Je vous établis aujour-
 d’hui pour commander à toute l’Égypte.
 
 Ensemble il ôtason anneau de sa main et le mit en celle
-de Joseph ’ il le fit revêtir d’une robe de fin lin, et lui
+de Joseph il le fit revêtir d’une robe de fin lin, et lui
 mit au cou un collier d’or.
 
-// le fil monter sur Vun de ses chars, qui était le second
+le fil monter sur Vun de ses chars, qui était le second
 après le sien, et fil crier par un Héraut, que tout le
 monde fléchit le genou devant lui, et que tous recon-
 nussent qu’il avait été établi pour commander à toute
 
-Le Roi dit encore à Joseph : Je suis Pharaon ; nul ne
+Le Roi dit encore à Joseph: Je suis Pharaon; nul ne
 remuera ni le pied ni la main dans toute l’Égypte
 que par votre commandement.
 
-// changea aussi son nom, et il l’appela en langue
+changea aussi son nom, et il l’appela en langue
 
 …le Sauveur du Monde.
 
-Les sept années de fertilité vinrent donc ;
+Les sept années de fertilité vinrent donc;
 et le blé ayant été mis en gerbes,
-fut serré ensuite dans les greniers de V Égypte.
+fut serré ensuite dans les greniers de Égypte.
 
-Trente et trois années de fertilité vinrent donc ;
+Trente et trois années de fertilité vinrent donc;
 et le blé ayant été mis en gerbes,
 fut serré ensuite dans les greniers
 d’une Égypte éternelle.
@@ -4033,15 +4033,15 @@ Ces sept années de fertilité d’Égypte étant donc
 Ces trente-trois années de fertilité du cœur étant donc
 
 Les sept années de stérilité vinrent ensuite,
-selon la prédiction de Joseph :
+selon la prédiction de Joseph:
 
 Les innombrables années de la stérilité du cœur
 
-Selon la prédiction de Jésus :
+Selon la prédiction de Jésus:
 
-Une grande famine survint dans tout le monde ;
+Une grande famine survint dans tout le monde;
 
-Une grande famine survint dans tout le monde ;
+Une grande famine survint dans tout le monde;
 
 Mais il y avait du blé dans toute l’Égypte.
 
@@ -4055,20 +4055,20 @@ Et à présent c’est nous ce peuple qui est pressé de la
 Et nous crions vers Dieu,
 Lui demandant de quoi vivre.
 
-Mais il leur dit : Allez trouver Joseph,
+Mais il leur dit: Allez trouver Joseph,
 Et faites tout ce quil vous dira.
 
-Mais il nous dit : Allez trouver Jésu«
+Mais il nous dit: Allez trouver Jésu«
 Et faites tout ce qu’il vous dira.
 
 Cependant la famine croissait tous les jours dans toute
-la terre :
+la terre:
 
 et Joseph ouvrant tous les greniers,
 
 vendait du blé aux Egyptiens,
 
-parce qu ils étaient tourmentés eux-mêmes de la famine.
+parce ils étaient tourmentés eux-mêmes de la famine.
 
 Et on venait de toutes les provinces en Égypte pour
 acheter de quoi vivre, et pour trouver quelquesoula-
@@ -4076,9 +4076,9 @@ acheter de quoi vivre, et pour trouver quelquesoula-
 dans la rigueur de cette famine.
 
 Cependant Jacoh ayant oui dire quon vendait du hlé en
-Égypte, dit à ses enfants : Pourquoi négligez-vous’ ?
+Égypte, dit à ses enfants: Pourquoi négligez-vous’?
 
-fai appris qu on vend du hlé en Égypte : allez-y acheter
+fai appris on vend du hlé en Égypte: allez-y acheter
 
 ce qui nous est nécessaire, afin que nous puissions
 vivre et que nous ne mourions pas de faim.
@@ -4091,7 +4091,7 @@ qu’il craignait
 qu’il ne lui arrivât quelque accident dans le chemin.
 
 Ils entrèrent dans l’Égypte avec les autres qui y
-allaient pour y acheter ;
+allaient pour y acheter;
 
 parce que la famine était dans le pays de Chanaan.
 
@@ -4100,13 +4100,13 @@ Joseph commandait dans toute l’Égypte,
 et le hlé ne se vendent aux peuples que par son ordre.
 Ses frères l’ayant donc adoré,
 
-il les reconnut : et leur parlant assez rudement, comme
-à des étrangers, il leur dit :
+il les reconnut: et leur parlant assez rudement, comme
+à des étrangers, il leur dit:
 
 faisant un peu la grosse voix
-D’où venez-vous ?
+D’où venez-vous?
 
-Ils lui répondirent :
+Ils lui répondirent:
 
 faisant un peu la petite voix
 Du pays de Chanaan pour acheter ici de quoi vivre.
@@ -4116,14 +4116,14 @@ néanmoins connu d’eux.
 
 Alors se souvenant des songes qu’il avait eus autrefois.
 
-il leur dit : Vous êtes des espions, et vous êtes venus ici
+il leur dit: Vous êtes des espions, et vous êtes venus ici
 pour considérer les endroits les plus faibles de
 l’Égypte.
 
-Ils répondirent : Seigneur, cela n’est pas ainsi ’ mais
+Ils répondirent: Seigneur, cela n’est pas ainsi mais
 vos serviteurs sont venus ici pour acheter du blé.
 
-A^ou5 sommes tous enfants d’un seul homme,
+sommes tous enfants d’un seul homme,
 
 Nous sommes tous enfants d’un seul Dieu.
 
@@ -4132,12 +4132,12 @@ venons avec des pensées de paix,
 
 Et paix sur la terre aux hommes de bonne volonté.
 
-el vos serviteurs nont aucun mauvais dessein.
+vos serviteurs nont aucun mauvais dessein.
 
-Leur répondit : Non cela n’est pas ; mais vous êtes venus
+Leur répondit: Non cela n’est pas; mais vous êtes venus
 pour remarquer ce qu’il y a de moins fortifié dans
 
-Ils luidirent : Nous sommes douze frères, enfants d’un
+Ils luidirent: Nous sommes douze frères, enfants d’un
 même homme dans le pays de Chanaan, et vos servi-
 teurs. Le dernier est avec notre père, et l’autre nest
 plus.
@@ -4147,14 +4147,14 @@ Comme était Benjamin dans la maison de Jacob, le
 dernier est avec notre père, ainsi est l’espérance dans
 la maison des vertus.
 
-Voilà, dit Joseph, ce que je disais : Vous êtes des espions
+Voilà, dit Joseph, ce que je disais: Vous êtes des espions
 
 faisant la grosse voix et s’adoucissant peu à peu
 
-[ dailleurs toute cette récitation sacrée, venue dans le courant
-même de leur commune oraison, se fait : avant tout comme
-d’une belle histoire ; ensemble comme d’une histoire amu-
-sante ; en dessous comme d’une histoire de tendresse ; d’une
+dailleurs toute cette récitation sacrée, venue dans le courant
+même de leur commune oraison, se fait: avant tout comme
+d’une belle histoire; ensemble comme d’une histoire amu-
+sante; en dessous comme d’une histoire de tendresse; d’une
 tendresse grandissante, si grande qu’en même temps on s’en
 défend constamment jusqu’à l’éclatement final]
 
@@ -4166,7 +4166,7 @@ une très grosse voix]
 Vive Pharaon, vous ne sortirez point d’ici jusquk ce
 que le dernier de vos frères y soit venu.
 
-Envoyez l’un de vous pour Vy amener : cependant vous
+Envoyez l’un de vous pour amener: cependant vous
 demeurerez en prison jusqu’à ce que j’aye reconnu si
 ce que vous dites est vrai ou faux, autrement, même jeu,
 vive Pharaon, vous êtes des espions.
@@ -4175,26 +4175,26 @@ Il les fit donc mettre en prison pour trois jours.
 
 Et le troisième jour il les fît sortir de prison, et leur
 
-dit. : Faites ce que je vous dis, et vous vivrez : car Je
+dit.: Faites ce que je vous dis, et vous vivrez: car Je
 
 Si vous venez ici dans un esprit de paix, que /’un de vos
-frères demeure lié dans la prison ; et allez-vous-en
-vous ; emportez en votre pays le blé que vous avez
+frères demeure lié dans la prison; et allez-vous-en
+vous; emportez en votre pays le blé que vous avez
 
 et amenez-moi le dernier de vos frères, afin que Je
 puisse reconnaître si ce que vous dites est véritable,
 et que vous ne mouriez point. Ils firent ce qu’il leur
 avait ordonné.
 
-Et ils se disaient l’un à l’autre : C’est Justement que
+Et ils se disaient l’un à l’autre: C’est Justement que
 nous souffrons tout ceci, parce que nous avons péché
 contre notre frère, et que voyant la douleur de son
-âme lorsquilnoas priait, nous ne V écoutâmes point :
+âme lorsquilnoas priait, nous ne écoutâmes point:
 cest pour cela que nous sommes tombés dans cette
 
-Ruben l’un d’entre eux leur disait : Ne vous dis-Je pas :
+Ruben l’un d’entre eux leur disait: Ne vous dis-Je pas:
 Ne commettez point un si grand crime contre cet
-enfant ? El vous ne m’ écoutâtes point. C’est son sang
+enfant? vous ne écoutâtes point. C’est son sang
 maintenant que l’on redemande.
 
 Ils ne savaient pas que Joseph les entendit, parce qu’il
@@ -4204,11 +4204,11 @@ Mais il se retira pour un peu de temps, et versa des
 
 Et étant revenu il leur parla.
 
-Il fit prendre Siméon, et le fit lier devant eux ; et il
+Il fit prendre Siméon, et le fit lier devant eux; et il
 commanda à ses officiers d’emplir leurs sacs de blé,
 et de remettre dans le sac de chacun [d’eux l’argent,
 en y ajoutant encore des vivres pour se nourrir
-pendant le chemin : ce qui fut exécuté aussitôt.
+pendant le chemin: ce qui fut exécuté aussitôt.
 
 Les frères de Joseph s’en allèrent donc, emportant leur
 hlé sur leurs ânes.
@@ -4216,10 +4216,10 @@ hlé sur leurs ânes.
 Et l’un d’eux ayant ouvert son sac dans l’hôtellerie pour
 donner à manger à son âne, vit son argent à l’entrée
 
-et il dit à ses frères : On m’a rendu mon argent ; le
+et il dit à ses frères: On m’a rendu mon argent; le
 voici dans mon sac. Ils furent tous saisis d’étonne-
-ment et de trouble ; et ils s’ entredisaient : Quelle est
-cette conduite de Dieu sur nous ?
+ment et de trouble; et ils entredisaient: Quelle est
+cette conduite de Dieu sur nous?
 
 Lorsqu’ils furent arrivés chez Jacob leur père au pays
 de Chanaan, ils lui racontèrent tout ce qui leur était
@@ -4227,21 +4227,21 @@ de Chanaan, ils lui racontèrent tout ce qui leur était
 Le Seigneur de ce pays-là nous a parlé rudement, et il
 nous a pris pour des espions qui venaient observer le
 
-Nous lui avons répondu : Nous sommes gens paisibles,
+Nous lui avons répondu: Nous sommes gens paisibles,
 et très éloignés d’avoir aucun niauvms dessein.
 
 Xous élions douze frères enfants d’un même père.
 
 Nous étions douze frères enfants d’un même père. L’un
-n est plus, le plus jeune est avec notre père au pays de
+est plus, le plus jeune est avec notre père au pays de
 
-Il nous a répondu : Je veux éprouver s’il est vrai que
+Il nous a répondu: Je veux éprouver s’il est vrai que
 vous n’ayez que des pensées de paix. Laissez-moi donc
-icil’un de vos frères ; prenez le hlé qui vous est néces-
-saire pour vos maisons, et vous en allez ;
+icil’un de vos frères; prenez le hlé qui vous est néces-
+saire pour vos maisons, et vous en allez;
 
 et amenez-moi le plus jeune de vos frères, afin que je
-sache que vous n’êtes point des espions ; que vous puis-
+sache que vous n’êtes point des espions; que vous puis-
 siez ensuite remener avec vous celui que je retiens
 prisonnier, et quil vous soit permis à l’avenir d’ache-
 ter ici ce que vous voudrez.
@@ -4250,14 +4250,14 @@ Après avoir ainsi parlé, comme ils jetaient leur hlé
 hors de leurs sacs, ils trouvèrent chacun leur argent
 lié à l’entrée du sac, et ils en furent tous épouvantés.
 
-Alors Jacob, leur père, leur dit :
+Alors Jacob, leur père, leur dit:
 
 Vous m’avez réduit à être sans enfants. Joseph n’est
 plus au monde, Siméon est en prison, et vous voulez
 ni enlever Benjamin. Tous ces maux sont retombés
 sur moi.
 
-Ruben lui répondit : Faites mourir mes deux enfants,
+Ruben lui répondit: Faites mourir mes deux enfants,
 si je ne vous le ramène. Confiez-le moi, et je vous le
 
 Non, dit Jacob., mon fils nira point avec vous. Son frère
@@ -4266,35 +4266,35 @@ malheur au pays où vous allez, vous accablerez ma
 vieillesse d’une douleur qui m’emportera dans le
 
 Cependant la famine désolait exlraordinairement tout
-le pays ;
+le pays;
 
 et le blé que les enfants de Jacob avaient apporté
-d’Égypte étant consumé, Jacob leur dit :
+d’Égypte étant consumé, Jacob leur dit:
 
 Retournez pour nous acheter un peu de blé.
 
-Juda lui répondit : Celui qui commande en ce pays-là
-nous a déclaré sa volonté avec serment, en disant :
+Juda lui répondit: Celui qui commande en ce pays-là
+nous a déclaré sa volonté avec serment, en disant:
 Vous ne verrez point mon visage à moins que vous
 n’ameniez avec vous le plus jeune de vos frères.
 
 Si vous voulez donc l’envoyer avec nous, nous irons
 ensemble, et nous achèterons ce qui vous est néces-
 
-Que si vous ne le voulez pas, nous n irons point : car
+Que si vous ne le voulez pas, nous irons point: car
 cet homme, comme nous l’avons dit plusieurs fois,
 nous a déclaré que nous ne verrions point son visage,
 si nous n’avions avec nous notre jeune frère.
 
-Israël leur dit : C’est pour mon malheur que vous lui
+Israël leur dit: C’est pour mon malheur que vous lui
 avez appris que vous aviez encore un autre frère.
 
-Mais ils lui répondirent : Il nous demanda par ordre
-toute la suite de notre famille : Si notre père vivait ;
-si nous avions un frère : et nous lui répondîmes
+Mais ils lui répondirent: Il nous demanda par ordre
+toute la suite de notre famille: Si notre père vivait;
+si nous avions un frère: et nous lui répondîmes
 conformément à ce qu’il nous avait demandé. Pou-
-vions-nous deviner qu’il nous dirait : Amenez avec
-vous votre frère ?
+vions-nous deviner qu’il nous dirait: Amenez avec
+vous votre frère?
 
 Juda dit encore à son père.Envoyez l’enfant avec moi,
 afin que nous puissions partir et avoir de quoi vivre,
@@ -4304,13 +4304,13 @@ Je me charge de cet enfant, et c’est à moiàqui vous en
 vous le rends, je consens que vous ne me pardonniez
 jamais cette faute.
 
-Si nous n avions point tant différé, nous serions déjà
+Si nous avions point tant différé, nous serions déjà
 revenus une seconde fois.
 
-Isniël leur père leur dit donc : Si cest une nécessité,
+Isniël leur père leur dit donc: Si cest une nécessité,
 faites ce que vous voudrez. Prenez avec vousdes plus
 excellents fruits de ce pays-ci, pour en faire présent
-à celui qui commande ; un peu de résine, de miel, de
+à celui qui commande; un peu de résine, de miel, de
 storax, de myrrhe, de térébenthine et d’amandes.
 
 Portez aussi deux fois autant d’argent qu’au premier
@@ -4320,24 +4320,24 @@ vos sacs, de peur que ce ne soit une méprise.
 Enfin menez votre frère avec vous, et allez vers cet
 homme.
 
-Je prie mon Dieu le tout-puissant de 7)ous le rendre
+Je prie mon Dieu le tout-puissant de le rendre
 favorable, qu’il renvoyé avec vous votre frère qu’il
-tient prisonnier, et Benjamin : cependant Je demeu-
+tient prisonnier, et Benjamin: cependant Je demeu-
 rerai seul, comme si fêtais sans enfants.
 
 Ils prirent donc avec eux les présents, et le double de
-l’argent, avec Benjamin ; et étantparlis ils arrivèrent
+l’argent, avec Benjamin; et étantparlis ils arrivèrent
 en Égypte, où ils se présentèrent devant Joseph.
 
 Joseph les ayant vus, et Benjamin avec eux, dit à son
-Intendant : Faites entrer ces personnes chez moi ;
-tuez des victimes, etpréparez un festin : parce qu’ils
+Intendant: Faites entrer ces personnes chez moi;
+tuez des victimes, etpréparez un festin: parce qu’ils
 mangeront à midi avec moi.
 
 L’Intendant exécuta ce qui lui avait été commandé, et
 il les fit entrer dans la maison.
 
-Alors étant saisis de crainte, ils s’enlredisaient : C’est
+Alors étant saisis de crainte, ils s’enlredisaient: C’est
 à cause de cet argent que nous avons remporté dans
 nos sacs qu’il nous fait entrer ici, pour faire retom-
 ber sur nous ce reproche, et nous opprimer en nous
@@ -4346,7 +4346,7 @@ réduisant en servitude, nous et nos ânes.
 C’est pourquoi étant encore à la porte, ils s’appro-
 chèrent de l’Intendant de Joseph,
 
-et lui dirent : Seigneur, nous vous supplions de nous
+et lui dirent: Seigneur, nous vous supplions de nous
 écouter. Nous sommes déjà venus une fois acheter
 
 et après l’avoir acheté, lorsque nous fûmes arrivés à
@@ -4355,12 +4355,12 @@ notre argent, que nous vous rapportons maintenant
 au même poids.
 
 Et nous vous en rapportons encore d’autre, pour acheter
-ce qui nous est nécessaire : mais nous ne savons en
-aucune sorte qui a pu remettre cet argent dans nof<
+ce qui nous est nécessaire: mais nous ne savons en
+aucune sorte qui a remettre cet argent dans nof<
 
-L’Intendant leur répondit : Ayez l’esprit en repos ; ne
+L’Intendant leur répondit: Ayez l’esprit en repos; ne
 craignez point. Votre Dieu et le Dieu de votre père
-vous H donné des trésors dans vos sacs : car pour moi
+vous donné des trésors dans vos sacs: car pour moi
 j’ai reçu Varqentque vous m’avez donné, et j’ensuis
 content. Il fit sortir aussi Siméon, et il le leur
 
@@ -4373,30 +4373,30 @@ avait dit qu’ils devaient manger en ce lieu-là.
 
 Joseph étant donc entré dans sa maison, ils lui offrirent
 leurs présents qu’ils tenaient en leurs mains, et ils
-V adorèrent en se baissant jusqu en terre.
+adorèrent en se baissant jusqu en terre.
 
-// les salua aussi, en leur faisant bon visage, et il leur
-demanda : Votre père, ce vieillard dont vous m’aviez
-parlé, vit-il encore ? Se porte-t-il bien ?
+les salua aussi, en leur faisant bon visage, et il leur
+demanda: Votre père, ce vieillard dont vous m’aviez
+parlé, vit-il encore? Se porte-t-il bien?
 
-Ils lui répondirent : Notre père votre serviteur est
-encore en vie, et il se porte bien : et en se baissant
-profondément, ils t adorèrent.
+Ils lui répondirent: Notre père votre serviteur est
+encore en vie, et il se porte bien: et en se baissant
+profondément, ils adorèrent.
 
 Joseph levant les yeux vit Benjamin son frère, fils de
-Rachel sa mère, et leur dit : Est-ce la le plus jeune
-de vos frères dont vous m’aviez parlé ? Mon fils,
+Rachel sa mère, et leur dit: Est-ce la le plus jeune
+de vos frères dont vous m’aviez parlé? Mon fils,
 ajouta-t-il, je prie Dieu quil vous soit toujours
 
 Et il se hâta, parce que ses entrailles avaient été émues
 en voyant son frère, et qu’il ne pouvait plus retenir
 ses larmes. Passant donc dans une chambre, il
 
-El après s’être lavé le visage il revint^ se faisant
-violence, et il dit : Servez à manger.
+après s’être lavé le visage il revint^ se faisant
+violence, et il dit: Servez à manger.
 
-On servit Joseph h part, et ses frères k part, et les Egyp-
-tiens qui mangeaient avec lui à part : {car il n est pas
+On servit Joseph part, et ses frères part, et les Egyp-
+tiens qui mangeaient avec lui à part: {car il est pas
 permis aux Egyptiens de manger avec les Hébreux,
 et ils croient qu’un festin de cette sorte serait profane).
 
@@ -4405,14 +4405,14 @@ mier selon son rang, et le plus jeune selon son âge.
 Et ils furent extrêmement surpris,
 
 en voyant les parts qu’il leur avait données, de ce que
-la part la plus grande était venue à Benjamin ; car
+la part la plus grande était venue à Benjamin; car
 elle était cinq fois plus grande que celle des autres.
 Ils burent ainsi avec Joseph, et ils firent grande
 
-Or Joseph donna cet ordre à i Intendant de sa maison,
-et lui dit : Mettez dans les sacs de ces personnes
+Joseph donna cet ordre à Intendant de sa maison,
+et lui dit: Mettez dans les sacs de ces personnes
 autant de blé quils en pourront tenir, et l’argent de
-chacun à l’entrée du sac ;
+chacun à l’entrée du sac;
 
 et mettez ma coupe d’argent à l’entrée du sac du plus
 jeune, avec l’argent quil a donné pour le blé. Cet
@@ -4422,32 +4422,32 @@ Et dès le malin on les laissa aller avec leurs ânes.
 
 Lorsqu’ils furent sortis de la ville, comme ils n’avaient
 fait encore que peu de chemin, Joseph appela l’Inten-
-dant de sa maison, et lui dit : Courez vile après ces
-gens ; arrêtez-les, et leur dites : Pourquoi avez-vous
-rendu le mal pour le bien ?
+dant de sa maison, et lui dit: Courez vile après ces
+gens; arrêtez-les, et leur dites: Pourquoi avez-vous
+rendu le mal pour le bien?
 
 Lacoupeque vous avez dérobée, est celle dans laquelle
 mon Seigneur boit, et dont il se sert’ pour deviner.
 Vous avez fait une très méchante action.
 
-L’Intendant fit ce qui lui avait été commandé ; et les
+L’Intendant fit ce qui lui avait été commandé; et les
 ayant arrêtés, il leur dit tout ce qu’il lui avait été
 ordonné de leur dire.
 
-Ils lui répondirent : Pourquoi mon seigneur parle-t-il
+Ils lui répondirent: Pourquoi mon seigneur parle-t-il
 ainsi à ses serviteurs, et les croit-il capables d’une
 
 Nous vous avons rapporté du pays de Chanaan l’argent
 que nous trouvâmes à l’entrée de nos sacs. Comment
 donc se pourrait-il faire que nous eussions dérobé de
-la maison de votre Seigneur de Vor ou de l’argent ?
+la maison de votre Seigneur de Vor ou de l’argent?
 
-Que celui de vos serviteurs,. . .
+Que celui de vos serviteurs,...
 
 quel qu’il puisse être, à qui l’on trouvera ce que vous
-cherchez, meure ; et nous serons esclaves de mon
+cherchez, meure; et nous serons esclaves de mon
 
-Illeur dit : Oui, que ce que vous prononcez soit exécuté.
+Illeur dit: Oui, que ce que vous prononcez soit exécuté.
 Quiconque se trouvera avoir pris ce que je cherche,
 sera mon esclave, et vous en serez innocents.
 
@@ -4462,67 +4462,67 @@ Alors ayant déchiré leurs vêtements et déchargé leurs
 
 Juda se présenta le premier avec ses frères devant
 
-Joseph, (fui n était pas encore sorti du lieu où il était :
+Joseph, (fui était pas encore sorti du lieu où il était:
 et ils se prosternèrent tous ensemble à terre devant
 
-Joseph leur dit : Pourquoi avez-vous agi ainsi ? Ignorez-
-vous quil ny a personne qui ni égale dans la science
-de deviner les choses cachées ?
+Joseph leur dit: Pourquoi avez-vous agi ainsi? Ignorez-
+vous quil a personne qui ni égale dans la science
+de deviner les choses cachées?
 
-Juda lui dit : Que répondrons-nous à mon Seigneur ?
+Juda lui dit: Que répondrons-nous à mon Seigneur?
 Que lui dirons-nous, et que pouvons-nous lui repré-
 senter avec quelque ombre de justice pour notre
-défense ? Dieu a trouvé V iniquité de vos serviteurs.
+défense? Dieu a trouvé iniquité de vos serviteurs.
 Nous sommes tous les esclaves de mon Seigneur, nous
 et celui à qui on a trouvé la coupe.
 
-Joseph répondit : Dieu me garde d’agir de la sorte. Que
-celui qui a pris ma coupe soit mon esclave ; et pour
+Joseph répondit: Dieu me garde d’agir de la sorte. Que
+celui qui a pris ma coupe soit mon esclave; et pour
 vous autres, allez en liberté retrouver votre père.
 
 Juda Rapprochant alors plus près de Joseph lui dit avec
-assurance : Mon Seigneur, permettez, je vous prie, à
+assurance: Mon Seigneur, permettez, je vous prie, à
 votre serviteur de vous adresser sa parole, et ne vous
-mettez pas en colère contre votre esclave : car après
+mettez pas en colère contre votre esclave: car après
 Pharaon, c’est vous qui êtes
 
-mon Seigneur. Vous avez demandé d’ abord à vos servi-
-teurs : Avez-vous encore votre père ou quelque autre
-frère ?
+mon Seigneur. Vous avez demandé abord à vos servi-
+teurs: Avez-vous encore votre père ou quelque autre
+frère?
 
-Et nous vous avons répondu, mon Seigneur : Nous
+Et nous vous avons répondu, mon Seigneur: Nous
 avons un père qui est vieux, et un jeune frère qu’il a
-eu dans sa vieillesse, dont le frère qui était né de la
-même n\èreest mort : il ne reste plus que celui-là, et
+dans sa vieillesse, dont le frère qui était de la
+même n\èreest mort: il ne reste plus que celui-là, et
 son père Vaime tendrement.
 
-Vous dites alors à vos serviteurs : Amenez-le moi, Je
+Vous dites alors à vos serviteurs: Amenez-le moi, Je
 serai bien aise de le voir.
 
-Mais nous vous répondîmes, mon Seigneur : Cet enfant
+Mais nous vous répondîmes, mon Seigneur: Cet enfant
 ne peut quitter son père, car s’il le quitte, il le fera
 
-Vous dites à vos serviteurs : Si le dernier de vos frères
+Vous dites à vos serviteurs: Si le dernier de vos frères
 ne vient avec vous, vous ne verrez plus mon visage.
 
 Lors donc que nous fumes retournés vers notre père
 votre serviteur, nous lui rapportâmes tout ce que
 vous aviez dit, mon Seigneur.
 
-Et notre père nous ayant dit : Retournez pour nous
-acheter un peu de blé :
+Et notre père nous ayant dit: Retournez pour nous
+acheter un peu de blé:
 
-nous lui répondîmes : A’ous ne pouvons y aller. Si
+nous lui répondîmes: A’ous ne pouvons y aller. Si
 notre jeune frère y vient avec nous, nous irons
 
-ensemble : mais àmoins qu’Une vienne^ nous n’osons
+ensemble: mais àmoins qu’Une vienne^ nous n’osons
 nous présenter devant celui qui commande.
 
-Il nous répondit : Vous savez que j’ai eu deux fils de
+Il nous répondit: Vous savez que j’ai deux fils de
 Rachel ma femme.
 
 L’un d’eux étant allé aux champs, vous niavez dit
-quune bêle V avait dévoré, et il ne paraît plus jusqu
+quune bêle avait dévoré, et il ne paraît plus jusqu
 cette heure.
 
 Si vous emmenez encore celui-ci, et quil lui arrive
@@ -4530,7 +4530,7 @@ quelque accident dans lecheniin, vous accablerez ma
 vieillesse d’une a/fiiction qui la conduira dans le
 
 Si je me présente donc à mon père votre serviteur, et
-que l’enfant n y soit pas, comme sa vie dépend de celle
+que l’enfant y soit pas, comme sa vie dépend de celle
 de son fils,
 
 lorsqu’il verra qu’il n’est point avec nous, il mourra,
@@ -4539,7 +4539,7 @@ qui le mènera au tombeau.
 
 Que ce soit donc plutôt moi qui sois votre esclave,
 puisque je me suis rendu caution de cet enfant, et
-que j’en ai répondu à mon père, en lui disant : Si je
+que j’en ai répondu à mon père, en lui disant: Si je
 ne le ramène, je veux bien que mon père m’impute
 cette faute, et qu’il ne me la pardonne jamais.
 
@@ -4552,18 +4552,18 @@ l’enfant soit avec nous, de peur que je ne sois moi-
 même témoin de Vextrême affliction qui accablera
 notre père.
 
-elle va au devant de la rccilation.
+elle au devant de la rccilation.
 
-Joseph ne pouvait plus se retenir ;
+Joseph ne pouvait plus se retenir;
 
-Joseph ne pouvait plus se retenir ; et parce quil était
+Joseph ne pouvait plus se retenir; et parce quil était
 environné de plusieurs personnes,
 
 ne se retenant plus ellé-niéme et saisissant d’autorité la
 
 elle recommence pour avoir la reconnaissance dans son
 
-Joseph ne pouvait plus se retenir ; et parce quil était
+Joseph ne pouvait plus se retenir; et parce quil était
 environné de plusieurs personnes, il commanda que
 Von fît sortir lout le monde, afin que nul étranger
 ne fût présent lorsqu’il se ferait connaître à ses
@@ -4572,21 +4572,21 @@ Alors les larmes lui tombant des yeux, il éleva sa voix,
 qui fut entendue des Égyptiens, et de toute la maison
 de Pharaon.
 
-Et il dit H ses frères : Je suis Joseph. Mon père vil-il
-encore ?
+Et il dit ses frères: Je suis Joseph. Mon père vil-il
+encore?
 
-Je suis Joseph ; je suis Joseph ; je suis Jésus voire frère.
-Qu’attendez-vous ? Mon père vif-il encore ?
+Je suis Joseph; je suis Joseph; je suis Jésus voire frère.
+Qu’attendez-vous? Mon père vif-il encore?
 
 Mais ses frères ne purent point lui répondre, tant ils
 étaient saisis de frayeur.
 
-// leur parla avec douceur., et leur dit : Approchez-vous
-de moi. Et s’ étant approchés de lui, il ajouta : Je suis
+leur parla avec douceur., et leur dit: Approchez-vous
+de moi. Et étant approchés de lui, il ajouta: Je suis
 Joseph votre frère que vous avez vendu en Égypte.
 
 Ne craignez point et ne vous affligez point de ce que
-vous m’avez vendu en ce pays-ci : car Dieu m’a
+vous m’avez vendu en ce pays-ci: car Dieu m’a
 envoyé en Égypte avant vous pour votre salut.
 
 Il y a déjà deux ans que la famine a commencé sur la
@@ -4600,17 +4600,17 @@ Ce n’est point par votre conseil que fai été envoyé ici,
 mais par la volonté de Dieu, qui m’a rendu comme
 prince de toute l’Égypte.
 
-Hàtez-vous d’aller trouver mon père, et dites- lu i : Voici
-ce que vous mande votre fils Joseph : Dieu m’a rendu
-le maître de toute l Égypte. Venez me trouver, ne
+Hàtez-vous d’aller trouver mon père, et dites-: Voici
+ce que vous mande votre fils Joseph: Dieu m’a rendu
+le maître de toute Égypte. Venez me trouver, ne
 
 vous demeurerez dans la terre de Gessen, vous serez
-près de moi vous et vos enfants ; et les enfants de vos
-enfants ; vos brebis, vos troupeaux de bœufs, et tout
+près de moi vous et vos enfants; et les enfants de vos
+enfants; vos brebis, vos troupeaux de bœufs, et tout
 ce que vous possédez.
 
-Et je vous nourrirai là parce qu’il reste encore cinq
-années de famine, de peur qu’autrement vous né
+Et je vous nourrirai parce qu’il reste encore cinq
+années de famine, de peur qu’autrement vous
 périssiez avec toute votre famille et tout ce qui est à
 vous.
 
@@ -4618,31 +4618,31 @@ Vous voyez de vos yeux, vous et mon frère Benjamin,
 que c’est moi-même qui vous parle de ma propre
 
 Annoncez à mon père quelle est cette gloire, et tout ce
-que vous avez vu dans l’Égypte. Hâtez-vous de me
+que vous avez dans l’Égypte. Hâtez-vous de me
 l’amener.
 
-Et s’ étant jeté au cou de Benjamin son frère pour
-l’embrasser, il pleura ; et Benjamin pleura aussi en
+Et étant jeté au cou de Benjamin son frère pour
+l’embrasser, il pleura; et Benjamin pleura aussi en
 le tenant embrassé.
 
 Joseph embrassa aussi tous ses frères, il pleura sur
-chacun d’eux ; et après cela ils se rassurèrent pour
+chacun d’eux; et après cela ils se rassurèrent pour
 lui parler.
 
 Aussitôt il se répandit un (/rand bruit dans toute la
 Cour du Roi, que les frères de Joseph étaient venus.
 Pharaon s’en réjouit avec toute sa maison.
 
-Et il dit à Joseph qu’il donnât cet ordre à ses frères :
-Chargez vos ânes de blé, retournez en Chanaan ;
+Et il dit à Joseph qu’il donnât cet ordre à ses frères:
+Chargez vos ânes de blé, retournez en Chanaan;
 
-amenez de là votre père et toute votre famille, et venez
+amenez de votre père et toute votre famille, et venez
 me trouver. Je vous donnerai tous les biens de
 meilleur dans cette terre.
 
 Ordonnez-leur aussi d’emmener des chariots de
 l’Égypte, pour faire venir leurs femmes avec leurs
-petits enfants, et dites-leur : Amenez votre père, et
+petits enfants, et dites-leur: Amenez votre père, et
 hâtez-vous de revenir le plus tôt que vous pourrez.
 
 sans rien laisser de ce qui est dans vos maisons, parce
@@ -4652,34 +4652,34 @@ Les enfants d’Israël firent ce qui leur avait été ordonné.
 Et Joseph leur fit donner des chariots, selon l’ordre
 qu’il en avait reçu de Pharaon, et des vivres pour le
 
-// commanda, aussi que ion donnai deux robes à chacun
-de ses frères ; mais il en donna cinq des plus belles à
+commanda, aussi que ion donnai deux robes à chacun
+de ses frères; mais il en donna cinq des plus belles à
 Benjamin, et trois cents pièces d’argent.
 
 Il envoya autant d’argent et de robes pour son père,
 avec dix ânes chargés de tout ce qu’il y avait déplus
-précieux dans i Égypte, et autant d’ânesses qui por-
+précieux dans Égypte, et autant d’ânesses qui por-
 taient du blé et du pain pour le chemin.
 
-// renvoya donc ses frères, et leur dit en partant : Ne
+renvoya donc ses frères, et leur dit en partant: Ne
 vous mettez point en colère pendant le chemin.
 
 Ils vinrent donc de l’Égypte au pays de Chanaan vers
 Jacob leur père.
 
-Et ils lui dirent cette nouvelle ; Votre fils Joseph est
+Et ils lui dirent cette nouvelle; Votre fils Joseph est
 vivant et commande dans toute la terre d’Égypte.
 Ce que Jacob ayant entendu, il se réveilla comme
 d’un profond sommeil, et cependant il ne pouvait
 croire ce qu’ils lui disaient.
 
 Ses enfants insistaient au contraire, en lui rapportant
-comment toute la chose s’était passée. Enfin ayant vu
+comment toute la chose s’était passée. Enfin ayant
 
 les chariots^ et tout ce que Joseph lui envoyait^ il
-reprit ses esprits ;
+reprit ses esprits;
 
-et il dit : Je n’ai plus rien à souhaiter, puisque mon fils
+et il dit: Je n’ai plus rien à souhaiter, puisque mon fils
 Joseph vit encore. J’irai et je le verrai avant que je
 
 Israël partit donc avec tout ce qu’il avait, et vint au
@@ -4687,13 +4687,13 @@ Puits du jurement, et ayant immolé en ce lieu des
 victimes au Dieu de son père Isaac^
 
 il Ventendit dans une vision pendant la nuit, qui l’appe-
-lait, et qui lui disait : Jacoh, Jacob. Il lui répimdit :
+lait, et qui lui disait: Jacoh, Jacob. Il lui répimdit:
 
-Et Dieu ajouta : Je suis le Dieu très puissant de votre
+Et Dieu ajouta: Je suis le Dieu très puissant de votre
 père, ne craignez point, allez en Égypte, parce que
 je vous y rendrai le chef d’un grand peuple.
 
-.rirai là avec vous, et je vous en ramènerai lorsque vous
+.rirai avec vous, et je vous en ramènerai lorsque vous
 
 Joseph aussi vous fermera les yeux de ses mains.
 
@@ -4703,10 +4703,10 @@ l’amenèrent avec ses petits enfants et leurs femmes,
 dans les chariots que Pharaon avait envoyés pour
 faire venir ce vieillard,
 
-avec tout ce qu’il possédait au pays de Chanaan ; et il
-arriva en Eqypte avec toute sa race ;
+avec tout ce qu’il possédait au pays de Chanaan; et il
+arriva en Eqypte avec toute sa race;
 
-ses fils, ses petits-fils, ses filles, et tout ce qui était né
+ses fils, ses petits-fils, ses filles, et tout ce qui était
 
 Tous ceux qui vinrent en Égypte avec Jacoh, et qui
 étaient sortis de lui, sans compter les femmes de ses
@@ -4717,46 +4717,46 @@ Plus les deux enfants de Joseph qui lui étaient nés en
 Jacoh qui vinrent en Égypte, furent au nombre de
 soixante et dix.
 
-Or Jacob envoya Juda devant lui vers Joseph pour
+Jacob envoya Juda devant lui vers Joseph pour
 l’avertir de sa venue, afin quil vint au-devant de lui
 en la terre de Gessen.
 
 Quand Jacoh y fut arrivé, Joseph fit mettre les chevaux
 à son chariot, et vint au même lieu au-devant de son
-père : et le voyant il se jeta à son cou, et l’embrassa
+père: et le voyant il se jeta à son cou, et l’embrassa
 
-Jacob dit à Joseph : Je mourrai maintenant avec Joie,
-puisque j’ai vu votre visage, et que Je vous laisse
+Jacob dit à Joseph: Je mourrai maintenant avec Joie,
+puisque j’ai votre visage, et que Je vous laisse
 après moi.
 
 Joseph dit à ses frères, et à toute la maison de son
-père : Je m’en vais dire à Pharaon, que mes frères
+père: Je m’en vais dire à Pharaon, que mes frères
 et tous ceux de la maison de mon père sont venus me
-trouver de la terre de Chanaan où ils demeuraient :
+trouver de la terre de Chanaan où ils demeuraient:
 
 que ce sont des pasteurs de brebis qui s’occupent à
 nourrir des troupeaux, et qu’ils ont amené avec eux
 leurs brebis, leurs bœufs et tout ce qu’ils pouvaient
 
-Et lorsque Pharaon vous fera venir, et vous demandera :
-Quelle est votre occupation ?
+Et lorsque Pharaon vous fera venir, et vous demandera:
+Quelle est votre occupation?
 
-vous lui répondrez : Vos serviteurs sont pasteurs depuis
+vous lui répondrez: Vos serviteurs sont pasteurs depuis
 leur enfance Jusqu’à présent, et nos pères l’ont tou-
 jours été comme nous. Vous direz ceci pour pouvoir
-demeurer dans la terre de Gessen ’ parce que les
+demeurer dans la terre de Gessen parce que les
 Eqyptiens ont en abomination tous les pasteurs de
 
-Joseph étant donc allé trouver Pharaon, lui dit : Mon
+Joseph étant donc allé trouver Pharaon, lui dit: Mon
 père et mes frères sont venus du pays de Chanaan,
 
 avec leurs brebis, leurs troupeaux, et tout ce qu’ils
 possèdent, et ils se sont arrêtés en la terre de Gessen.
 
-Il présenta aussi au Hoi cinq de ses frères ;
+Il présenta aussi au Hoi cinq de ses frères;
 
-Et le Roi leur ayant demandé : A quoi vous occupez-
-vous ? ils lui répondirent : Vos serviteurs sont pasteurs
+Et le Roi leur ayant demandé: A quoi vous occupez-
+vous? ils lui répondirent: Vos serviteurs sont pasteurs
 de brebis, comme l’ont été nos pères.
 
 Nous sommes venus passer quelque temps dans vos
@@ -4766,10 +4766,10 @@ troupeaux de vos serviteurs. Et nous vous supplions
 d’agréer que vos serviteurs demeurent dans la terre
 de Gessen.
 
-Le Roi dit donc à Joseph : Votre père et vos frères vous
+Le Roi dit donc à Joseph: Votre père et vos frères vous
 sont venus trouver.
 
-Vous pouvez choisir dans toute l’Égypte ; faites-les
+Vous pouvez choisir dans toute l’Égypte; faites-les
 demeurer dans l’endroit du pays qui vous paraîtra le
 meilleur, et donnez-leur la terre de Gessen. Que si
 vous connaissez qu’il y ait parmi eux des hommes
@@ -4779,9 +4779,9 @@ Joseph introduisit ensuite son père devant le Roi, et il
 le lui présenta. Jacob salua Pharaon, et luisouhaita
 toute sorte de prospérité.
 
-Le Roi lui ayant demandé quel âçfe il avait :
+Le Roi lui ayant demandé quel âçfe il avait:
 
-il lui répondit : Il y a cent trente ans que je suis voya-
+il lui répondit: Il y a cent trente ans que je suis voya-
 geur, et ce petit nombre d’années, qui n’est pas venu
 jusqu’à égaler celui des années de mes pères, a été
 traversé de beaucoup de maux.
@@ -4797,59 +4797,59 @@ Et il les nourrissait avec toute la maison de son père,
 donnant à chacun ce qui lui était nécessaire pour
 
 Car le pain manquait dans tout le monde, et la famine
-affligeait toute la terre ; mais principalement l’Égypte
+affligeait toute la terre; mais principalement l’Égypte
 et le pays de Chanaan.
 
-Israël demeura donc en Égypte, c est-à-dire, dans la
+Israël demeura donc en Égypte, est-à-dire, dans la
 terre de Gessen, dont il jouit comme de son bien
 propre, et où sa famille s’accrut et se multiplia
 
-Il y vécut dix-sept ans ; et tout le temps de sa vie fut de
+Il y vécut dix-sept ans; et tout le temps de sa vie fut de
 cent quarante-sept ans.
 
 Comme il vit que le jour de sa mort approchait, il
-appela son fils Joseph, et lui dit : Si j’ai trouvé grâce
+appela son fils Joseph, et lui dit: Si j’ai trouvé grâce
 devant vous, mettez votre main sous ma cuisse, et
 donnez-moi cette marque de la bonté que vous avez
 pour moi, de me promettre avec vérité, que vous ne
-m’enterrerez point dans V Égypte ;
+m’enterrerez point dans Égypte;
 
-mais que je reposerai avec mes pères ; que vous me
+mais que je reposerai avec mes pères; que vous me
 transporterez hors de ce pays, et me mettrez dans le
-sépulcre de mes ancêtres. Joseph lui répondit : Je
+sépulcre de mes ancêtres. Joseph lui répondit: Je
 ferai ce que vous me commandez.
 
 Jurez-le moi donc, dit Jacob. Et pendant que Joseph
 jurait, Israël adora Dieu, se tournant vers le chevet
 de son lit.
 
-Après cela on vint dire un jour à Joseph que son pè
-était malade : alors prenant avec lui ses deux fil
+Après cela on vint dire un jour à Joseph que son
+était malade: alors prenant avec lui ses deux fil
 Manassé, et Ephra’ùn, il Valla
 
 voir.
 
-On dit donc à Jacoh : Voici votre fils Joseph qui vient
+On dit donc à Jacoh: Voici votre fils Joseph qui vient
 vous rendre visite. Jacoh reprenant ses forces se mit
 sur son séant dans son lit.
 
-Il leur fit aussi ce commandement, et leur dit : Je vais
-être réuni à mon peuple ; ensevelissez-moi avec mes
+Il leur fit aussi ce commandement, et leur dit: Je vais
+être réuni à mon peuple; ensevelissez-moi avec mes
 pères dans la caverne double qui est dans le champ
 
-qui regarde Mambré au pays de Chanaan, et qu Abra-
+qui regarde Mambré au pays de Chanaan, et Abra-
 ham acheta d’Ephron Hethéen, avec tout le champ où
 elle est, pour y avoir son sépulcre.
 
-C’est là quil a été enseveli avec Sara sa femme. C’est
+C’est quil a été enseveli avec Sara sa femme. C’est
 aussi où Isaac a été enseveli avec Rehecca sa femme,
 et oii Lia est encore ensevelie.
 
 Après avoir achevé de donner ces ordres et ces instruc-
 tions à ses enfants, il joignit ses pieds sur son lit, et
-mourut ; et il fut réuni avec son peuple.
+mourut; et il fut réuni avec son peuple.
 
-In homme avait douze fils. Telle lut, mon entant,
+homme avait douze fils. Telle lut, mon entant,
 Ce fut la preniière fois qu’un enfant s’est perdu.
 
 Ce fut la première fois qu’une brebis s’est perdue.
@@ -4983,10 +4983,10 @@ Se soient plantées au sol de France.
 
 Et dans l’ancien testament il s’agit d’emplir des sacs de
 
-blé, il y a, (toujours),
+blé, il y (toujours),
 
 une pensée sur les sacs de blé.
-Et après ça il s’agit, (dans l’ancien testament),
+Et après il s’agit, (dans l’ancien testament),
 Ces sacs pleins il s’agit de les empiler dans les greniers
 
 Mais dans le nouveau testament il s’agit de bien autres
@@ -5021,7 +5021,7 @@ La longue voie temporelle.
 
 C’est l’ancien testament qui patiemment bâtit
 
-Voici, f envoie mon ange devant la face, qui préparera
+Voici, envoie mon ange devant la face, qui préparera
 ton chemin devant toi.
 
 Et aussi l’ancien testament est comme une image qui
@@ -5083,23 +5083,23 @@ certain monde
 Enfin la première heure du premier des six jours de la
 
 création j’ai commencé une certaine histoire,
-Or tout l’ancien testariient part de ce jugement que je
+tout l’ancien testariient part de ce jugement que je
 
 fis de créer.
-Et tout le nouveau testament va vers ce jugement que
+Et tout le nouveau testament vers ce jugement que
 
 je ferai de juger.
 Ainsi l’ancien testament est symétrique au nouveau.
 Et (contre) balance le nouveau.
 Et tout l’ancien testament part de cette création.
-Et tout le nouveau testament va vers ce jugement
+Et tout le nouveau testament vers ce jugement
 Et dans l’ancien testament le Paradis est au commen-
 Et c’est un Paradis terrestre.
 
 Mais dans le nouveau testament le Paradis est à la fin.
 Et je vous le dis c’est un Paradis
 
-Et tout l’ancien testament va vers Jean le Baptiste et
+Et tout l’ancien testament vers Jean le Baptiste et
 
 vers Jésus.
 Mais tout le nouveau testament vient de Jésus.
@@ -5194,10 +5194,10 @@ Venante, sortie, venue des profondeurs de l’horizon la
 La fidèle, la directe allée droite linéaire
 Droite l’avenue s’avance sur la plaine droite.
 Car elle sait où elle va.
-Et elle ne va pas moins que.
-Directement elle va droit au seuil du château.
+Et elle ne pas moins que.
+Directement elle droit au seuil du château.
 
-El elle conduit, et elle amène, et elle introduit le reg^ard
+elle conduit, et elle amène, et elle introduit le reg^ard
 
 Elle seule conduit au seuil mais elle ne franchit pas le
 
@@ -5211,7 +5211,7 @@ Mais la cour d’honneur s’y ouvre, et les bâtiments du
 
 Et le beau perron pour monter et les quadrangulaires
 
-El ainsi le nouveau testament a une dimension de plus.
+ainsi le nouveau testament a une dimension de plus.
 Car l’ancien testament est une ligne
 Mais le nouveau couvre une surface.
 
@@ -5256,7 +5256,7 @@ C’est Jésus,
 Et la création fut une sorte d’ouverture du temps et de
 
 fermeture en quelque sorte de l’éternité.
-Or le jugement sera proprement la fermeture du temps
+le jugement sera proprement la fermeture du temps
 Réouverture de l’éternité.
 
 Ou encore l’ancien testantient est le lac profond qui
@@ -5282,12 +5282,12 @@ C’est eux qui en ont besoin.
 
 Mais naturellement il faudrait une école de moi.
 
-El non pas une école d’hommes.
+non pas une école d’hommes.
 
 On croit que les enfants ne savent rien.
 Et que les parents et que les grandes personnes savent
 
-Or je vous le dis, c’est le contraire.
+je vous le dis, c’est le contraire.
 
 (C’est toujours le contraire).
 
@@ -5344,15 +5344,15 @@ Le royaume du ciel ne sera que pour eux.
 
 Et il n’y en aura que pour eux.
 
-A cette heure- là s’approchèrent les disciples de Jésus,
+A cette heure- s’approchèrent les disciples de Jésus,
 
 disant.Qui, penses-tu, est plus grand dans le royaume
 
-des deux ?
+des deux?
 
 Et appelant Jésus unpetit enfant, le plaça au milieu
 
-Et dit : En vérité je vous le dis, si vous ne vous conver-
+Et dit: En vérité je vous le dis, si vous ne vous conver-
 tissez point, et ne vous rendez point comme ces petits
 enfants, vous n’entrerez pas dans le royaume des
 
@@ -5391,8 +5391,8 @@ Et non point à la dernière communion.
 Sera-t-ildit que l’homme finit à sa première communion.
 Et non point au viatique, qui est sa dernière commu-
 
-Ils s’emplissent d’expérience, disent-ils ; ils gagnent de
-l’expérience ; ils apprennent la vie ; de jour en jour ils
+Ils s’emplissent d’expérience, disent-ils; ils gagnent de
+l’expérience; ils apprennent la vie; de jour en jour ils
 amassent de l’expérience. Singulier trésor, dit Dieu
 
 Trésor de vide et de disette.
@@ -5435,7 +5435,7 @@ Ladiminution, le décroissement, la perte de l’innocence.
 
 Et c’est une dégradation perpétuelle.
 
-Or c’est l’innocence qui est pleine et c’est l’expérience
+c’est l’innocence qui est pleine et c’est l’expérience
 
 qui est vide.
 C’est l’innocence qui gagne et c’est l’expérience qui
@@ -5501,7 +5501,7 @@ Un petit homme qui raconte ses peines au bon Dieu
 Le plus sérieusement du monde.
 
 Et qui se fait lui-même les consolations du bon Dieu.
-Or je vous le dis ces consolations qu’il se fait.
+je vous le dis ces consolations qu’il se fait.
 Elles viennent directement et proprement de moi
 
 Je ne connais rien d’aussi beau dans toiit le monde, dit
@@ -5530,70 +5530,70 @@ Rien n’est beau comme un enfant qui s’endort en faisant
 
 sa prière, dit Dieu.
 Je vous le dis, rien n’est aussi beau dans le monde.
-Je n’ai jamais rien vu d’aussi beau dans le monde.
-Et pourtant j’en ai vu des beautés dans le monde
+Je n’ai jamais rien d’aussi beau dans le monde.
+Et pourtant j’en ai des beautés dans le monde
 Et je m’y connais. Ma création regorge de beautés.
 Ma création regorge de merveilles.
 Il y en a tant qu’on ne sait pas où les mettre.
-J’ai vu des millions et des millions d’astres rouler sous
+J’ai des millions et des millions d’astres rouler sous
 
 mes pieds comme les sables de la mer.
 
-J’ai vu des journées ardentes comme des flammes.
+J’ai des journées ardentes comme des flammes.
 Des jours d’été de juin, de juillet et d’août,
-.l’ai vu des soirs d’hiver posés comme un manteau.
-J’ai vu des soirs d’été calmes et doux comme une
+.l’ai des soirs d’hiver posés comme un manteau.
+J’ai des soirs d’été calmes et doux comme une
 
 tombée de paradis
 Tout constellés d’étoiles.
-J’ai vu ces coteaux de la Meuse et ces églises qui sont
+J’ai ces coteaux de la Meuse et ces églises qui sont
 
 mes propres maisons.
 Et Paris et Reims et Rouen et des cathédrales qui sont
 
 mes propres palais et mes propres châteaux.
 Si beaux que je les g-arderai dans le ciel.
-J’ai vu la capitale du royaume et Rome capitale de
+J’ai la capitale du royaume et Rome capitale de
 
 J’ai entendu chanter la messe et les triomphantes
 
-Et j’ai vu ces plaines et ces vallonnements de France.
+Et j’ai ces plaines et ces vallonnements de France.
 Qui sont plus beaux que tout.
-J’ai vu la profonde mer, et la forêt profonde, et le cœur
+J’ai la profonde mer, et la forêt profonde, et le cœur
 
 profond de l’homme.
-J’ai vu des cœurs dévorés d’amour
+J’ai des cœurs dévorés d’amour
 Pendant des vies entières
 Perdus de charité.
 Brûlant comme des flammes.
-J’ai vu des martyrs si animés de foi
+J’ai des martyrs si animés de foi
 Tenir comme un roc sur le chevalet
 Sous les dents de fer.
 (Comme un soldat qui tiendrait bon tout seul toute une
 
 Pour son général (apparemment) absent).
-J’ai vu des martyrs flamber comme des torches
+J’ai des martyrs flamber comme des torches
 Se préparant ainsi les palmes toujours vertes.
 
-Et j’ai vu perler sous les griffes de fer
+Et j’ai perler sous les griffes de fer
 
 Des gouttes de sang qui resplendissaient comme des diamants.
 
-Et j’ai vu perler des larmes d’amour
+Et j’ai perler des larmes d’amour
 
 Qui dureront plus longtemps que les étoiles du ciel.
 
-Et j’ai vu des regards de prière, des regards de tendresse,
+Et j’ai des regards de prière, des regards de tendresse,
 
 Perdus de charité
 
 Qui brilleront éternellement dans les nuits et les nuits.
 
-Et j’ai vu des vies tout entières de la naissance à la mort,
+Et j’ai des vies tout entières de la naissance à la mort,
 
 Se dérouler comme un bel écheveau de laine.
 
-Or je le dis, dit Dieu, je ne connais rien d’aussi beau dans tout le monde
+je le dis, dit Dieu, je ne connais rien d’aussi beau dans tout le monde
 
 Qu’un petit enfant qui s’endort en faisant sa prière
 
@@ -5601,7 +5601,7 @@ Sous l’aile de son ange gardien
 
 Et qui rit aux anges en commençant de s’endormir.
 
-Et qui déjà mêle tout ça ensemble et qui n’y comprend plus rien
+Et qui déjà mêle tout ensemble et qui n’y comprend plus rien
 
 Et qui fourre les paroles du *Notre Père* à tort et à travers pêle-mêle dans les paroles du *Je vous salue Marie*.
 
@@ -5609,9 +5609,9 @@ Pendant qu’un voile déjà descend sur ses paupières
 
 Le voile de la nuit sur son regard et sur sa voix.
 
-J’ai vu les plus grands saints, dit Dieu. Eh bien je vous le dis.
+J’ai les plus grands saints, dit Dieu. Eh bien je vous le dis.
 
-Je n’ai jamais rien vu de si drôle et par conséquent je ne connais rien de si beau dans le monde
+Je n’ai jamais rien de si drôle et par conséquent je ne connais rien de si beau dans le monde
 
 Que cet enfant qui s’endort en faisant sa prière
 
@@ -5631,17 +5631,17 @@ Et moi il faut bien que je sois pour la justice.
 
 Aussi, dit Dieu, comme je comprends mon fils. Mon fils
 le leur a assez dit. (Or il faut entendre toutes les
-paroles de mon fils au pied de la lettre*. Sinite par- *
+paroles de mon fils au pied de la lettre*. Sinite par-
 vulos. Laissez venir.
 
-Sinite parvulos venire ad me. Laissez les lout petits
+Sinite parvulos venire me. Laissez les lout petits
 venir à moi.-
 
 Alors lui furent offerts des tout petits pour quil leur
-imposât les mains, et priât. Or les disciples les
+imposât les mains, et priât. les disciples les
 
-Mais Jésus leur dit : Laissez les lout petits, et ne les
-empêchez point de venir à moi : talium est enim
+Mais Jésus leur dit: Laissez les lout petits, et ne les
+empêchez point de venir à moi: talium est enim
 regnum cœlorum. De tels en effet est le royaume des
 deux. Aux tels, aux comme eux appartient le
 royaume des cieux.
@@ -5818,17 +5818,17 @@ aussi des grenades et des figues de ce lieu-là,
 
 qui fut appelé depuis Nehel-escol, le Torrent-de-la-
 Grappe, parce que les enfants d’Israël emportèrent
-de là cette grappe de raisin.
+de cette grappe de raisin.
 
-Ils leur dirent : Nous aimns été dans le pays où vous
+Ils leur dirent: Nous aimns été dans le pays où vous
 nous avez envoyés, et où coulent véritablement des
 ruisseaux de lait et de miel, comme on le peut con-
 naître par ces fruits.
 
 Mais elle a des habitants très forts, et de grandes villes
-fermées de murailles. Nous y avons vu la race d’Enac.
+fermées de murailles. Nous y avons la race d’Enac.
 
-Sinite parvulos venire ad me.
+Sinite parvulos venire me.
 
 Talium estenim regnum cœlorum c’est le mol de mou
 
@@ -5843,7 +5843,7 @@ Et me le fait dire (or je ne démentirai jamais une
 Une prière, une oraison de ma fille l’Église).
 Par l’Église, par le ministère du prêtre j’ai repris
 
-l’eng^agement, jai repris le mot de mon fils :
+l’eng^agement, jai repris le mot de mon fils:
 Laissez venir à moi les tout petits.
 Des tels est en effet le royaume des deux.
 Ainsi ma liturgie romaine se noue à ma prédication
@@ -5989,7 +5989,7 @@ tu as été honorée trois fois.
 Et la première fois c’était sous l’ancienne loi,
 Presque au commencement de l’ancienne loi.
 
-Et la deuxième fois ; et la troisième fois c’était sous la
+Et la deuxième fois; et la troisième fois c’était sous la
 
 Dans la floraison de la loi nouvelle.
 
@@ -6025,7 +6025,7 @@ Elle roi de Chrétienté.
 Terre antique, terre d’I'^gypte tu parais endormie, mais
 
 ton sommeil a été troublé trois fois
-Par les pas qui venaient. •
+Par les pas qui venaient.
 
 Terre tu as été bénie trois fois et toi désert stérile tu as
 
@@ -6052,7 +6052,7 @@ Le saint parle après.
 
 Et moi je parle toujours.
 
-Et c’est là que Ton voit que mon lils est le centre et le
+Et c’est que Ton voit que mon lils est le centre et le
 
 cœur et la voûte et la clei"
 Et le point de l’articulation.
@@ -6069,7 +6069,7 @@ Et l’Église, qui est la communion des saints et la com-
 munion des fidèles vient aussi après, vient aussi
 toujours.
 
-Or je ne laisserai pas manquer mon Église, dit Dieu, je
+je ne laisserai pas manquer mon Église, dit Dieu, je
 ne la laisserai pas errer, je ne la laisserai pas faillir.
 
 Terre antique d’Égypte qui dors faussement, dit Dieu,
@@ -6085,9 +6085,9 @@ Je m’engage autant dans une liturgie que je me suis
 
 engagé avec Moïse
 Et que mon fils avec eux s’est engagé sur la montagne.
-Or cela, ce que mon fils a dit une fois, sinile parvulos
+cela, ce que mon fils a dit une fois, sinile parvulos
 
-venire ad me, — laissez les petits venir à moi, — je
+venire me, — laissez les petits venir à moi, — je
 
 le redis, on me le fait redire toutes les fois (quel
 
@@ -6100,10 +6100,10 @@ Mais moi je le dis, on me le fait dire à chaque enfant
 qui ne retournera plus jouer,
 Sinon dans mon paradis.
 
-Or cela (quel engagement) je le redis à cet office des
+cela (quel engagement) je le redis à cet office des
 morts, à qui tout vient aboutir.
 
-Auquel tout s’achemine. Office des morts pour V enter-
+Auquel tout s’achemine. Office des morts pour enter-
 rement d’un enfant. Le Célébrant se revêt d’un sur-
 plis et d’une étole blanche.
 
@@ -6114,12 +6114,12 @@ Qui est le seuil de ma maison.
 
 Et ainsi le seuil de la Maison de son Père,
 
-Ainsi le jour de cet enterrement il va chercher l’enfant
+Ainsi le jour de cet enterrement il chercher l’enfant
 dans la paroisse jusqu’à la Maison de son père.
 
 Jusqu’au seuil de la maison de son père.
 
-El la Croix même marche portée au-devant de cet
+la Croix même marche portée au-devant de cet
 
 enfant qui est mort dans la paroisse.
 Et quand le cortège revient vers l’ég-lise
@@ -6133,12 +6133,12 @@ Les hommes et les femmes et les enfants.
 Et les femmes pleurent. Et tout est blanc.
 Et le célébrant chante
 le vieux psaume du roi David,
-Beali immaculati in via.
+Beali immaculati via.
 Heureux les sans tache dans la voie.
 
 Heureux les immaculés dans la voie.
 
-Beati immaculati in via.
+Beati immaculati via.
 
 Sera-t-il dit, dit Dieu, que de tant de saints et de tant
 
@@ -6211,46 +6211,46 @@ De la toute première
 Et que ce qui est regagné, défendu pied à pied, repris,
 
 N’est point le même que ce qui n’a jamais été perdu.
-El qu’un papier blanchi n’est point un papier blanc.
+qu’un papier blanchi n’est point un papier blanc.
 Et qu’un tissu blanchi n’est point une blanche toile.
 Et qu’une âme blanchie n’est point une âme blanche.
 Et que les plus près de moi ce seront ces blancs enfants
 
-Qui n’ont jamais rien su de la vie et rien fait de l’exis-
+Qui n’ont jamais rien de la vie et rien fait de l’exis-
 Que de recevoir un bon coup de sabre,
 Je veux dire placé au bon moment.
 
 Ence temps-là, VAmje du Seigneur apparut en songe
-à Joseph, disant : Lève-toi, et prends ton enfant, etsa
+à Joseph, disant: Lève-toi, et prends ton enfant, etsa
 mère, et fuis en Égypte, et restes-y jusqu’à ce que je
 te le dise. Car il arrivera qu’ flérode cherchera l’enfant
 pour le perdre. Lequel se levant, prit l’enfant, et sa
-mère, de nuit, et se retira en Égypte : et il y resta
-jusqu’à la mortd’ Hérode : afin que fût accompli ce
-qui fut dit par le Seigneur parlant par son Prophète :
+mère, de nuit, et se retira en Égypte: et il y resta
+jusqu’à la mortd’ Hérode: afin que fût accompli ce
+qui fut dit par le Seigneur parlant par son Prophète:
 D’Égypte j’ai appelé mon fils. Alors Hérode, voyant
 quil avait été trompé par les Mages entra dans une
 grande colère, et envoya tuer tous les enfants, qui
 étaient à Béthlehem, et dans toute sa contrée, depuis
 deux ans et au-dessous, selon le temps quil s’était
 informé des Mages. Alors fut accompli ce qui fut dit
-par le Prophète Jéréniie disant : Vox in Rama audita
-est, ploratus et ululafus multus : Rachel plorans filios
+par le Prophète Jéréniie disant: Vox Rama audita
+est, ploratus et ululafus multus: Rachel plorans filios
 suos, et noluit consolari, quia non sunt.
 
 Une voix fut entendue dans Rama, un pleurement et un
-grand hululement : Raîchel pleurant ses fils, et elle ne
+grand hululement: Raîchel pleurant ses fils, et elle ne
 voulut pas être consolée, — quia non sunl, — parce
 qu’ils ne sont pas.
 
 J’ai vu, dit Jean,
 
-En ces jours-là : J’ai vu sur la montagne de Sien
+En ces jours-là: J’ai sur la montagne de Sien
 l’Agneau debout, et avec lui cent quarante-quatre
 mille qui avaient son nom, et le nom de son Père
 écrit sur le front. Et j’entendis une i^oix du ciel,
 comme une voix de beaucoup d’eaux, et comme la voix
-d’un grand tonnerre : et une voix, que j’entendis,
+d’un grand tonnerre: et une voix, que j’entendis,
 comme de citharaèdes citharizant sur leurs cithares.
 
 Et ils chantaient
@@ -6259,7 +6259,7 @@ quasi canticum novum,
 
 comme un cantique nouveau devant le siège,
 
-et devant les quatre animaux, et les vieillards :
+et devant les quatre animaux, et les vieillards:
 
 et nemo poterat dicere canticum,
 
@@ -6323,29 +6323,29 @@ A l’origine, au point d’origine de cette vie terrestre.
 De n’avoir pas ce pli et ce g-oût d’une ingratitude.
 D’une amertume.
 
-Beati ac sancli. Heureux et saints ces saints
+Beati sancli. Heureux et saints ces saints
 Innocents. Ceux-ci, dit Jean,
 
 Ceux-ci suivent l’Agneau partout où il ira.
 
-Mi sequuntur Agmini quocumque ieril.
+sequuntur Agmini quocumque ieril.
 
 fïi empti sunt. Encore. Empli sunt. Furent enlevés
 
-m empli sunt ex hominibus.
+empli sunt hominibus.
 
 Ceux-ci furent enlevés des hommes,
 (D’entre les hommes, de parmi les hommes),
 
-primitiae Deo, et Agno :
+primitiae Deo, et Agno:
 
-prémices à Dieu, et à l’Agneau :
+prémices à Dieu, et à l’Agneau:
 
-et in ore eorum non est inventum mendacium :
+et ore eorum non est inventum mendacium:
 
 et dans leur bouche,
 
-et sur leur lèvre ne fut point trouvé le mensonge :
+et sur leur lèvre ne fut point trouvé le mensonge:
 
 Le mensonge d’homme, le mensonge adulte, le men-
 
@@ -6387,7 +6387,7 @@ Mais ils chantaient comme un ca.niique nouveau devant
 
 le siège.
 
-Et devant les quatre animaux, et les vieillards :
+Et devant les quatre animaux, et les vieillards:
 
 C’est un cantique nouveau pour marquer
 
@@ -6400,7 +6400,7 @@ cette éternellement renaissante nouveauté.
 
 Et ce cantique nouveau vient de cette nouveauté même.
 
-Or tel est leur privilège. Et il n’y en a point de plus
+tel est leur privilège. Et il n’y en a point de plus
 
 Personne, (c’est-à-dire les plus grands saints et les mar-
 
@@ -6408,22 +6408,22 @@ Des siècles et des vies d’épreuves et de sainteté,
 
 D’exercices, de prières,
 
-De sang, de larmes ;
+De sang, de larmes;
 
 Nerno, personne, c’est-à-dire pas même François mon
-serviteur et pas même saint Louis mon serviteur ;
+serviteur et pas même saint Louis mon serviteur;
 
 Nenio, personne, c’est-à-dire pas même les quatre
 
-témoins, les quatre rapporteurs ;
-Matthieu, et Marc, et Luc, et Jean ;
+témoins, les quatre rapporteurs;
+Matthieu, et Marc, et Luc, et Jean;
 
-et le jeune homme, et le lion, et le taureau, et l’aigle ;
+et le jeune homme, et le lion, et le taureau, et l’aigle;
 
 Nemo, personne, c’est-à-dire pas même Pierre le Fon-
 
 Et pas même ceux qui trouvèrent la mort combattant
-pour la délivrance du Saint-Sépulcre ;
+pour la délivrance du Saint-Sépulcre;
 
 Nemo poterat dicere canticum, personne ne pouvait dire
 
@@ -6460,7 +6460,7 @@ Proprement gracieux. Et voici.
 
 Voici que ces cent quarante-quatre mille innocents.
 Voici que ces cent quarante-quatre mille enfants
-N’ont eu qu’à naître, et rien de plus. Tels sont les
+N’ont qu’à naître, et rien de plus. Tels sont les
 
 mystères, tels sont les secrets.
 
@@ -6523,10 +6523,10 @@ Qui soit même exactement tout le contraire d’être
 Qui soit le moins vécue, qui soit à peine commencée.
 Qui soit le moins commencée possible. Et nemo paierai
 
-dicere canlicum. Or ces cent quarante-quatre mille
+dicere canlicum. ces cent quarante-quatre mille
 Qui seuls pouvaient chanter ce cantique nouveau,
 
-([u’est-ce qu’ils avaient fait ?
+([u’est-ce qu’ils avaient fait?
 
 Admirez ici Tordre de ma grâce. Ils avaient fait ceci
 Qu’ils étaient venus au monde. Un point, c’est tout. Ou
@@ -6538,17 +6538,17 @@ Ils avaient fait ceci qu’ils étaient des petits nouveau-
 garçons et des filles.
 Leurs mères disaient comme dans tous les pays du
 
-monde : C’est le mien qui est le plus beau.
-Eux, ça leur était bien égal, d’être beaux. Pourvu qu’ils
+monde: C’est le mien qui est le plus beau.
+Eux, leur était bien égal, d’être beaux. Pourvu qu’ils
 
 dorment et qu’ils tettent.
 Quand ils avaient sommeil.
 
-Quand ils avaient envie de dormir ils dormaient ;
+Quand ils avaient envie de dormir ils dormaient;
 Quand ils avaient faim et soif (ensemble)
 
-Quand ils avaient envie de téter, ils tétaient ;
-Quand ils avaient envie de crier ils criaient :
+Quand ils avaient envie de téter, ils tétaient;
+Quand ils avaient envie de crier ils criaient:
 C’étaient leurs plus grandes occupations. C’est ainsi
 
 qu’ils trouvèrent
@@ -6561,7 +6561,7 @@ Et seuls d’y chanter ce cantique nouveau.
 Qui empti sunt de terra. Tant d’autres sont morts au
 
 nom de mon Fils.
-In nomine Patris, et Filii, et Spiritus Sancti.
+nomine Patris, et Filii, et Spiritus Sancti.
 Tant d’autres sont morts pour sauver l’honneur
 Du Nom de mon fils. Et eux.
 Et seuls peuvent chanter ce cantique nouveau,
@@ -6579,10 +6579,10 @@ A présent ils le connaissent peut-être. Éternellement on
 peut le lire écrit
 Sur cent quarante-quatre mille fronts. Sur nul autre.
 Sur pas un de plus. Mais vivant, mais sur terre
-On peut dire qu’ils n’ont jamais su de quoi on parlait
+On peut dire qu’ils n’ont jamais de quoi on parlait
 Ni même que l’on parlait et que l’on pouvait parler
 (De quelque chose). Voilà ce qui me plaît, dit Dieu.
-Ov ils pleuraient, et ils riaient, et ils tétaient, et ils
+ils pleuraient, et ils riaient, et ils tétaient, et ils
 
 criaient, et ils dormaient.
 C’était leur grande, c’était leur plus sérieuse occupation.
@@ -6595,7 +6595,7 @@ que le nom de Jésus)
 nom d’Hérode. J’ose dire
 Que ces deux noms leur étaient également indiilérents.
 
-Or ces deux hommes,
+ces deux hommes,
 Jésus, Hérode, Hérode, Jésus,
 
 Antagonistes allaient tout simplement leur procurer
@@ -6667,19 +6667,19 @@ hommes qui émondent.
 Et leurs petits doigts crispés qui se refermaient sur la
 
 paume de la main.
-Et les cris renfoncés d ; ins la gorge, les mains criminelles
+Et les cris renfoncés; ins la gorge, les mains criminelles
 
 les renfonçant, s’enfonçant dans la gorge comme un
 
 bouchon. Comme un tampon.
-El le jeune sang jaillissant du cœur. Qu’importent les
+le jeune sang jaillissant du cœur. Qu’importent les
 
 Les cuisses blanches comme de la viande de chevreau
 
 et comme des cuisses tendres de petits cochons de lait.
 Et leurs mères qui criaient comme des folles et qui
 
-mordaient les soldats ; iu poignet. Comme dans une
+mordaient les soldats; poignet. Comme dans une
 
 bataille, après la bataille
 Les rôdeurs, les voleurs viennent dépouiller les blessés
@@ -6707,9 +6707,9 @@ Gomme des détrousseurs de cadavres et ils se sont
 détroussés eux-mêmes et ce qu’ils ont ramassé dans
 
 la bagarre ce n’est pas moins
-Que le royaume des cieux et la vie éternelle. Hi empli
+Que le royaume des cieux et la vie éternelle. empli
 
-sunt ex hominihus. Eux seuls.
+sunt hominihus. Eux seuls.
 Qui seuls peut-être sur terre non seulement n’avaient
 
 jamais chanté les louanges de Dieu,
@@ -6720,7 +6720,7 @@ Eux seuls aussi ne portent point aux commissures des
 
 lèvres l’ineffaçable pli,
 Ce pli de l’infortune et de l’ingratitude
-Et d’une amertume qui ne sera jamais rassasiée. Or si
+Et d’une amertume qui ne sera jamais rassasiée. si
 
 nous avons fait d’eux ce que vous voyez, dit Dieu,
 Il yen a sept raisons que je veux bien vous dire.
@@ -6782,7 +6782,7 @@ Le représentant pour ainsi dire. Étant substitués à lui.
 Eltant comme lui. Presque étant (d’autres) luis.
 
 En représentation, en substitution, en remplacement de
-lui. Or tout cela est grave, dit Dieu, tout cela compte.
+lui. tout cela est grave, dit Dieu, tout cela compte.
 Ils furent semblables à mon fils et le remplacèrent.
 
 Exactement quand il ne s’agissait pas moins
@@ -6812,7 +6812,7 @@ Une créance sur nous. Monté sur un âne avec sa mère
 Trente ans plus tôt monté sur un âne avec sa mère mou
 
 fils
-Refaisait le voyage de l’antique Jacob. El ces enfants
+Refaisait le voyage de l’antique Jacob. ces enfants
 
 ramassaient dans la mêlée.
 Dans leur propre sang ces nourrissons ramassaient
@@ -6823,7 +6823,7 @@ sommes très bons débiteurs.
 
 I^a sixième raison, dit Dieu, (je crois que c’est la sixième),
 (c’est une très bonne affaire que d’être pris pour mon fils
-et ça rapporte),
+et rapporte),
 
 la sixième raison, c’est qu’ils étaient contemporains de
 
@@ -6849,8 +6849,8 @@ cette part de fortune,
 Que cette part irrévocable, indéfaisable
 Que nous avons laissée aux biens de fortune devant les
 
-biens qui ne sont pas de fortune ;
-Au charnel devant et dans le spirituel ;
+biens qui ne sont pas de fortune;
+Au charnel devant et dans le spirituel;
 Au temporel devant et dans l’éternel, c’est-à-dire
 
 création, et à la matière même de la création devant
@@ -6858,12 +6858,12 @@ création, et à la matière même de la création devant
 le Créateur.
 
 A ce point, dit Dieu, que nous-mêmes nous ne sommes
-pas indifférents à la date ; au temps ;
+pas indifférents à la date; au temps;
 
 A la prise de date et que nous aimons secrètement ces
 
 cent quarante-quatre mille
-parce qu’ils se sont trouvés là et nous les aimons d’un
+parce qu’ils se sont trouvés et nous les aimons d’un
 
 secret amour unique
 parce qu’ils se sont trouvés naître là, parce qu’ils étaient,
@@ -6955,7 +6955,7 @@ entre tous ils sont les témoins de mon fils.
 Ils me montrent, ils sont comme il était, si seulement
 Il n’eût point changé. De toutes les imitations de
 
-C’est la première et c’est la toute neuve ; et c’est la
+C’est la première et c’est la toute neuve; et c’est la
 
 Qui ne soit à aucun degré
 Qui ne soit pas même pour un atome
@@ -6981,7 +6981,7 @@ Ni des brebis. [Et ceux-ci suivent l’agneau partout où il
 
 Des enfants Jésus qui ne vieillirent jamais. Qui ne
 
-— grandirent point. Or le mien profitait
+— grandirent point. le mien profitait
 
 auprès de Dieu et auprès des hommes.
 
@@ -7002,11 +7002,11 @@ pour cette énorme aventure.
 Et la septuple raison, dit Dieu, c’est qu’ils sont ainsi
 
 comme David les voulait.
-Immaculati in via. Ainsi est l’ordre, dit Dieu.
+Immaculati via. Ainsi est l’ordre, dit Dieu.
 Mon fils dit.
 Et moi je redis.
 
-Ou encore :
+Ou encore:
 
 Mon fils dit.
 
@@ -7022,12 +7022,12 @@ Immaculés dans la voie ainsi Jean les a vus
 
 Sur la montagne de Sion
 
-Autour de V Agneau debout. Il n’y en a que pour eux.
+Autour de Agneau debout. Il n’y en a que pour eux.
 
-Ceux-ci suivent V Agneau partout oii il ira.
+Ceux-ci suivent Agneau partout oii il ira.
 (Les plus grands saints ne le suivent apparemment pas
 
-Ceux-ci ont été enlevés des hommes :
+Ceux-ci ont été enlevés des hommes:
 
 [d’entre les hommes, de parmi les hommes, d’être des
 
@@ -7035,10 +7035,10 @@ Les plus grands saints ont été des hommes, n’ont point
 
 été enlevés d’être des hommes).
 
-et dans leur bouche na pas été trouvé le mensonge :
+et dans leur bouche pas été trouvé le mensonge:
 ils sont en effet sans tache devant le trône de Dieu.
 
-Et l’Apôtre les nomme primitiae Deo, et Agno : prémices
+Et l’Apôtre les nomme primitiae Deo, et Agno: prémices
 à Dieu, et à l’Agneau. C’est-à-dire premiers fruits de
 la terre que Ton offre à Dieu et à l’Agneau. Les autres
 saints sont les fruits ordinaires, les fruits de la saison.
@@ -7046,7 +7046,7 @@ Mais eux ils sont les fruits
 
 De la promesse même de la saison.
 
-Et suivant l’Apôtre l’Église répète : Innocentes pro
+Et suivant l’Apôtre l’Église répète: Innocentes pro
 
 infantes occisi sunt,
 
@@ -7056,11 +7056,11 @@ enfants furent massacrés,
 (infantes, tout jeunes enfants, tout petit enfant ne par-
 lant pas encore)
 
-lactentes inierfecti siint :
+lactentes inierfecti siint:
 
 par un inique Roi
 
-laiteux ils furent assassinés :
+laiteux ils furent assassinés:
 
 {lactentes, pleins de lait, laiteux, à l’âge du lait, étant
 
@@ -7075,7 +7075,7 @@ ils suivent l’Agneau lui-même sans tache
 l’Agneau qui est sans tache
 et eux avec lui qui sont sans tache)
 
-Mais l’Église va plus loin, l’Église passe outre, l’Église
+Mais l’Église plus loin, l’Église passe outre, l’Église
 dépasse l’Apôtre.
 
 L’Église ne dit plus seulement qu’ils sont des prémices
@@ -7085,7 +7085,7 @@ L’Église les invoque et les nomme
 
 *fleurs des Martyrs.
 
-Entendant littéralement par là que les autres martyrs sont les fruits mais que ceux-ci, parmi les martyrs,
+Entendant littéralement par que les autres martyrs sont les fruits mais que ceux-ci, parmi les martyrs,
 
 sont les fleurs mêmes.
 
@@ -7158,7 +7158,7 @@ De cette rosée de sang.
 Salvete flores Martyrnm,
 Salut fleurs des Martyrs,
 
-quos, lacis ipso in limine,
+quos, lacis ipso limine,
 Christi insecutor sustulit,
 
 ceu lurbo nascenles rosas.
@@ -7179,7 +7179,7 @@ Palma et coronis luditis.
 
 Vous première victime du Christ,
 Troupeau tendre des immolés.
-Au pied de V autel même simples,
+Au pied de autel même simples,
 Simplices, âmes simples, simples enfants,
 Palma et coronis luditis. Vous jouez avec la palme et
 les couronnes. Avec votre palme et vos couronnes.

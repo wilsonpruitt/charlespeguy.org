@@ -13,7 +13,7 @@ Jean Jaurès, préface de Charles Péguy
 *Cahiers de la Quinzaine*, Série III, cahier
 1901.
 
-journalÉtudes socialistesJean Jaurès, préface de Charles PéguyCahiers de la Quinzaine1901ParisC*Cahiers de la Quinzaine*, Série III, cahier 4Charles Peguy - Cahiers de la Quinzaine 3e serie vol 1-4 - Jaurès -1901.djvuCharles Peguy - Cahiers de la Quinzaine 3e serie vol 1-4 - Jaurès -1901.djvu/227Gt.-272
+journalÉtudes socialistesJean Jaurès, préface de Charles PéguyCahiers de la Quinzaine1901ParisC*Cahiers de la Quinzaine*, Série III, cahier 4Charles Peguy - Cahiers de la Quinzaine serie vol 1-4 - Jaurès -1901.djvuCharles Peguy - Cahiers de la Quinzaine serie vol 1-4 - Jaurès -1901.djvu/227Gt.-272
 
 Le socialisme et la vie
 
@@ -71,21 +71,21 @@ proprement, aucune guerre de la raison, aucune
 campagne, aucune expédition. La raison ne fait pas la
 guerre à la déraison. Elle réduit tant qu’elle peut la déraison par des moyens qui ne sont pas les moyens
 de la guerre, puisqu’ils sont les moyens de la raison. La
-raison ne donne pas des assauts ; elle ne forme pas des
-colonnes d’attaque ; elle n’enlève pas des positions ; elle
-ne force pas des passages ; elle ne fait pas des entrées
-solennelles ; ni elle ne couche comme le vainqueur militaire sur le champ de bataille.
+raison ne donne pas des assauts; elle ne forme pas des
+colonnes d’attaque; elle n’enlève pas des positions; elle
+ne force pas des passages; elle ne fait pas des entrées
+solennelles; ni elle ne couche comme le vainqueur militaire sur le champ de bataille.
 
 La raison ne procède pas de l’autorité religieuse. Il
 fallait une insanité inouïe pour oser instituer le culte
 de la déesse Raison. Et si l’on peut excuser une insanité
-dans un temps d’affolement, déclarons-le haut : la
+dans un temps d’affolement, déclarons-le haut: la
 froide répétition politique de cette insanité, la commémoration concertée de cette insanité constitue l’indice
 le plus grave d’incohérence ou de démence, de déraison.
 Non la raison ne procède pas par la voie du culte. Non la
 raison ne veut pas d’autels. Non la raison ne veut pas
 de prières. Non la raison ne veut pas de prêtres. C’est
-trahir le plus gravement la raison, c’est faire déraisonner le plus gravement la raison que de la déguiser en déesse, en cabotinage et musique ; c’est la trahir
+trahir le plus gravement la raison, c’est faire déraisonner le plus gravement la raison que de la déguiser en déesse, en cabotinage et musique; c’est la trahir
 que de lui fabriquer des fêtes religieuses, des imitations
 en simili-culte, avec tout ce qu’il faut. Et même l’admirable prière que Renan fit sur l’Acropole après qu’il fut
 parvenu à en comprendre la parfaite beauté n’a plus
@@ -97,57 +97,57 @@ ennemis qui voudront. La raison ne veut aucune Église.
 Il ne peut pas, il ne doit pas y avoir une Église de la
 raison. Les pratiques cérémonielles, cultuelles et rituelles sont totalement étrangères à l’honnêteté de la raison. Les pratiques surhumaines, religieuses, infernales ou divines, inhumaines, sont totalement étrangères à l’humanité de la raison. La raison est honnête homme. Il n’y a pas un clergé de la raison. Nous n’avons pas renoncé, nous n’avons pas dénoncé les religions d’hier pour annoncer la religion de demain, pour prêcher quelque religion nouvelle. Nous sommes irréligieux de toutes les religions. Nous sommes athées de tous les dieux. Dans le douloureux débat de la raison et de la foi nous n’avons pas laissé la foi pour la foi dans la raison, mais pour la raison de la raison. La raison n’admet ni prophéties ni déclamations ni proclamations, — ni dogmes ni décrets des conciles ni brefs des papes. Et c’est tromper lamentablement le peuple perpétuel que de lui présenter les vérités de la raison sur le même ton et comme on lui annonçait les vérités prétendues révélées.
 
-La raison ne procède pas de l’autorité parlementaire. Elle ne tient ni de ces longues assemblées, que nous nommons parlements, ni de ces assemblées courtes, que nous nommons congrès. La raison n’a ni président, ni assesseurs, ni secrétaire, ni aucun bureau. Elle manque souvent de sténographes. Elle n’a pas toujours un procès-verbal, un compte rendu. Elle ne constitue aucun comité directeur. Elle ne procède pas par votation. Elle n’est pas soumise à la loi de majorité. Elle n’est pas proportionnelle au nombre. Beaucoup peuvent se tromper. Il se peut qu’un seul ait raison. Même il se peut que pas un n’ait raison. La raison ne varie pas avec le nombre. Elle ne flatte pas plus les foules qu’elle ne flattait les grands. Elle ne flatte pas plus les peuples qu’elle ne flattait les rois. Elle ne flatte pas plus les démocraties qu’elle ne flattait les monarchies ou les oligarchies. Nous savons qu’il y a eu dans le passé de longs temps et de vastes régions où la raison ne résidait qu’en des minorités, en des unités. Même il y a eu des nations où la raison ne résidait pas. Elle peut s’absenter aujourd’hui encore.
+La raison ne procède pas de l’autorité parlementaire. Elle ne tient ni de ces longues assemblées, que nous nommons parlements, ni de ces assemblées courtes, que nous nommons congrès. La raison n’a ni président, ni assesseurs, ni secrétaire, ni aucun bureau. Elle manque souvent de sténographes. Elle n’a pas toujours un procès-verbal, un compte rendu. Elle ne constitue aucun comité directeur. Elle ne procède pas par votation. Elle n’est pas soumise à la loi de majorité. Elle n’est pas proportionnelle au nombre. Beaucoup peuvent se tromper. Il se peut qu’un seul ait raison. Même il se peut que pas un n’ait raison. La raison ne varie pas avec le nombre. Elle ne flatte pas plus les foules qu’elle ne flattait les grands. Elle ne flatte pas plus les peuples qu’elle ne flattait les rois. Elle ne flatte pas plus les démocraties qu’elle ne flattait les monarchies ou les oligarchies. Nous savons qu’il y a dans le passé de longs temps et de vastes régions où la raison ne résidait qu’en des minorités, en des unités. Même il y a des nations où la raison ne résidait pas. Elle peut s’absenter aujourd’hui encore.
 
 La raison ne procède pas de l’autorité démagogique. Ameuter les masses, lancer les foules est un exercice d’autorité non moins étranger à la raison que d’amasser quelque majorité, de lancer quelque régiment. Nous sommes aujourd’hui sous le gouvernement de la démagogie beaucoup plus que sous le gouvernement de la démocratie. Les tribuns, les avocats et les journalistes nous gouvernent lourdement. Libre de la monarchie, de l’oligarchie et de la démocratie, gouvernements réguliers, la raison est libre aussi de la démagogie, gouvernement de fait. Elle n’est pas plus soumise aux nouveaux courtisans qu’elle n’était soumise aux anciens. Ni les manifestations de la rue ni les manifestations des meetings ne valent au regard de la raison. La raison ne monte sur aucuns tréteaux. Les mouvements des masses ne pèsent pas plus que les révolutions de palais. Le peuple abusé ne peut pas faire que la raison ne soit pas la raison, et que la déraison devienne la raison. La foule abusée ne peut pas plus que ne pouvait le monarque abusé. Le peuple n’est pas souverain de la raison.
 
 La raison ne procède pas de l’autorité manuelle. Autant il est vrai que la raison n’exerce aucune autorité, autant il est vrai que le gouvernement des intellectuels serait le plus insupportable des gouvernements, — autant il est réciproquement vrai que la raison, qui n’accepte aucune autorité, qui ne subit aucun gouvernement, n’accepte pas une autorité manuelle, ne subit pas un gouvernement manuel. C’est fausser la raison que d’imaginer, comme l’a rêvé Renan, un gouvernement spirituel de la terre habitée, un gouvernement des intellectuels omnipotent. Une république de cuistres ne serait pas moins inhabitable qu’une république de moines. Si on la laissait se former, une caste intellectuelle serait plus agaçante et pèserait plus lourd sur le monde que toute caste. Mais c’est aussi manquer à la raison que d’ameuter contre les intellectuels sérieux les autorités grossières des travailleurs manuels mal renseignés. La justice, la raison, la bonne administration du travail demandent que les intellectuels ne soient ni gouvernants ni gouvernés. Qu’ils soient modestement libres, comme tout le monde.
 
-Dans la société présente, où le jeu de la spécialisation s’est outré automatiquement, les fonctions intellectuelles et les fonctions manuelles ne sont presque jamais attribuées aux mêmes ouvriers ; les ouvriers intellectuels délaissent presque tout le travail des mains ; les ouvriers manuels délaissent presque tout travail de l’esprit, presque tout exercice de la raison. Dans la cité harmonieuse, dont nous préparons la naissance et la vie, les fonctions intellectuelles et les fonctions manuelles se partageront harmonieusement les mêmes hommes. Et la relation de l’intellectuel au manuel, au lieu de s’établir péniblement d’un individu à l’autre, s’établira librement au cœur du même homme. Le problème sera transposé. Car nous n’avons jamais dit que nous supprimerions les problèmes humains. Nous voulons seulement, et nous espérons les transporter du terrain bourgeois, où ils ne peuvent recevoir que des solutions ingrates, sur le terrain humain, libre enfin des servitudes économiques. Nous laissons les miracles aux praticiens des anciennes et des nouvelles Églises. Nous ne promettons pas un Paradis. Nous préparons une humanité libérée.
+Dans la société présente, où le jeu de la spécialisation s’est outré automatiquement, les fonctions intellectuelles et les fonctions manuelles ne sont presque jamais attribuées aux mêmes ouvriers; les ouvriers intellectuels délaissent presque tout le travail des mains; les ouvriers manuels délaissent presque tout travail de l’esprit, presque tout exercice de la raison. Dans la cité harmonieuse, dont nous préparons la naissance et la vie, les fonctions intellectuelles et les fonctions manuelles se partageront harmonieusement les mêmes hommes. Et la relation de l’intellectuel au manuel, au lieu de s’établir péniblement d’un individu à l’autre, s’établira librement au cœur du même homme. Le problème sera transposé. Car nous n’avons jamais dit que nous supprimerions les problèmes humains. Nous voulons seulement, et nous espérons les transporter du terrain bourgeois, où ils ne peuvent recevoir que des solutions ingrates, sur le terrain humain, libre enfin des servitudes économiques. Nous laissons les miracles aux praticiens des anciennes et des nouvelles Églises. Nous ne promettons pas un Paradis. Nous préparons une humanité libérée.
 
-Les chefs audacieux et les foules blasées, les meneurs menés, les candidats et les électeurs trouveront sans doute que ce programme est insuffisant. Mais nous savons par l’histoire de l’humanité, par l’histoire des sciences, des arts, de la philosophie, qu’un changement de plan est un événement, une opération considérable. Dans tous les genres de travail deux progrès sont ouverts. On peut d’abord avancer par évolution en continuant dans le même sens. Mais il vient presque toujours un moment où le travailleur a l’impression que le sens est épuisé : aucune application, aucune insistance ne peut plus tirer du réel ce que le réel n’a plus dans le sens commencé. Des vies entières consommées dans un travail ingrat ne rendraient plus ce qu’elles coûteraient. Alors intervient la révolution. Vu d’ailleurs, attaqué d’ailleurs, le réel recommence brusquement à couler à pleins bords. Et pourtant le réel est le même qu’il était. Mais il n’est plus vu du même regard, il n’est plus vu le même, il n’est plus connu le même. C’est ainsi que nous sommes révolutionnaires. Nous voulons que la même humanité se donne la liberté nouvelle.
+Les chefs audacieux et les foules blasées, les meneurs menés, les candidats et les électeurs trouveront sans doute que ce programme est insuffisant. Mais nous savons par l’histoire de l’humanité, par l’histoire des sciences, des arts, de la philosophie, qu’un changement de plan est un événement, une opération considérable. Dans tous les genres de travail deux progrès sont ouverts. On peut d’abord avancer par évolution en continuant dans le même sens. Mais il vient presque toujours un moment où le travailleur a l’impression que le sens est épuisé: aucune application, aucune insistance ne peut plus tirer du réel ce que le réel n’a plus dans le sens commencé. Des vies entières consommées dans un travail ingrat ne rendraient plus ce qu’elles coûteraient. Alors intervient la révolution. d’ailleurs, attaqué d’ailleurs, le réel recommence brusquement à couler à pleins bords. Et pourtant le réel est le même qu’il était. Mais il n’est plus du même regard, il n’est plus le même, il n’est plus connu le même. C’est ainsi que nous sommes révolutionnaires. Nous voulons que la même humanité se donne la liberté nouvelle.
 
 Nous ne méprisons pas les humanités passées, nous n’avons ni cet orgueil, ni cette vanité, ni cette insolence, ni cette imbécillité, cette faiblesse. Nous ne méprisons pas ce qu’a d’humain l’humanité présente. Au contraire nous voulons conserver ce qu’avaient d’humain les anciennes humanités. Nous voulons sauver ce qu’a d’humain l’humanité présente. Nous évitons surtout de faire à l’humanité présente la plus grave injure, qui est de la vouloir dresser. Nous n’avons pas la présomption d’imaginer, d’inventer, de fabriquer une humanité nouvelle. Nous n’avons ni plan ni devis. Nous voulons libérer l’humanité des servitudes économiques. Libérée, libre, l’humanité vivra librement. Libre de nous et de tous ceux qui l’auront libérée. Ce serait commettre la prévarication maxima, le détournement le plus grave que d’utiliser la libération pour asservir les libérés sous la mentalité des libérateurs. Ce serait tendre à l’humanité comme un guet-apens universel que de lui présenter la libération pour l’attirer dans une philosophie, quand même cette philosophie serait étiquetée philosophie de la raison.
 
-Attacher au socialisme un système, lier au socialisme, fût-ce au nom de la raison, un système de science, ou d’art, ou de philosophie, c’est littéralement commettre un abus de confiance envers l’humanité. Attirer l’humanité vers sa libération pour la précipiter dans un système, c’est commettre au nom de la raison la malversation que l’Église a commise au nom de la foi. C’est vendre à l’humanité ce que nous devons lui donner. C’est vendre un objet que nous ne devons pas laisser tomber dans le commerce économique. Par une libération c’est introduire à un asservissement. Disons plus : vendre à l’humanité sa libération économique pour l’établissement d’un système, ce n’est pas seulement tromper et voler l’humanité, ce n’est pas seulement trahir l’humanité, ce n’est pas seulement vendre l’invendable, ce n’est pas seulement laïciser la malversation de l’Église, recommencer en laïque la prévarication de l’Église, qui vend aux pauvres le pain pour le billet de confession, pour la respectable prière et pour la sainte communion, c’est commettre le crime le plus grave pour un socialiste : c’est monnayer à son avantage la servitude économique même.
+Attacher au socialisme un système, lier au socialisme, fût-ce au nom de la raison, un système de science, ou d’art, ou de philosophie, c’est littéralement commettre un abus de confiance envers l’humanité. Attirer l’humanité vers sa libération pour la précipiter dans un système, c’est commettre au nom de la raison la malversation que l’Église a commise au nom de la foi. C’est vendre à l’humanité ce que nous devons lui donner. C’est vendre un objet que nous ne devons pas laisser tomber dans le commerce économique. Par une libération c’est introduire à un asservissement. Disons plus: vendre à l’humanité sa libération économique pour l’établissement d’un système, ce n’est pas seulement tromper et voler l’humanité, ce n’est pas seulement trahir l’humanité, ce n’est pas seulement vendre l’invendable, ce n’est pas seulement laïciser la malversation de l’Église, recommencer en laïque la prévarication de l’Église, qui vend aux pauvres le pain pour le billet de confession, pour la respectable prière et pour la sainte communion, c’est commettre le crime le plus grave pour un socialiste: c’est monnayer à son avantage la servitude économique même.
 
-Attacher au socialisme libérateur une augmentation de système pour que ça passe avec n’est pas seulement une opération inélégante, laide, muffle, de mauvais ton, de mauvaise tenue, de mauvaise culture, de mauvais goût, de mauvaise allure ; ce n’est pas seulement une opération immorale, injuste, perverse, inverse, et de mauvaise administration ; c’est une opération proprement, particulièrement contraire au socialisme. L’idéalisme ou le matérialisme, l’idéaliste ou le matérialiste, le déterministe ou le libéraliste qui feraient du socialisme avec l’arrière-pensée plus ou moins confuse que leur système en soit avantagé ne joueraient pas seulement un jeu laidement déloyal, mais leur jeu serait un perpétuel reniement du socialisme ; ils ne joueraient pas seulement faux, ils joueraient bourgeois. Utilisant à leurs fins intéressées le désir, le besoin, la passion de libération économique, ils utiliseraient en effet, au second degré, l’asservissement précédent, la servitude même à laquelle on veut échapper. Ils n’exerceraient pas seulement un chantage, mais ils exerceraient précisément le chantage économique, vice propre de la société bourgeoise, du régime bourgeois.
+Attacher au socialisme libérateur une augmentation de système pour que passe avec n’est pas seulement une opération inélégante, laide, muffle, de mauvais ton, de mauvaise tenue, de mauvaise culture, de mauvais goût, de mauvaise allure; ce n’est pas seulement une opération immorale, injuste, perverse, inverse, et de mauvaise administration; c’est une opération proprement, particulièrement contraire au socialisme. L’idéalisme ou le matérialisme, l’idéaliste ou le matérialiste, le déterministe ou le libéraliste qui feraient du socialisme avec l’arrière-pensée plus ou moins confuse que leur système en soit avantagé ne joueraient pas seulement un jeu laidement déloyal, mais leur jeu serait un perpétuel reniement du socialisme; ils ne joueraient pas seulement faux, ils joueraient bourgeois. Utilisant à leurs fins intéressées le désir, le besoin, la passion de libération économique, ils utiliseraient en effet, au second degré, l’asservissement précédent, la servitude même à laquelle on veut échapper. Ils n’exerceraient pas seulement un chantage, mais ils exerceraient précisément le chantage économique, vice propre de la société bourgeoise, du régime bourgeois.
 
 Nous n’avons pas plus à vendre la terre que les chrétiens n’avaient à vendre le ciel. Nous n’avons pas à laïciser les marchandages des clercs. Bien loin que le socialisme repose officiellement sur un système d’art ou de science ou de philosophie, loin qu’il tende à l’établissement, à la glorification d’un système, loin qu’il soit matérialiste ou idéaliste, athéiste ou théiste, au contraire le socialisme est ce qui laissera l’humanité libérée libre enfin de travailler, d’étudier, de penser librement. C’est l’effet d’une singulière inintelligence que de s’imaginer que la révolution sociale serait une conclusion, une fermeture de l’humanité dans la fade béatitude des quiétudes mortes. C’est l’effet d’une ambition naïve et mauvaise, idiote et sournoise que de vouloir clore l’humanité par la révolution sociale. Faire un cloître de l’humanité serait l’effet de la plus redoutable survivance religieuse. Loin que le socialisme soit définitif, il est préliminaire, préalable, nécessaire, indispensable mais non suffisant. Il est avant le seuil. Il n’est pas la fin de l’humanité, il n’en est pas même le commencement. Il est, selon nous, avant le commencement. Avant le commencement sera le Verbe.
 
 Il ne faut pas que les idées soient arrivistes ni qu’on les fasse passer en contrebande. Il ne faut pas qu’elles soient parasitaires, qu’elles s’attachent au socialisme ainsi que de malheureux jeunes gens deviennent les secrétaires des hommes influents. L’écœurement que nous avons des petits ambitieux qui se veulent pousser dans les emplois du socialisme ministériel et dans les identiques emplois du socialisme antiministériel, nous l’aurons des systèmes qui voudraient arriver par le socialisme et dans le socialisme. Enfin c’est un insupportable abus de l’autorité paternelle que de vouloir imposer aux générations neuves les radotages des générations fatiguées, vieilles, que nous sommes. Justement parce que nous les aurons libérées, elles sauront beaucoup mieux que nous ce qu’elles auront à penser. La raison ne procède pas de l’autorité paternelle. Ne faisons pas au nom de la raison des vœux perpétuels pour nous-mêmes. Et n’en faisons pas pour les perpétuelles générations. Laissons l’humanité tranquille. Une révolution qui entend nous débarrasser des intérêts doit être absolument désintéressée.
 
-Réciproquement c’est trahir la raison, comme on trahissait le socialisme, que d’introduire dans les débats de la raison des poids additionnels. Dans le débat des systèmes rationnels, ajouter à certains systèmes, au matérialisme, à l’athéisme, le surpoids des volontés socialistes, leur infuser la sève et le sang des passions révolutionnaires, c’est fausser le jeu de l’action par des interventions étrangères à l’action ; mais réciproquement c’est fausser le jeu de la raison par des interventions étrangères à la raison. C’est procurer à certains systèmes une importance démesurée dans l’histoire de la pensée. La raison ne procède pas de l’autorité socialiste, en supposant qu’il y ait une autorité socialiste. La raison ne procède pas de l’autorité révolutionnaire, en admettant que les jacobins aient vraiment institué une autorité révolutionnaire. La raison ne dépend pas plus des masses révolutionnaires que des masses réactionnaires ou des masses inertes. Elle ne dépend d’aucunes forces. Elle ne dépend pas plus des armées révolutionnaires que des armées militaires. Elle ne dépend pas des masses populaires. Elle ne dépend pas de l’autorité manuelle.
+Réciproquement c’est trahir la raison, comme on trahissait le socialisme, que d’introduire dans les débats de la raison des poids additionnels. Dans le débat des systèmes rationnels, ajouter à certains systèmes, au matérialisme, à l’athéisme, le surpoids des volontés socialistes, leur infuser la sève et le sang des passions révolutionnaires, c’est fausser le jeu de l’action par des interventions étrangères à l’action; mais réciproquement c’est fausser le jeu de la raison par des interventions étrangères à la raison. C’est procurer à certains systèmes une importance démesurée dans l’histoire de la pensée. La raison ne procède pas de l’autorité socialiste, en supposant qu’il y ait une autorité socialiste. La raison ne procède pas de l’autorité révolutionnaire, en admettant que les jacobins aient vraiment institué une autorité révolutionnaire. La raison ne dépend pas plus des masses révolutionnaires que des masses réactionnaires ou des masses inertes. Elle ne dépend d’aucunes forces. Elle ne dépend pas plus des armées révolutionnaires que des armées militaires. Elle ne dépend pas des masses populaires. Elle ne dépend pas de l’autorité manuelle.
 
-C’est trahir la raison et c’est trahir le peuple que de vouloir établir sur le peuple un gouvernement, un commandement, une autorité de la raison. Mais c’est trahir aussi la raison et c’est trahir aussi le peuple que de vouloir établir sur la raison, par la démagogie ou par la pédagogie, un gouvernement, un commandement, une autorité des ouvriers manuels. Entendons-nous : les ouvriers manuels, parce qu’ils sont des hommes, et qu’ils ont leur part de la raison commune, ont le droit et le devoir de penser dans la mesure de leur compétence. Mais c’est un des modes les plus dangereux de la démagogie que de masquer au peuple ses incompétences inévitables, provisoires, mais provisoirement inévitables. Dénoncer au peuple des ouvriers manuels un ouvrage de philosophie parce qu’il se vend sept cinquante chez Alcan, dénoncer au peuple un ouvrage de métaphysique parce qu’il y a quinze fois le mot Dieu à la page 28 et quatre-vingt-douze fois le mot Dieu à la page 31, dénoncer au peuple cet ouvrage comme entaché de cléricalisme, je dis que c’est du jésuitisme, et je dis que c’est de l’Inquisition.
+C’est trahir la raison et c’est trahir le peuple que de vouloir établir sur le peuple un gouvernement, un commandement, une autorité de la raison. Mais c’est trahir aussi la raison et c’est trahir aussi le peuple que de vouloir établir sur la raison, par la démagogie ou par la pédagogie, un gouvernement, un commandement, une autorité des ouvriers manuels. Entendons-nous: les ouvriers manuels, parce qu’ils sont des hommes, et qu’ils ont leur part de la raison commune, ont le droit et le devoir de penser dans la mesure de leur compétence. Mais c’est un des modes les plus dangereux de la démagogie que de masquer au peuple ses incompétences inévitables, provisoires, mais provisoirement inévitables. Dénoncer au peuple des ouvriers manuels un ouvrage de philosophie parce qu’il se vend sept cinquante chez Alcan, dénoncer au peuple un ouvrage de métaphysique parce qu’il y a quinze fois le mot Dieu à la page 28 et quatre-vingt-douze fois le mot Dieu à la page 31, dénoncer au peuple cet ouvrage comme entaché de cléricalisme, je dis que c’est du jésuitisme, et je dis que c’est de l’Inquisition.
 
-C’est du jésuitisme et c’est de la duplicité, car le journal a deux clientèles, deux régions. Si le journal n’était lu que par des intellectuels, une inculpation de cléricalisme intentée à une thèse de philosophie, — échafaudée sur ce que le mot Dieu y paraît, ne serait pas dangereuse, parce que le lecteur, avisé, y reconnaîtrait un amusement. Un amusement d’un goût douteux, assez pervers, mais un amusement enfin. Si le journal n’était lu que par des ouvriers manuels, si l’auteur de l’accusation était lui-même un manuel, cette accusation serait dangereuse, mais elle serait sincère. Ce qui fait la duplicité, c’est qu’un auteur intellectuel délibérément jette cette accusation devant un double public. L’auteur, intellectuel, sait ce que c’est que la métaphysique et la théodicée. L’auteur ne peut pas croire que son accusation existe. Et parce qu’il a du talent l’accusation insidieuse est énoncée en termes attentivement violents. Les intellectuels verront bien que c’est une bonne blague et ne mépriseront pas le journaliste comme ignorant. Les ouvriers manuels prendront pour argent comptant. La réputation littéraire sera sauve auprès des premiers, la réputation morale sera sauve auprès des seconds.
+C’est du jésuitisme et c’est de la duplicité, car le journal a deux clientèles, deux régions. Si le journal n’était que par des intellectuels, une inculpation de cléricalisme intentée à une thèse de philosophie, — échafaudée sur ce que le mot Dieu y paraît, ne serait pas dangereuse, parce que le lecteur, avisé, y reconnaîtrait un amusement. Un amusement d’un goût douteux, assez pervers, mais un amusement enfin. Si le journal n’était que par des ouvriers manuels, si l’auteur de l’accusation était lui-même un manuel, cette accusation serait dangereuse, mais elle serait sincère. Ce qui fait la duplicité, c’est qu’un auteur intellectuel délibérément jette cette accusation devant un double public. L’auteur, intellectuel, sait ce que c’est que la métaphysique et la théodicée. L’auteur ne peut pas croire que son accusation existe. Et parce qu’il a du talent l’accusation insidieuse est énoncée en termes attentivement violents. Les intellectuels verront bien que c’est une bonne blague et ne mépriseront pas le journaliste comme ignorant. Les ouvriers manuels prendront pour argent comptant. La réputation littéraire sera sauve auprès des premiers, la réputation morale sera sauve auprès des seconds.
 
-Je ne crois pas que rien soit aussi dangereux pour le peuple et pour la raison que ces malentendus à double malentente. M. le marquis de Rochefort y excellait. Il savait admirablement inventer la calomnie qui ferait sourire les gens d’esprit et qui soulèverait l’émotion du peuple. Faire la calomnie assez grosse pour que sa grosseur même avertisse les gens avertis qu’on est averti soi-même ; et utiliser cette même grosseur pour soulever une grosse émotion du peuple : c’est à ce double jeu que M. de Rochefort était un joueur que l’on croyait inimitable. De toutes les solutions que l’on peut imaginer au problème intellectuel-manuel, celle-ci est la plus injurieuse à la fois pour les intellectuels et pour les manuels, car elle suppose que les intellectuels sont si sensibles aux plaisirs douteux d’un amusement pervers qu’ils en oublient les plus simples éléments de la moralité commune, et elle suppose que les ouvriers manuels sont si empressés d’indignation grossière qu’ils ne se renseignent jamais sur le bien fondé, sur la vérité, sur la justice des réquisitoires que des procureurs de complaisance, que des avocats-généraux de journalisme leur jettent.
+Je ne crois pas que rien soit aussi dangereux pour le peuple et pour la raison que ces malentendus à double malentente. M. le marquis de Rochefort y excellait. Il savait admirablement inventer la calomnie qui ferait sourire les gens d’esprit et qui soulèverait l’émotion du peuple. Faire la calomnie assez grosse pour que sa grosseur même avertisse les gens avertis qu’on est averti soi-même; et utiliser cette même grosseur pour soulever une grosse émotion du peuple: c’est à ce double jeu que M. de Rochefort était un joueur que l’on croyait inimitable. De toutes les solutions que l’on peut imaginer au problème intellectuel-manuel, celle-ci est la plus injurieuse à la fois pour les intellectuels et pour les manuels, car elle suppose que les intellectuels sont si sensibles aux plaisirs douteux d’un amusement pervers qu’ils en oublient les plus simples éléments de la moralité commune, et elle suppose que les ouvriers manuels sont si empressés d’indignation grossière qu’ils ne se renseignent jamais sur le bien fondé, sur la vérité, sur la justice des réquisitoires que des procureurs de complaisance, que des avocats-généraux de journalisme leur jettent.
 
 Ce n’est pas cette solution injurieuse, douteuse, double, que nous acceptons. En attendant que par le changement préliminaire de plan qui nous paraît capital dans la future, dans la prochaine histoire de l’humanité, la santé du travail manuel avec la santé du travail intellectuel soit dévolue à tous les hommes, en attendant que la relation du manuel à l’intellectuel se pose librement en tout homme, puisque dans la société présente les répartitions sont faites entre individus et non entre élaborations du même individu, de la même personne, du même homme, puisque le travail manuel et le travail intellectuel sont distribués à des individus différents, sans communication normale, puisque, sauf exceptions, peu nombreuses, les uns ne travaillent guère que de leurs mains, et les autres de la raison, notre solution sera la simple solution de la liberté professionnelle. Pour la même raison que les boulangers ne font pas les maisons, et que les laboureurs ne font pas les habits, pour la même raison les ouvriers manuels, boulangers et maçons, moissonneurs, tisseurs et tailleurs n’ont à faire ni à défaire les thèses de philosophie.
 
-Exactement comme on n’admet pas l’autorité professionnelle de l’ouvrier manuel sur l’ouvrier manuel dans des corps de métier différents, exactement ainsi on ne doit admettre aucune autorité professionnelle de l’ouvrier manuel sur l’ouvrier intellectuel. Comme les boulangers sont ignorants de la bâtisse et les moissonneurs de la taille et du tissage, exactement ainsi les boulangers et les maçons, les moissonneurs et les tisseurs, comme tels, sont ignorants de la théodicée. On peut la leur enseigner, s’il y a des raisons pour qu’on la leur enseigne. On peut ne pas la leur enseigner, s’il y a des empêchements ou des raisons contraires. Mais c’est les flatter bassement que de leur dénoncer par des accusations politiques un travail où ils n’ont pas encore acquis la compétence. Déclarons-le hautement : un professeur de philosophie peut et doit faire de la théodicée quand et comme la raison le demande. Et il n’est responsable et comptable de sa théodicée que devant la raison, devant la raison raisonnante, devant la raison en travail, devant la raison critique.
+Exactement comme on n’admet pas l’autorité professionnelle de l’ouvrier manuel sur l’ouvrier manuel dans des corps de métier différents, exactement ainsi on ne doit admettre aucune autorité professionnelle de l’ouvrier manuel sur l’ouvrier intellectuel. Comme les boulangers sont ignorants de la bâtisse et les moissonneurs de la taille et du tissage, exactement ainsi les boulangers et les maçons, les moissonneurs et les tisseurs, comme tels, sont ignorants de la théodicée. On peut la leur enseigner, s’il y a des raisons pour qu’on la leur enseigne. On peut ne pas la leur enseigner, s’il y a des empêchements ou des raisons contraires. Mais c’est les flatter bassement que de leur dénoncer par des accusations politiques un travail où ils n’ont pas encore acquis la compétence. Déclarons-le hautement: un professeur de philosophie peut et doit faire de la théodicée quand et comme la raison le demande. Et il n’est responsable et comptable de sa théodicée que devant la raison, devant la raison raisonnante, devant la raison en travail, devant la raison critique.
 
-Ne fondons pas, ne laissons pas fonder une religion de la raison. Nous avons renoncé une religion qui nous commandait de faire maigre le vendredi saint ; ne fondons pas une religion qui nous forcerait à faire gras ce même jour. Nous avons renoncé une religion qui nous commandait de croire en un Dieu personnel, en trois personnes, souverainement bon, souverainement aimable, tout-puissant, créateur du ciel et de la terre, et souverain seigneur de toutes choses ; ne fondons pas une religion qui nous interdirait de prononcer même un nom dont le moins que l’on puisse dire est qu’il a eu quelque fortune dans l’histoire de l’humanité. La raison ne procède pas de l’autorité presbytérale. Une religion de la raison cumulerait tous les vices religieux avec tous les envers des vertus rationnelles. Ce serait un cumul rare, singulier, culminant, unique de vices communément inconciliables, habituellement séparés, logiquement contradictoires. Ce serait comme une gageure de cumulation. Un catéchisme est insupportable. Mais un catéchisme de la raison tiendrait en ses pages la plus effroyable tyrannie. À la fois parodie et texte.
+Ne fondons pas, ne laissons pas fonder une religion de la raison. Nous avons renoncé une religion qui nous commandait de faire maigre le vendredi saint; ne fondons pas une religion qui nous forcerait à faire gras ce même jour. Nous avons renoncé une religion qui nous commandait de croire en un Dieu personnel, en trois personnes, souverainement bon, souverainement aimable, tout-puissant, créateur du ciel et de la terre, et souverain seigneur de toutes choses; ne fondons pas une religion qui nous interdirait de prononcer même un nom dont le moins que l’on puisse dire est qu’il a quelque fortune dans l’histoire de l’humanité. La raison ne procède pas de l’autorité presbytérale. Une religion de la raison cumulerait tous les vices religieux avec tous les envers des vertus rationnelles. Ce serait un cumul rare, singulier, culminant, unique de vices communément inconciliables, habituellement séparés, logiquement contradictoires. Ce serait comme une gageure de cumulation. Un catéchisme est insupportable. Mais un catéchisme de la raison tiendrait en ses pages la plus effroyable tyrannie. À la fois parodie et texte.
 
-La raison ne procède pas plus des autorités officieuses que des autorités officielles. Ni le publiciste, ni le journaliste, ni le tribun, ni l’orateur, ni le conférencier ne sont aujourd’hui de simples citoyens. Le journaliste qui a trente ou cinquante ou quatre-vingts milliers de lecteurs, le conférencier qui a régulièrement douze ou quinze cents spectateurs exercent en effet, comme le ministre, comme le député, une autorité gouvernementale. On conduit aujourd’hui les lecteurs comme on n’a pas cessé de conduire les électeurs. La presse constitue un quatrième pouvoir. Beaucoup de journalistes, qui blâment avec raison la faiblesse des mœurs parlementaires, feraient bien de se retourner sur soi-même et de considérer que les salles de rédaction se tiennent comme les Parlements. Il y a au moins autant de démagogie parlementaire dans les journaux que dans les assemblées. Il se dépense autant d’autorité dans un comité de rédaction que dans un conseil des ministres ; et autant de faiblesse démagogique. Les journalistes écrivent comme les députés parlent. Un rédacteur en chef est un président du conseil, aussi autoritaire, aussi faible. Il y a moins de libéraux parmi les journalistes que parmi les sénateurs.
+La raison ne procède pas plus des autorités officieuses que des autorités officielles. Ni le publiciste, ni le journaliste, ni le tribun, ni l’orateur, ni le conférencier ne sont aujourd’hui de simples citoyens. Le journaliste qui a trente ou cinquante ou quatre-vingts milliers de lecteurs, le conférencier qui a régulièrement douze ou quinze cents spectateurs exercent en effet, comme le ministre, comme le député, une autorité gouvernementale. On conduit aujourd’hui les lecteurs comme on n’a pas cessé de conduire les électeurs. La presse constitue un quatrième pouvoir. Beaucoup de journalistes, qui blâment avec raison la faiblesse des mœurs parlementaires, feraient bien de se retourner sur soi-même et de considérer que les salles de rédaction se tiennent comme les Parlements. Il y a au moins autant de démagogie parlementaire dans les journaux que dans les assemblées. Il se dépense autant d’autorité dans un comité de rédaction que dans un conseil des ministres; et autant de faiblesse démagogique. Les journalistes écrivent comme les députés parlent. Un rédacteur en chef est un président du conseil, aussi autoritaire, aussi faible. Il y a moins de libéraux parmi les journalistes que parmi les sénateurs.
 
-C’est le jeu ordinaire des journalistes que d’ameuter toutes les libertés, toutes les licences, toutes les révoltes, et en effet toutes les autorités, le plus souvent contradictoires, contre les autorités gouvernementales officielles. — Nous simples citoyens, vont-ils répétant. Ils veulent ainsi cumuler tous les privilèges de l’autorité avec tous les droits de la liberté. Mais le véritable libertaire sait apercevoir l’autorité partout où elle sévit ; et nulle part elle n’est aussi dangereuse que là où elle revêt les aspects de la liberté. Le véritable libertaire sait qu’il y a vraiment un gouvernement des journaux et des meetings, une autorité des journalistes et des orateurs populaires comme il y a un gouvernement des bureaux et des assemblées, une autorité des ministres et des orateurs parlementaires. Le véritable libertaire se gare des gouvernements officieux autant que des gouvernements officiels. Car la popularité aussi est une forme de gouvernement, et non des moins dangereuses. La raison ne se fait pas de clientèle. Un journaliste qui joue avec les ministères et qui arguë du simple citoyen n’est pas recevable. Cela aussi est double, et cela est trop commode.
+C’est le jeu ordinaire des journalistes que d’ameuter toutes les libertés, toutes les licences, toutes les révoltes, et en effet toutes les autorités, le plus souvent contradictoires, contre les autorités gouvernementales officielles. — Nous simples citoyens, vont-ils répétant. Ils veulent ainsi cumuler tous les privilèges de l’autorité avec tous les droits de la liberté. Mais le véritable libertaire sait apercevoir l’autorité partout où elle sévit; et nulle part elle n’est aussi dangereuse que où elle revêt les aspects de la liberté. Le véritable libertaire sait qu’il y a vraiment un gouvernement des journaux et des meetings, une autorité des journalistes et des orateurs populaires comme il y a un gouvernement des bureaux et des assemblées, une autorité des ministres et des orateurs parlementaires. Le véritable libertaire se gare des gouvernements officieux autant que des gouvernements officiels. Car la popularité aussi est une forme de gouvernement, et non des moins dangereuses. La raison ne se fait pas de clientèle. Un journaliste qui joue avec les ministères et qui arguë du simple citoyen n’est pas recevable. Cela aussi est double, et cela est trop commode.
 
-Quand un journaliste exerce dans son domaine un gouvernement de fait, quand il a une armée de lecteurs fidèles, quand il entraîne ces lecteurs par la véhémence, l’audace, l’ascendant, moyens militaires, par le talent, moyen vulgaire, par le mensonge, moyen politique, et ainsi quand le journaliste est devenu vraiment une puissance dans l’État, quand il a des lecteurs exactement comme un député a des électeurs, quand un journaliste a une circonscription lectorale, souvent beaucoup plus vaste et beaucoup plus solide, il ne peut pas venir ensuite nous jouer le double jeu ; il ne peut pas venir pleurnicher. Dans la grande bataille des puissances de ce monde, il ne peut pas porter des coups redoutables au nom de sa puissance et quand les puissances contraires lui rendent ses coups, dans le même temps il ne peut pas se réclamer du simple citoyen. Qui renonce à la raison pour l’offensive ne peut se réclamer de la raison pour la défensive. Il y aurait là déloyauté insupportable, et encore duplicité.
+Quand un journaliste exerce dans son domaine un gouvernement de fait, quand il a une armée de lecteurs fidèles, quand il entraîne ces lecteurs par la véhémence, l’audace, l’ascendant, moyens militaires, par le talent, moyen vulgaire, par le mensonge, moyen politique, et ainsi quand le journaliste est devenu vraiment une puissance dans l’État, quand il a des lecteurs exactement comme un député a des électeurs, quand un journaliste a une circonscription lectorale, souvent beaucoup plus vaste et beaucoup plus solide, il ne peut pas venir ensuite nous jouer le double jeu; il ne peut pas venir pleurnicher. Dans la grande bataille des puissances de ce monde, il ne peut pas porter des coups redoutables au nom de sa puissance et quand les puissances contraires lui rendent ses coups, dans le même temps il ne peut pas se réclamer du simple citoyen. Qui renonce à la raison pour l’offensive ne peut se réclamer de la raison pour la défensive. Il y aurait déloyauté insupportable, et encore duplicité.
 
 La raison ne procède pas de la terreur, qui est la forme aiguë de la force. La raison ne procède pas de la suspicion, qui est la forme sournoise de la terreur. Le régime de la terreur, que ce soit de la terreur gouvernementale ou de la terreur populaire non moins gouvernementale, quand même ce régime dresserait des autels à la raison, et surtout si ce régime dressait des autels à la raison, n’est pas un régime de la raison. Le régime des suspects, où l’exercice de la force exercée est mystérieusement agrandi par la peur de la force exerçable, quand même les suspects seraient les ennemis de la raison, et surtout si les suspects étaient les ennemis de la raison, le régime des suspects est le plus contraire à la raison. Mais il n’y a pas seulement à redouter pour la raison un régime officiel des suspects, agrandissant quelque terreur officielle. Plus redoutable encore, plus odieux, plus ennemi de la raison, plus haïssable un régime officieux des suspects, comme celui auquel nous soumet le gouvernement de la presse. Ni les dénonciations calomnieuses, ni les allégations sans preuves ne sont de la raison. La raison n’est pas policière. Elle n’est pas plus policière de presse que policière d’État.
 
-La raison ne procède pas même de cette popularité plus fine et plus aérée qui s’obtient dans les régions de culture. Ni les décorations d’État, ni les distinctions corporatives, ni les cooptations, ni les grades professionnels, ni les académies, ni les fêtes scientifiques, ni les cinquantenaires, ni les centenaires, ni les statues, ni les bustes, ni les noms inscrits aux plaques des rues, ni les banquets, quand même on les nommerait dîners, ni la renommée, ni la gloire ne sont proprement de la raison. Tout cela suppose quelque émulation. Or la raison ne procède pas par l’émulation. Tout cela suppose une application aux travaux de la raison de grandeurs qui ne sont pas du même ordre. La raison n’admet pas la rivalité, mais la seule collaboration, la coopération. Toute idée de récompenses ou de punitions, de sanctions, fussent-elles élégantes, spirituelles et psychologiques, est étrangère à la raison. Dans les sciences mêmes il est souvent difficile de proportionner les cérémonies aux travaux dont elles sont la consécration. Dans les lettres, dans les arts et dans la philosophie, cela est littéralement impossible. Au contraire les œuvres les plus fortes sont aussi les plus inattendues, les moins entourées, ou les plus enviées. Enfin les cérémonies laïques ressemblent toujours à des cérémonies religieuses.
+La raison ne procède pas même de cette popularité plus fine et plus aérée qui s’obtient dans les régions de culture. Ni les décorations d’État, ni les distinctions corporatives, ni les cooptations, ni les grades professionnels, ni les académies, ni les fêtes scientifiques, ni les cinquantenaires, ni les centenaires, ni les statues, ni les bustes, ni les noms inscrits aux plaques des rues, ni les banquets, quand même on les nommerait dîners, ni la renommée, ni la gloire ne sont proprement de la raison. Tout cela suppose quelque émulation. la raison ne procède pas par l’émulation. Tout cela suppose une application aux travaux de la raison de grandeurs qui ne sont pas du même ordre. La raison n’admet pas la rivalité, mais la seule collaboration, la coopération. Toute idée de récompenses ou de punitions, de sanctions, fussent-elles élégantes, spirituelles et psychologiques, est étrangère à la raison. Dans les sciences mêmes il est souvent difficile de proportionner les cérémonies aux travaux dont elles sont la consécration. Dans les lettres, dans les arts et dans la philosophie, cela est littéralement impossible. Au contraire les œuvres les plus fortes sont aussi les plus inattendues, les moins entourées, ou les plus enviées. Enfin les cérémonies laïques ressemblent toujours à des cérémonies religieuses.
 
-La raison ne procède pas de l’autorité historique. Pas plus que les majorités contemporaines les majorités historiques des générations mortes ne peuvent commander à la raison. Pas plus qu’elle n’est toujours et proprement révolutionnaire, la raison n’est toujours et proprement traditionnelle. Mais elle est proprement rationnelle, et raisonnable. C’est la méconnaître que de l’assimiler ou de l’identifier à la révolution ; c’est la méconnaître aussi que de l’assimiler ou de l’identifier à la tradition. Elle est la raison. Et n’obéissant pas à la révolution, n’obéissant pas à la tradition, elle n’obéit pas non plus à la coïncidence des deux, à la tradition révolutionnaire. Car par un accouplement singulier, par un retour inattendu, nous voyons de plus en plus les poussées révolutionnaires se cristalliser en formes traditionnelles. De plus en plus la révolution, qui est la rupture de la tradition, tend à constituer elle-même un appareil traditionnel. Et en face de ces nouvelles traditions révolutionnaires, doublement nouvelles, comme étant des traditions, puisqu’elles sont révolutionnaires, et comme étant révolutionnaires, puisqu’elles sont des traditions, la raison n’a pas trop de ses deux libertés propres : liberté qu’elle sait garder en face de la tradition, liberté qu’elle sait garder en face de la révolution.
+La raison ne procède pas de l’autorité historique. Pas plus que les majorités contemporaines les majorités historiques des générations mortes ne peuvent commander à la raison. Pas plus qu’elle n’est toujours et proprement révolutionnaire, la raison n’est toujours et proprement traditionnelle. Mais elle est proprement rationnelle, et raisonnable. C’est la méconnaître que de l’assimiler ou de l’identifier à la révolution; c’est la méconnaître aussi que de l’assimiler ou de l’identifier à la tradition. Elle est la raison. Et n’obéissant pas à la révolution, n’obéissant pas à la tradition, elle n’obéit pas non plus à la coïncidence des deux, à la tradition révolutionnaire. Car par un accouplement singulier, par un retour inattendu, nous voyons de plus en plus les poussées révolutionnaires se cristalliser en formes traditionnelles. De plus en plus la révolution, qui est la rupture de la tradition, tend à constituer elle-même un appareil traditionnel. Et en face de ces nouvelles traditions révolutionnaires, doublement nouvelles, comme étant des traditions, puisqu’elles sont révolutionnaires, et comme étant révolutionnaires, puisqu’elles sont des traditions, la raison n’a pas trop de ses deux libertés propres: liberté qu’elle sait garder en face de la tradition, liberté qu’elle sait garder en face de la révolution.
 
-De tout temps les mouvements révolutionnaires, les ruptures de tradition, essentiellement libres d’origine, ont eu de la tendance à retomber dans l’ancien automatisme. Ainsi la conservation recommençait, la tradition renaissait avec la matière même que lui fournissait la révolution. Mais jamais comme aujourd’hui le mouvement révolutionnaire n’a été amorti en des formes aussi traditionnelles, aussi conservatoires. Par une étrange inconséquence, ou par une étrange insuffisance de pensée, le précédent constitué par la Révolution française, par la grande révolution bourgeoise, a fasciné les révolutionnaires socialistes, les fascine aujourd’hui plus que jamais. Les journées de 1830, les doubles journées de 1848, les mois de la Commune ont contribué à former, ont complété comme un code révolutionnaire. Jamais comme aujourd’hui les partis révolutionnaires, les comités, les commissions, les congrès, les conseils n’ont été liés, ne se sont liés, ne se sont figés, n’ont lié leurs commettants et leurs commis par autant de cérémonial, par autant d’étiquette, par autant d’habitude, par autant de protocole, par autant de tradition, par autant de conservation.
+De tout temps les mouvements révolutionnaires, les ruptures de tradition, essentiellement libres d’origine, ont de la tendance à retomber dans l’ancien automatisme. Ainsi la conservation recommençait, la tradition renaissait avec la matière même que lui fournissait la révolution. Mais jamais comme aujourd’hui le mouvement révolutionnaire n’a été amorti en des formes aussi traditionnelles, aussi conservatoires. Par une étrange inconséquence, ou par une étrange insuffisance de pensée, le précédent constitué par la Révolution française, par la grande révolution bourgeoise, a fasciné les révolutionnaires socialistes, les fascine aujourd’hui plus que jamais. Les journées de 1830, les doubles journées de 1848, les mois de la Commune ont contribué à former, ont complété comme un code révolutionnaire. Jamais comme aujourd’hui les partis révolutionnaires, les comités, les commissions, les congrès, les conseils n’ont été liés, ne se sont liés, ne se sont figés, n’ont lié leurs commettants et leurs commis par autant de cérémonial, par autant d’étiquette, par autant d’habitude, par autant de protocole, par autant de tradition, par autant de conservation.
 
 Par une ingratitude mentale singulière, les gouvernements révolutionnaires, les autorités socialistes opposent à la raison, à la liberté, dont ils sont nés, des traditions supplémentaires, des conservations surencombrantes. La raison ne doit se soumettre à ces traditions onéreuses ni parce qu’elles sont traditionnelles, ni parce qu’elles sont révolutionnaires. Imiter les anciens révolutionnaires, les vieux révoltés, ne consiste pas à penser en face du monde que nous connaissons identiquement les pensées qu’ils avaient en face du monde qui leur était contemporain. Mais c’est les imiter bien que d’avoir en face du monde que nous connaissons la même attitude, le même sentiment de liberté, déraison, qu’ils avaient en face de leur monde. Imiter servilement, ponctuellement leurs idées, comme on accepterait un héritage inerte, mort, avoir en face du monde présent les idées qu’ils avaient en face du monde passé, recommencer nos anciens, qui étaient justement des révolutionnaires parce qu’ils ne recommençaient pas leurs anciens, calquer leurs idées, ce serait n’imiter ni leur conduite, ni leur méthode, ni leur action, ni leur vie. Ce serait n’imiter pas l’usage qu’ils ont fait de la raison.
 
-Imiter bien les anciens révolutionnaires, c’est nous placer librement en face du monde comme ils se plaçaient librement en face du monde. Ce n’est pas nous placer servilement en face de leur monde. C’est user de la raison comme ils en usaient, sans aucun artifice d’école ni retard factice. Pas plus que nous ne devons attacher à la révolution sociale et imposer aux humanités futures nos systèmes, nous ne devons pas plus leur imposer des systèmes hérités, fussent-ils hérités de révolutionnaires. Nous ne devons pas leur imposer, leur communiquer en passant par nous des systèmes anciens. Nous ne devons pas plus transmettre des autorités que nous ne devons en instituer. L’opération serait la même. Que le système imposé plus tard au nom de la révolution soit né parmi nous ou que nous l’ayons nous-mêmes reçu de nos aînés, le résultat serait le même. Ce serait toujours marquer l’humanité au lieu de la libérer. Ce serait toujours marchander et fausser l’affranchissement. Ce serait toujours opprimer la raison, faire sur la raison libre peser les anciennes œuvres d’une raison moins libre. Ce serait toujours monnayer la servitude économique pour avantager déloyalement le personnel révolutionnaire.
+Imiter bien les anciens révolutionnaires, c’est nous placer librement en face du monde comme ils se plaçaient librement en face du monde. Ce n’est pas nous placer servilement en face de leur monde. C’est user de la raison comme ils en usaient, sans aucun artifice d’école ni retard factice. Pas plus que nous ne devons attacher à la révolution sociale et imposer aux humanités futures nos systèmes, nous ne devons pas plus leur imposer des systèmes hérités, fussent-ils hérités de révolutionnaires. Nous ne devons pas leur imposer, leur communiquer en passant par nous des systèmes anciens. Nous ne devons pas plus transmettre des autorités que nous ne devons en instituer. L’opération serait la même. Que le système imposé plus tard au nom de la révolution soit parmi nous ou que nous l’ayons nous-mêmes reçu de nos aînés, le résultat serait le même. Ce serait toujours marquer l’humanité au lieu de la libérer. Ce serait toujours marchander et fausser l’affranchissement. Ce serait toujours opprimer la raison, faire sur la raison libre peser les anciennes œuvres d’une raison moins libre. Ce serait toujours monnayer la servitude économique pour avantager déloyalement le personnel révolutionnaire.
 
 Nous n’apportons pas avec nous, nous n’apportons ni comme une invention ni comme un héritage des sentiments inédits, fabriqués exprès pour nous, et portant la marque de cette fabrication. Nous n’entendons pas remplacer, suppléer, remettre au magasin les vieux sentiments qui ont fait la joie ou la consolation, le bonheur et la beauté du monde. Nous n’avons pas des sentiments nouveaux qui remplaceraient l’antique amour, l’amitié, les affections, les sentiments et les passions de l’amour, les sentiments et les passions de l’art, des sciences, de la philosophie. Nous ne sommes pas des dieux qui créons des mondes. Nous voulons devenir des économes utiles, des gérants avisés, des ménagers diligents. Nous ne demandons pas à créer des animalités ni des humanités, mais modestes nous demandons que les biens économiques de la présente humanité soient administrés pour le mieux, afin que la servitude économique étant soulevée des nuques, les têtes libres se redressent, les corps vivent en santé, les âmes aussi. Nous sommes avant tout modestes. Un socialisme orgueilleux serait une aberration. Un métaphysique serait criminel ou fou.
 
@@ -155,8 +155,8 @@ La raison ne procède pas de la pédagogie. Nous touchons ici au plus grave dang
 
 Ce serait fausser irréparablement l’esprit du peuple, ce serait donc trahir la raison la plus nombreuse, faire déraisonner la raison la plus nombreuse, encourager l’insanité générale, cultiver la démence et semer à pleines mains la déraison que de faire ou de laisser croire au peuple des travailleurs manuels, aux différents degrés de l’enseignement primaire, que le travail de la raison obtient ses résultats sans peine, sans effort et sans apprentissage. D’autant plus que le peuple sait fort bien, le peuple admet fort bien, mieux que les bourgeois, le peuple connaît par son expérience professionnelle que dans aucun ordre du travail manuel on n’obtient des résultats gratuits, donnés. Dans tous les métiers manuels tout le monde sait qu’il faut qu’on travaille et qu’il faut qu’on ait appris. Par quelle injuste infériorité, ou par quelle complaisance au fond démagogique, par quelle flatterie ferait-on croire ou laisserait-on croire au peuple que la science, que l’art et que la philosophie, que les travaux intellectuels, que les travaux de la raison ne sont pas aussi sérieux.
 
-Ce serait rendre à la démocratie le pire des mauvais services que de vulgariser, d’étendre au peuple des ouvriers l’ancien préjugé nobiliaire. Il ne faut pas que le peuple non plus veuille tout savoir sans avoir jamais rien appris. Il ne faut pas que le peuple non plus ne se soit donné la peine que de naître peuple. Jamais on n’aurait l’idée de faire du pain sans avoir appris la boulangerie, ni de labourer sans savoir le labourage. Pourquoi veut-on traiter des grands problèmes sans avoir fait l’apprentissage indispensable. On accorde à peu près à la science qu’elle exige un apprentissage ; mais on le dénie trop souvent aux lettres, aux arts, à la philosophie. On introduirait ainsi la présomption la plus dangereuse ; on se préparerait les déceptions les plus graves, les plus méritées. Ce qu’on doit enseigner au peuple, ce n’est ni une vanité, ni un orgueil, c’est la modestie intellectuelle, et cette justesse qui est la justice de la raison. Au lieu de le lancer sur l’existence, ou, ce qui revient au même, sur l’inexistence de Dieu, sur l’immortalité de l’âme ou sur sa survivance ou sur sa mortalité, sur le déterminisme ou l’indéterminisme, sur le matérialisme ou la philosophie de l’histoire, enseignons-lui modestement des matières plus prêtes. Cela seul sera probe. Et c’est seulement ainsi que nous le respecterons. sacrifier à la réussite extérieure. Il faut que la raison
-pénètre de plus en plus l’humanité ; il faut que la
+Ce serait rendre à la démocratie le pire des mauvais services que de vulgariser, d’étendre au peuple des ouvriers l’ancien préjugé nobiliaire. Il ne faut pas que le peuple non plus veuille tout savoir sans avoir jamais rien appris. Il ne faut pas que le peuple non plus ne se soit donné la peine que de naître peuple. Jamais on n’aurait l’idée de faire du pain sans avoir appris la boulangerie, ni de labourer sans savoir le labourage. Pourquoi veut-on traiter des grands problèmes sans avoir fait l’apprentissage indispensable. On accorde à peu près à la science qu’elle exige un apprentissage; mais on le dénie trop souvent aux lettres, aux arts, à la philosophie. On introduirait ainsi la présomption la plus dangereuse; on se préparerait les déceptions les plus graves, les plus méritées. Ce qu’on doit enseigner au peuple, ce n’est ni une vanité, ni un orgueil, c’est la modestie intellectuelle, et cette justesse qui est la justice de la raison. Au lieu de le lancer sur l’existence, ou, ce qui revient au même, sur l’inexistence de Dieu, sur l’immortalité de l’âme ou sur sa survivance ou sur sa mortalité, sur le déterminisme ou l’indéterminisme, sur le matérialisme ou la philosophie de l’histoire, enseignons-lui modestement des matières plus prêtes. Cela seul sera probe. Et c’est seulement ainsi que nous le respecterons. sacrifier à la réussite extérieure. Il faut que la raison
+pénètre de plus en plus l’humanité; il faut que la
 raison s’insère de plus en plus dans l’action, mais à
 cette condition que par cette pénétration, par cette
 insertion la raison ne soit jamais entamée. Les avantages que la raison tire de son travail propre et les
@@ -164,10 +164,10 @@ avantages que la raison et l’humanité tirent de sa propagation ne sont pas de
 se balancent et peuvent s’équivaloir. Mais les avantages propres de la raison travaillant sont rigoureusement conditionnels, constituent la condition indispensable sans quoi l’avantage extérieur est annulé.
 
 On doit travailler de son mieux à faire avancer la
-raison dans son travail propre ; on doit travailler de
+raison dans son travail propre; on doit travailler de
 son mieux à faire entrer la raison dans l’action de
 l’humanité, mais ces deux efforts ne sont pas du même
-ordre ; le deuxième est rigoureusement conditionné par
+ordre; le deuxième est rigoureusement conditionné par
 le premier. Le premier est absolument libre du
 
 La raison n’est pas tout le monde. Nous savons, par
@@ -175,164 +175,164 @@ la raison même, que la force n’est pas négligeable, que
 beaucoup de passions et de sentiments sont vénérables
 ou respectables, puissants, profonds. Nous savons que
 la raison n’épuise pas la vie et même le meilleur de la
-vie ; nous savons que les instincts et les inconscients
+vie; nous savons que les instincts et les inconscients
 sont d’un être plus profondément existant sans doute.
 Nous estimons à leur valeur les pensées confuses, les
 impressions, les pensées obscures, les sentiments et
 même les sensations. Mais nous demandons que l’on
 n’oublie pas que la raison est pour l’humanité la condition rigoureusement indispensable. Nous ne pouvons
 
-Non pas que nous voulions interdire au peuple l’accès de la raison. C’est nous au contraire qui ne voulons pas qu’il aille se casser le nez à de fausses portes. Nous demandons qu’il avance raisonnablement, sagement, rationnellement dans les voies de la raison, aussi loin qu’il peut, mais en toute probité. La raison n’use pas du mensonge, quand même le faux serait plus court. Si l’on est en face d’un auditoire qui n’entend pas la démonstration du théorème afférent au carré de l’hypoténuse, il ne faut pas fabriquer une démonstration fausse mais saisissable aboutissant à la même proposition et la présenter au peuple avec cette arrière tranquillité que ça ne fait rien puisque la vraie démonstration fournit une assurance éternellement valable, une certitude. Non, mais on dit honnêtement à ceux qui ne sont pas géomètres : Les géomètres démontrent que le carré construit sur l’hypoténuse est équivalent à la somme des carrés construits sur les côtés de l’angle droit. — Il ne faut pas oublier que la plupart des grands problèmes sont plus difficiles et demandent plus de préparation que le théorème du carré de l’hypoténuse.
+Non pas que nous voulions interdire au peuple l’accès de la raison. C’est nous au contraire qui ne voulons pas qu’il aille se casser le nez à de fausses portes. Nous demandons qu’il avance raisonnablement, sagement, rationnellement dans les voies de la raison, aussi loin qu’il peut, mais en toute probité. La raison n’use pas du mensonge, quand même le faux serait plus court. Si l’on est en face d’un auditoire qui n’entend pas la démonstration du théorème afférent au carré de l’hypoténuse, il ne faut pas fabriquer une démonstration fausse mais saisissable aboutissant à la même proposition et la présenter au peuple avec cette arrière tranquillité que ne fait rien puisque la vraie démonstration fournit une assurance éternellement valable, une certitude. Non, mais on dit honnêtement à ceux qui ne sont pas géomètres: Les géomètres démontrent que le carré construit sur l’hypoténuse est équivalent à la somme des carrés construits sur les côtés de l’angle droit. — Il ne faut pas oublier que la plupart des grands problèmes sont plus difficiles et demandent plus de préparation que le théorème du carré de l’hypoténuse.
 
-Non pas que pour assurer l’indépendance, la pleine liberté de la raison, nous voulions lui instituer quelque royaume en dehors et au-dessus de l’humanité. C’est dans l’humanité même et pour l’humanité que nous entendons que la raison fonctionne. C’est l’intérêt commun de la raison et de l’humanité que l’humanité entende la voix de la raison. Les deux intérêts sont ici inséparables. Mais le fonctionnement, le travail de la raison a ceci de propre, que dans ce travail on ne doit rien sacrifier à la réussite extérieure. Il faut que la raison pénètre de plus en plus l’humanité ; il faut que la raison s’insère de plus en plus dans l’action, mais à cette condition que par cette pénétration, par cette insertion la raison ne soit jamais entamée. Les avantages que la raison tire de son travail propre et les avantages que la raison et l’humanité tirent de sa propagation ne sont pas des avantages du même ordre qui se balancent et peuvent s’équivaloir. Mais les avantages propres de la raison travaillant sont rigoureusement conditionnels, constituent la condition indispensable sans quoi l’avantage extérieur est annulé.
+Non pas que pour assurer l’indépendance, la pleine liberté de la raison, nous voulions lui instituer quelque royaume en dehors et au-dessus de l’humanité. C’est dans l’humanité même et pour l’humanité que nous entendons que la raison fonctionne. C’est l’intérêt commun de la raison et de l’humanité que l’humanité entende la voix de la raison. Les deux intérêts sont ici inséparables. Mais le fonctionnement, le travail de la raison a ceci de propre, que dans ce travail on ne doit rien sacrifier à la réussite extérieure. Il faut que la raison pénètre de plus en plus l’humanité; il faut que la raison s’insère de plus en plus dans l’action, mais à cette condition que par cette pénétration, par cette insertion la raison ne soit jamais entamée. Les avantages que la raison tire de son travail propre et les avantages que la raison et l’humanité tirent de sa propagation ne sont pas des avantages du même ordre qui se balancent et peuvent s’équivaloir. Mais les avantages propres de la raison travaillant sont rigoureusement conditionnels, constituent la condition indispensable sans quoi l’avantage extérieur est annulé.
 
-On doit travailler de son mieux à faire avancer la raison dans son travail propre ; on doit travailler de son mieux à faire entrer la raison dans l’action de l’humanité, mais ces deux efforts ne sont pas du même ordre ; le deuxième est rigoureusement conditionné par le premier. Le premier est absolument libre du deuxième.
+On doit travailler de son mieux à faire avancer la raison dans son travail propre; on doit travailler de son mieux à faire entrer la raison dans l’action de l’humanité, mais ces deux efforts ne sont pas du même ordre; le deuxième est rigoureusement conditionné par le premier. Le premier est absolument libre du deuxième.
 
-La raison n’est pas tout le monde. Nous savons, par la raison même, que la force n’est pas négligeable, que beaucoup de passions et de sentiments sont vénérables ou respectables, puissants, profonds. Nous savons que la raison n’épuise pas la vie et même le meilleur de la vie ; nous savons que les instincts et les inconscients sont d’un être plus profondément existant sans doute. Nous estimons à leur valeur les pensées confuses, les impressions, les pensées obscures, les sentiments et même les sensations. Mais nous demandons que l’on n’oublie pas que la raison est pour l’humanité la condition rigoureusement indispensable. Nous ne pouvons sans la raison estimer à sa juste valeur tout ce qui n’est pas de la raison. Et la question même de savoir ce qui revient à la raison et ce qui ne revient pas à la raison, ce n’est que par le travail de la raison que nous pouvons nous la poser.
+La raison n’est pas tout le monde. Nous savons, par la raison même, que la force n’est pas négligeable, que beaucoup de passions et de sentiments sont vénérables ou respectables, puissants, profonds. Nous savons que la raison n’épuise pas la vie et même le meilleur de la vie; nous savons que les instincts et les inconscients sont d’un être plus profondément existant sans doute. Nous estimons à leur valeur les pensées confuses, les impressions, les pensées obscures, les sentiments et même les sensations. Mais nous demandons que l’on n’oublie pas que la raison est pour l’humanité la condition rigoureusement indispensable. Nous ne pouvons sans la raison estimer à sa juste valeur tout ce qui n’est pas de la raison. Et la question même de savoir ce qui revient à la raison et ce qui ne revient pas à la raison, ce n’est que par le travail de la raison que nous pouvons nous la poser.
 
 Ce que nous demandons seulement, mais nous le demandons sans aucune réserve, sans aucune limitation, ce n’est pas que la raison devienne et soit tout, c’est qu’il n’y ait aucun malentendu dans l’usage de la raison. Nous ne défendons pas la raison contre les autres manifestations de la vie. Nous la défendons contre les manifestations qui, étant autres, veulent se donner pour elle et dégénèrent ainsi en déraisons. Nous ne la défendons pas contre les passions, contre les instincts, contre les sentiments comme tels, mais contre les démences, contre les insanités. Nous demandons que l’on ne fasse pas croire au peuple qu’on parle au nom de la raison quand on emploie des moyens qui ne sont pas les moyens de la raison. La raison a ses moyens propres, qu’elle emploie dans les arts, dans les lettres, dans les sciences et dans la philosophie. Ces moyens ne sont nullement disqualifiés pour l’étude que nous devons faire des phénomènes sociaux. Ce n’est pas quand la matière de l’étude est particulièrement complexe, mouvante, libre, difficile, que nous pouvons nous démunir d’un outil important, ou que nous devons le fausser.
 
-Vous m’avez demandé de réunir pour les *Cahiers de la Quinzaine* les études socialistes que j’ai publiées ces derniers mois dans *La Petite République* ; vous vous proposez d’adresser un exemplaire de ce volume à chacun de vos abonnés. Je me réjouis d’entrer ainsi en communication directe avec des esprits libres, habitués à la critique indépendante et probe. Bien que ces articles n’eussent point été destinés, d’abord, à paraître en volume, je n’ai point scrupule à les reproduire sous cette forme : car je n’ai jamais considéré l’article de journal comme une œuvre hâtive et superficielle ; et j’y mets, par respect pour le prolétariat qui lit les journaux socialistes, toute ma conscience d’écrivain.
+Vous m’avez demandé de réunir pour les *Cahiers de la Quinzaine* les études socialistes que j’ai publiées ces derniers mois dans *La Petite République*; vous vous proposez d’adresser un exemplaire de ce volume à chacun de vos abonnés. Je me réjouis d’entrer ainsi en communication directe avec des esprits libres, habitués à la critique indépendante et probe. Bien que ces articles n’eussent point été destinés, d’abord, à paraître en volume, je n’ai point scrupule à les reproduire sous cette forme: car je n’ai jamais considéré l’article de journal comme une œuvre hâtive et superficielle; et j’y mets, par respect pour le prolétariat qui lit les journaux socialistes, toute ma conscience d’écrivain.
 
 Je n’ai pas besoin d’avertir qu’ils ne prétendent pas épuiser les sujets qu’ils traitent. Ils ne sont, évidemment, qu’un fragment, ou plutôt une préparation d’une œuvre plus vaste, plus dogmatique et plus documentée, où je voudrais définir exactement ce qu’est, au début du vingtième siècle, le socialisme, sa conception, sa méthode et son programme.
 
-Mais, déjà, les études ici rassemblées touchent, avec une suffisante précision et une suffisante étendue, à des problèmes de la plus haute importance et qui pressent notre parti. Il est très divisé à l’heure présente, et vous m’accuseriez, sans doute, d’avoir la folie « de l’unité mystique », si je disais que ces divisions sont superficielles. Je ne les crois pas irréductibles, mais elles tiennent à de graves dissentiments, ou au moins à de graves malentendus sur les méthodes. C’est la croissance même de notre parti, c’est la puissance grandissante de notre idée — pardonnez-moi cette rechute d’optimisme —, qui ont créé le dissentiment, en nous posant à tous la question de méthode.
+Mais, déjà, les études ici rassemblées touchent, avec une suffisante précision et une suffisante étendue, à des problèmes de la plus haute importance et qui pressent notre parti. Il est très divisé à l’heure présente, et vous m’accuseriez, sans doute, d’avoir la folie « de l’unité mystique  si je disais que ces divisions sont superficielles. Je ne les crois pas irréductibles, mais elles tiennent à de graves dissentiments, ou au moins à de graves malentendus sur les méthodes. C’est la croissance même de notre parti, c’est la puissance grandissante de notre idée — pardonnez-moi cette rechute d’optimisme qui ont créé le dissentiment, en nous posant à tous la question de méthode.
 
-Comment se réalisera le socialisme ? Voilà un problème que nous ne pouvons pas éluder : et c’est l’éluder que d’y faire des réponses incertaines et vagues. Ou encore, c’est se tromper soi-même, que de répéter, en 1901, les réponses que firent, il y a un demi-siècle, nos aînés et nos maîtres.
+Comment se réalisera le socialisme? Voilà un problème que nous ne pouvons pas éluder: et c’est l’éluder que d’y faire des réponses incertaines et vagues. Ou encore, c’est se tromper soi-même, que de répéter, en 1901, les réponses que firent, il y a un demi-siècle, nos aînés et nos maîtres.
 
-Il y a un fait incontestable, et qui domine tout. C’est que le prolétariat grandit en nombre, en cohésion et en conscience. Les ouvriers, les salariés, plus nombreux, plus groupés, ont maintenant un idéal. Ils ne veulent pas seulement obvier aux pires défauts de la société présente : ils veulent réaliser un ordre social fondé sur un autre principe. À la propriété individuelle et capitaliste, qui assure la domination d’une partie des hommes sur les autres hommes, ils veulent substituer le communisme de la production, un système d’universelle coopération sociale qui, de tout homme, fasse, de droit, un associé. Ils ont ainsi dégagé leur pensée de la pensée bourgeoise : ils ont aussi dégagé leur action de l’action bourgeoise. Au service de leur idéal communiste, ils mettent une organisation à eux, une organisation de classe, la puissance croissante des syndicats ouvriers, des coopératives ouvrières, et la part croissante de pouvoir politique qu’ils conquièrent sur l’état ou dans l’état. Sur cette idée générale et première, tous les socialistes sont d’accord. Ils peuvent assigner des causes différentes à cette croissance du prolétariat ; ou du moins ils peuvent donner aux mêmes causes des valeurs différentes. Ils peuvent faire la part plus ou moins grande à la force de l’organisation économique ou de l’action politique. Mais tous ils constatent que par la nécessité même de l’évolution capitaliste qui développe la grande industrie, et par l’action correspondante des prolétaires, ceux-ci sont la force indéfiniment grandissante qui est appelée à transformer le système même de la propriété. Les socialistes discutent aussi sur l’étendue et sur la forme de l’action de classe que doit exercer le prolétariat. Les uns veulent qu’il se mêle le moins possible aux conflits de la société qu’il doit détruire, et qu’il réserve toutes ses énergies pour l’action décisive et libératrice. Les autres croient qu’il doit, dès maintenant, exercer sa grande fonction humaine. Kautsky rappelait, récemment, au congrès socialiste de Vienne, le mot fameux de Lassalle : « Le prolétariat est le roc sur lequel sera bâtie l’église de l’avenir. » et il ajoutait : « Le prolétariat n’est point seulement cela : il est aussi le roc contre lequel se brisent, dès aujourd’hui, les forces de réaction. » Et moi je dirai qu’il n’est pas précisément un roc, une puissance compacte et immobile. Il est une grande force cohérente, mais active, qui se mêle, sans s’y perdre, à tous les mouvements vastes et s’accroît de l’universelle vie. Mais tous, quelles que soient la hauteur et l’étendue de l’action de classe assignée par nous au prolétariat, nous le concevons comme une force autonome, qui peut coopérer avec d’autres forces, mais qui, jamais, ne se fond ou s’absorbe en elles, et qui garde toujours, pour son œuvre distincte et supérieure, son ressort distinct. C’est le mérite décisif de Marx, le seul peut-être qui résiste pleinement à l’épreuve de la critique et aux atteintes profondes du temps, d’avoir rapproché et confondu l’idée socialiste et le mouvement ouvrier. Dans le premier tiers du dix-neuvième siècle, la force ouvrière s’exerçait, se déployait, luttait contre la puissance écrasante du capital : mais elle n’avait pas conscience du terme où elle tendait ; elle ne savait pas que, dans la forme communiste de la propriété, était l’achèvement de son effort, l’accomplissement de sa tendance. Et, d’autre part, le socialisme ne savait point que, dans le mouvement de la classe ouvrière, était sa réalisation vivante, sa force concrète et historique. La gloire de Marx est d’avoir été le plus net, le plus puissant de ceux qui mirent fin à ce qu’il y avait d’empirisme dans le mouvement ouvrier, à ce qu’il y avait d’utopisme dans la pensée socialiste. Par une application souveraine de la méthode hégélienne, il unifia l’idée et le fait, la pensée et l’histoire. Il mit l’idée dans le mouvement et le mouvement dans l’idée, la pensée socialiste dans la vie prolétarienne, la vie prolétarienne dans la pensée socialiste. Désormais, le socialisme et le prolétariat sont inséparables : le socialisme ne réalisera toute son idée que par la victoire du prolétariat ; et le prolétariat ne réalisera tout son être que par la victoire du socialisme.
+Il y a un fait incontestable, et qui domine tout. C’est que le prolétariat grandit en nombre, en cohésion et en conscience. Les ouvriers, les salariés, plus nombreux, plus groupés, ont maintenant un idéal. Ils ne veulent pas seulement obvier aux pires défauts de la société présente: ils veulent réaliser un ordre social fondé sur un autre principe. À la propriété individuelle et capitaliste, qui assure la domination d’une partie des hommes sur les autres hommes, ils veulent substituer le communisme de la production, un système d’universelle coopération sociale qui, de tout homme, fasse, de droit, un associé. Ils ont ainsi dégagé leur pensée de la pensée bourgeoise: ils ont aussi dégagé leur action de l’action bourgeoise. Au service de leur idéal communiste, ils mettent une organisation à eux, une organisation de classe, la puissance croissante des syndicats ouvriers, des coopératives ouvrières, et la part croissante de pouvoir politique qu’ils conquièrent sur l’état ou dans l’état. Sur cette idée générale et première, tous les socialistes sont d’accord. Ils peuvent assigner des causes différentes à cette croissance du prolétariat; ou du moins ils peuvent donner aux mêmes causes des valeurs différentes. Ils peuvent faire la part plus ou moins grande à la force de l’organisation économique ou de l’action politique. Mais tous ils constatent que par la nécessité même de l’évolution capitaliste qui développe la grande industrie, et par l’action correspondante des prolétaires, ceux-ci sont la force indéfiniment grandissante qui est appelée à transformer le système même de la propriété. Les socialistes discutent aussi sur l’étendue et sur la forme de l’action de classe que doit exercer le prolétariat. Les uns veulent qu’il se mêle le moins possible aux conflits de la société qu’il doit détruire, et qu’il réserve toutes ses énergies pour l’action décisive et libératrice. Les autres croient qu’il doit, dès maintenant, exercer sa grande fonction humaine. Kautsky rappelait, récemment, au congrès socialiste de Vienne, le mot fameux de Lassalle: « Le prolétariat est le roc sur lequel sera bâtie l’église de l’avenir. » et il ajoutait: « Le prolétariat n’est point seulement cela: il est aussi le roc contre lequel se brisent, dès aujourd’hui, les forces de réaction. » Et moi je dirai qu’il n’est pas précisément un roc, une puissance compacte et immobile. Il est une grande force cohérente, mais active, qui se mêle, sans s’y perdre, à tous les mouvements vastes et s’accroît de l’universelle vie. Mais tous, quelles que soient la hauteur et l’étendue de l’action de classe assignée par nous au prolétariat, nous le concevons comme une force autonome, qui peut coopérer avec d’autres forces, mais qui, jamais, ne se fond ou s’absorbe en elles, et qui garde toujours, pour son œuvre distincte et supérieure, son ressort distinct. C’est le mérite décisif de Marx, le seul peut-être qui résiste pleinement à l’épreuve de la critique et aux atteintes profondes du temps, d’avoir rapproché et confondu l’idée socialiste et le mouvement ouvrier. Dans le premier tiers du dix-neuvième siècle, la force ouvrière s’exerçait, se déployait, luttait contre la puissance écrasante du capital: mais elle n’avait pas conscience du terme où elle tendait; elle ne savait pas que, dans la forme communiste de la propriété, était l’achèvement de son effort, l’accomplissement de sa tendance. Et, d’autre part, le socialisme ne savait point que, dans le mouvement de la classe ouvrière, était sa réalisation vivante, sa force concrète et historique. La gloire de Marx est d’avoir été le plus net, le plus puissant de ceux qui mirent fin à ce qu’il y avait d’empirisme dans le mouvement ouvrier, à ce qu’il y avait d’utopisme dans la pensée socialiste. Par une application souveraine de la méthode hégélienne, il unifia l’idée et le fait, la pensée et l’histoire. Il mit l’idée dans le mouvement et le mouvement dans l’idée, la pensée socialiste dans la vie prolétarienne, la vie prolétarienne dans la pensée socialiste. Désormais, le socialisme et le prolétariat sont inséparables: le socialisme ne réalisera toute son idée que par la victoire du prolétariat; et le prolétariat ne réalisera tout son être que par la victoire du socialisme.
 
-À la question toujours plus impérieuse : comment se réalisera le socialisme ? il convient donc d’abord de répondre : par la croissance même du prolétariat qui se confond avec lui. C’est la réponse première, essentielle : et quiconque ne l’accepte point dans son vrai sens et dans tout son sens, se met nécessairement lui-même hors de la pensée et de la vie socialistes. Cette réponse, si générale qu’elle soit, n’est pas vaine, car elle implique l’obligation pour chacun de nous d’ajouter sans cesse à la puissance de pensée, d’organisation, d’action et de vie du prolétariat. Elle est de plus, en un sens, la seule certaine. Il nous est impossible de savoir avec certitude par quel moyen précis, sous quel mode déterminé, et à quel moment, l’évolution politique et sociale s’achèvera en communisme. Mais ce qui est sûr, c’est que tout ce qui accroît la puissance intellectuelle, économique et politique de la classe prolétarienne accélère cette évolution, anime, élargit et approfondit le mouvement.
+À la question toujours plus impérieuse: comment se réalisera le socialisme? il convient donc d’abord de répondre: par la croissance même du prolétariat qui se confond avec lui. C’est la réponse première, essentielle: et quiconque ne l’accepte point dans son vrai sens et dans tout son sens, se met nécessairement lui-même hors de la pensée et de la vie socialistes. Cette réponse, si générale qu’elle soit, n’est pas vaine, car elle implique l’obligation pour chacun de nous d’ajouter sans cesse à la puissance de pensée, d’organisation, d’action et de vie du prolétariat. Elle est de plus, en un sens, la seule certaine. Il nous est impossible de savoir avec certitude par quel moyen précis, sous quel mode déterminé, et à quel moment, l’évolution politique et sociale s’achèvera en communisme. Mais ce qui est sûr, c’est que tout ce qui accroît la puissance intellectuelle, économique et politique de la classe prolétarienne accélère cette évolution, anime, élargit et approfondit le mouvement.
 
-Mais cette réponse première, quelque forte et substantielle qu’elle soit, ne suffit point. Précisément parce que le prolétariat a déjà grandi, parce qu’il commence à mettre la main sur le mécanisme politique et économique, la question se précise : quel sera le mécanisme de la victoire ? À mesure que la puissance prolétarienne se réalise, elle s’incorpore à des formes précises, au suffrage universel, au syndicat, à la coopérative, aux formes diverses des pouvoirs publics et de l’État démocratique. Et nous ne pouvons pas considérer la force prolétarienne indépendamment des formes où elle s’est déjà partiellement organisée, et des mécanismes qu’elle s’est partiellement appropriés. Il n’y a donc pas utopie aujourd’hui à chercher avec précision quelle sera la méthode de réalisation socialiste, et quel sera le mode d’accomplissement. Ce n’est pas retourner à l’utopie et se séparer de la vie du prolétariat, c’est au contraire rester en elle, progresser et se déterminer avec elle. Elle n’est plus « l’esprit flottant sur les eaux » : elle s’est déjà incorporée à des institutions : institutions économiques et institutions politiques ; ces institutions, suffrage universel, démocratie, syndicat, coopérative, ont un degré déterminé de développement, une force et une direction acquises : et il faut savoir si le communisme prolétarien pourra se réaliser par elles, s’accomplir par elles, ou si au contraire il ne s’accomplira que par une suprême rupture.
+Mais cette réponse première, quelque forte et substantielle qu’elle soit, ne suffit point. Précisément parce que le prolétariat a déjà grandi, parce qu’il commence à mettre la main sur le mécanisme politique et économique, la question se précise: quel sera le mécanisme de la victoire? À mesure que la puissance prolétarienne se réalise, elle s’incorpore à des formes précises, au suffrage universel, au syndicat, à la coopérative, aux formes diverses des pouvoirs publics et de l’État démocratique. Et nous ne pouvons pas considérer la force prolétarienne indépendamment des formes où elle s’est déjà partiellement organisée, et des mécanismes qu’elle s’est partiellement appropriés. Il n’y a donc pas utopie aujourd’hui à chercher avec précision quelle sera la méthode de réalisation socialiste, et quel sera le mode d’accomplissement. Ce n’est pas retourner à l’utopie et se séparer de la vie du prolétariat, c’est au contraire rester en elle, progresser et se déterminer avec elle. Elle n’est plus « l’esprit flottant sur les eaux »: elle s’est déjà incorporée à des institutions: institutions économiques et institutions politiques; ces institutions, suffrage universel, démocratie, syndicat, coopérative, ont un degré déterminé de développement, une force et une direction acquises: et il faut savoir si le communisme prolétarien pourra se réaliser par elles, s’accomplir par elles, ou si au contraire il ne s’accomplira que par une suprême rupture.
 
 À vrai dire, toujours les socialistes ont cherché à prévoir et à déterminer sous quelle forme, par quels procédés historiques, le prolétariat triompherait. Et si nous souffrons aujourd’hui, s’il y a dans notre parti incertitude et malaise, c’est parce qu’il associe en des mélanges confus les méthodes en partie surannées que nos maîtres nous ont léguées, et les nécessités mal formulées encore des temps nouveaux.
 
-Marx et Blanqui croyaient tous deux à une prise de possession révolutionnaire du pouvoir par le prolétariat. Mais la pensée de Marx était beaucoup plus complexe. Sa méthode de révolution avait des aspects multiples. C’est donc chez Marx surtout que je veux la discuter. Or, toute entière et en quelque sens qu’on la prenne, elle est surannée. Elle procède ou d’hypothèses historiques épuisées, ou d’hypothèses économiques inexactes. D’abord, les souvenirs de la révolution française et des révolutions successives qui en furent, en France et en Europe, le prolongement, dominaient l’esprit de Marx. Le trait commun de tous les mouvements révolutionnaires, de 1789 à 1796, de 1830 à 1848, c’est qu’ils furent des mouvements révolutionnaires bourgeois auxquels la classe ouvrière se mêla pour les dépasser. Dans toute cette longue période, la classe ouvrière n’était pas assez forte pour tenter une révolution à son profit : elle n’était pas assez forte non plus pour prendre peu à peu, et selon la légalité nouvelle, la direction de la révolution. Mais elle pouvait faire et elle faisait deux choses. D’abord elle se mêlait à tous les mouvements révolutionnaires bourgeois pour y exercer et y accroître sa force ; elle profitait des périls que courait l’ordre nouveau menacé par toutes les forces de contre-révolution pour devenir une puissance nécessaire. Et en second lieu, quand sa force s’était ainsi accrue, quand l’espérance et l’ambition s’étaient éveillées au cœur des prolétaires, quand les diverses fractions révolutionnaires de la bourgeoisie s’étaient usées ou discréditées par leurs luttes réciproques, la classe ouvrière tentait, par une sorte de coup de surprise, de s’emparer de la révolution et de la faire sienne. C’est ainsi que sous la Révolution française en 1793, le prolétariat parisien pesa, par la commune, sur la Convention et exerça parfois une sorte de dictature. C’est ainsi qu’un peu plus tard Babeuf et ses amis tentaient de saisir, par un coup de main et au profit de la classe ouvrière, le pouvoir révolutionnaire. Ainsi encore, après 1830, le prolétariat français, après avoir joué dans la Révolution de Juillet le grand rôle noté par Armand Carrel, essaya d’entraîner la bourgeoisie victorieuse, et bientôt de la dépasser. C’est ce rythme de révolution qui s’impose d’abord à la pensée de Marx. Certes en novembre 1847, au moment où avec Engels il écrit le *Manifeste communiste*, il sait bien que le prolétariat a grandi : c’est le prolétariat qu’il considère comme la vraie force révolutionnaire ; et c’est contre la bourgeoisie que se fera la révolution. Il écrit : « Le progrès de l’industrie dont la , bourgeoisie sans préméditation et sans résistance, est devenue l’agent, au lieu de maintenir l’isolement des ouvriers par la concurrence, a amené leur union révolutionnaire par l’association. Ainsi le développement même de la grande industrie détruit dans ses fondements le régime de production et d’appropriation des produits où s’appuyait la bourgeoisie. Avant tout la bourgeoisie produit ses propres fossoyeurs. La ruine de la bourgeoisie et la victoire du prolétariat sont également inévitables ».
+Marx et Blanqui croyaient tous deux à une prise de possession révolutionnaire du pouvoir par le prolétariat. Mais la pensée de Marx était beaucoup plus complexe. Sa méthode de révolution avait des aspects multiples. C’est donc chez Marx surtout que je veux la discuter. Or, toute entière et en quelque sens qu’on la prenne, elle est surannée. Elle procède ou d’hypothèses historiques épuisées, ou d’hypothèses économiques inexactes. D’abord, les souvenirs de la révolution française et des révolutions successives qui en furent, en France et en Europe, le prolongement, dominaient l’esprit de Marx. Le trait commun de tous les mouvements révolutionnaires, de 1789 à 1796, de 1830 à 1848, c’est qu’ils furent des mouvements révolutionnaires bourgeois auxquels la classe ouvrière se mêla pour les dépasser. Dans toute cette longue période, la classe ouvrière n’était pas assez forte pour tenter une révolution à son profit: elle n’était pas assez forte non plus pour prendre peu à peu, et selon la légalité nouvelle, la direction de la révolution. Mais elle pouvait faire et elle faisait deux choses. D’abord elle se mêlait à tous les mouvements révolutionnaires bourgeois pour y exercer et y accroître sa force; elle profitait des périls que courait l’ordre nouveau menacé par toutes les forces de contre-révolution pour devenir une puissance nécessaire. Et en second lieu, quand sa force s’était ainsi accrue, quand l’espérance et l’ambition s’étaient éveillées au cœur des prolétaires, quand les diverses fractions révolutionnaires de la bourgeoisie s’étaient usées ou discréditées par leurs luttes réciproques, la classe ouvrière tentait, par une sorte de coup de surprise, de s’emparer de la révolution et de la faire sienne. C’est ainsi que sous la Révolution française en 1793, le prolétariat parisien pesa, par la commune, sur la Convention et exerça parfois une sorte de dictature. C’est ainsi qu’un peu plus tard Babeuf et ses amis tentaient de saisir, par un coup de main et au profit de la classe ouvrière, le pouvoir révolutionnaire. Ainsi encore, après 1830, le prolétariat français, après avoir joué dans la Révolution de Juillet le grand rôle noté par Armand Carrel, essaya d’entraîner la bourgeoisie victorieuse, et bientôt de la dépasser. C’est ce rythme de révolution qui s’impose d’abord à la pensée de Marx. Certes en novembre 1847, au moment où avec Engels il écrit le *Manifeste communiste*, il sait bien que le prolétariat a grandi: c’est le prolétariat qu’il considère comme la vraie force révolutionnaire; et c’est contre la bourgeoisie que se fera la révolution. Il écrit: « Le progrès de l’industrie dont la, bourgeoisie sans préméditation et sans résistance, est devenue l’agent, au lieu de maintenir l’isolement des ouvriers par la concurrence, a amené leur union révolutionnaire par l’association. Ainsi le développement même de la grande industrie détruit dans ses fondements le régime de production et d’appropriation des produits où s’appuyait la bourgeoisie. Avant tout la bourgeoisie produit ses propres fossoyeurs. La ruine de la bourgeoisie et la victoire du prolétariat sont également inévitables ».
 
-Et encore : « Le but immédiat pour les communistes est le même que pour tous les autres partis prolétariens : la constitution du prolétariat en classe, le renversement de la domination bourgeoise, la conquête du pouvoir politique par le prolétariat ». Voici qui est très précis encore : « Nous avons suivi la guerre civile plus ou moins latente dans la société actuelle jusqu’au point où elle éclate en une révolution ouverte, et où, par l’effondrement évident de la bourgeoisie, le prolétariat fondera sa domination ». Ainsi, c’est par une révolution violente contre la classe bourgeoise que le prolétariat s’emparera du pouvoir et réalisera le communisme. Mais, en même temps, il paraît à Marx que c’est la bourgeoisie elle-même qui, ayant à compléter son propre mouvement révolutionnaire, donnera le signal de l’ébranlement. Contre l’absolutisme ou ce qui en reste, contre le féodalisme ou ce qui en reste, la bourgeoisie se lèvera, et quand elle aura déchaîné les événements, quand elle aura ouvert la crise, le prolétariat, plus puissant aujourd’hui que ne l’étaient sous la révolution anglaise en 1648 les niveleurs de Lilburne et en 1793 les prolétaires de Chaumette, s’emparera révolutionnairement de la révolution bourgeoise. Il commencera par lutter aux côtés de la bourgeoisie, et aussitôt qu’elle sera victorieuse, il l’expropriera de sa victoire. « En Allemagne, écrivent en 1847 Marx et Engels, le parti communiste luttera aux côtés de la bourgeoisie dans toutes les occasions où la bourgeoisie reprendra son rôle révolutionnaire ; avec elle il combattra la monarchie absolue, la propriété foncière féodale, la petite bourgeoisie. Mais pas un instant il n’oubliera d’éveiller parmi les ouvriers la conscience la plus claire possible de l’opposition qui existe entre la bourgeoisie et le prolétariat et qui en fait des ennemis. Il faut que les conditions sociales et politiques qui accompagneront le triomphe de la bourgeoisie se retournent contre la bourgeoisie elle-même comme autant d’armes dont aussitôt les ouvriers allemands sauront faire usage. Il faut qu’après la chute des classes réactionnaires en Allemagne, la lutte contre la bourgeoisie s’engage sans tarder.
+Et encore: « Le but immédiat pour les communistes est le même que pour tous les autres partis prolétariens: la constitution du prolétariat en classe, le renversement de la domination bourgeoise, la conquête du pouvoir politique par le prolétariat ». Voici qui est très précis encore: « Nous avons suivi la guerre civile plus ou moins latente dans la société actuelle jusqu’au point où elle éclate en une révolution ouverte, et où, par l’effondrement évident de la bourgeoisie, le prolétariat fondera sa domination ». Ainsi, c’est par une révolution violente contre la classe bourgeoise que le prolétariat s’emparera du pouvoir et réalisera le communisme. Mais, en même temps, il paraît à Marx que c’est la bourgeoisie elle-même qui, ayant à compléter son propre mouvement révolutionnaire, donnera le signal de l’ébranlement. Contre l’absolutisme ou ce qui en reste, contre le féodalisme ou ce qui en reste, la bourgeoisie se lèvera, et quand elle aura déchaîné les événements, quand elle aura ouvert la crise, le prolétariat, plus puissant aujourd’hui que ne l’étaient sous la révolution anglaise en 1648 les niveleurs de Lilburne et en 1793 les prolétaires de Chaumette, s’emparera révolutionnairement de la révolution bourgeoise. Il commencera par lutter aux côtés de la bourgeoisie, et aussitôt qu’elle sera victorieuse, il l’expropriera de sa victoire. « En Allemagne, écrivent en 1847 Marx et Engels, le parti communiste luttera aux côtés de la bourgeoisie dans toutes les occasions où la bourgeoisie reprendra son rôle révolutionnaire; avec elle il combattra la monarchie absolue, la propriété foncière féodale, la petite bourgeoisie. Mais pas un instant il n’oubliera d’éveiller parmi les ouvriers la conscience la plus claire possible de l’opposition qui existe entre la bourgeoisie et le prolétariat et qui en fait des ennemis. Il faut que les conditions sociales et politiques qui accompagneront le triomphe de la bourgeoisie se retournent contre la bourgeoisie elle-même comme autant d’armes dont aussitôt les ouvriers allemands sauront faire usage. Il faut qu’après la chute des classes réactionnaires en Allemagne, la lutte contre la bourgeoisie s’engage sans tarder.
 
 « C’est l’Allemagne surtout qui attirera l’attention des communistes. L’Allemagne est à la veille d’une révolution bourgeoise. Cette révolution, elle l’accomplira en présence d’un développement général de la civilisation européenne et d’un développement du prolétariat que ni l’Angleterre au dix-septième siècle ni la France au dix-huitième n’ont connu. La révolution bourgeoise sera donc, et de toute nécessité, le prélude immédiat d’une révolution prolétarienne ».
 
-Ainsi, c’est sur une Révolution bourgeoise victorieuse que se greffera la Révolution prolétarienne. L’esprit de Marx, en sa haute ironie un peu sarcastique, se complaisait à ces jeux de la pensée. Que l’histoire mystifiât la bourgeoisie en lui arrachant des mains sa victoire toute chaude, c’était pour lui une âpre joie. Mais c’était un plan de révolution prolétarienne trop compliqué et contradictoire. D’abord, si le prolétariat n’a pas la force de donner lui-même le signal de la Révolution, s’il est obligé de compter sur les surprises heureuses de la Révolution bourgeoise, comment peut-on être assuré qu’il aura contre la bourgeoisie victorieuse la force qu’il n’avait pas avant le mouvement bourgeois ? Ou bien, dans sa tentative de révolution contre le vieux monde absolutiste et féodal, la bourgeoisie sera vaincue : et sous sa défaite le prolétariat sera accablé bien avant d’avoir combattu pour lui-même. Ou bien elle l’emportera ; elle brisera l’arbitraire des rois, la puissance des nobles et des prêtres, absorbera la propriété féodale, abolira les entraves corporatives : et elle s’élancera d’un mouvement si vif, si enthousiaste dans la carrière ouverte par elle, que le prolétariat sera impuissant à créer soudain un mouvement nouveau et contraire. Et il aura beau procéder par surprise et violence, tenter d’organiser « sa dictature », et de « conquérir la démocratie » par la force, sa puissance réelle ne pourra pas être élevée artificiellement au-dessus du niveau où elle était avant la Révolution bourgeoise. Miquel ne manquait pas de clairvoyance lorsqu’il écrivait à Marx dans sa fameuse lettre de 1850, et en prévision d’une reprise de Révolution : « Le parti ouvrier pourra l’emporter sur la haute bourgeoisie et les restes de la haute féodalité, mais il sera fusillé dans les flancs par les démocrates. Nous pouvons peut-être donner pour quelque temps à la Révolution une direction antibourgeoise, nous pouvons détruire les conditions essentielles de la production bourgeoise : mais il nous est impossible d’abattre la petite bourgeoisie. Obtenir autant que possible, voilà ma devise. Nous devons empêcher aussi longtemps que possible après la première victoire toute organisation des petits , bourgeois, et notamment nous opposer en phalange serrée à toute assemblée constituante. Le terrorisme particulier, l’anarchie locale, doivent remplacer pour nous ce qui nous manque en gros ». Mais on ne remplace pas ainsi « ce qui manque en gros ». Il est certain que lorsqu’une classe n’est pas encore prête historiquement, lorsqu’elle est obligée d’attendre le signal et le moyen de sa propre action de ceux-là mêmes qu’elle prétend remplacer, lorsque sa Révolution empruntant sa force du mouvement ennemi n’est encore qu’une Révolution parasitaire, elle ne peut se promettre quelque succès que si elle tient la Révolution ouverte et « en permanence », si elle prolonge l’agitation de tous les éléments sociaux. Mais à ce jeu elle ne fait guère que gagner du temps ou accroître les chances d’une réaction qui emporte à la fois et prolétariat et bourgeoisie. C’est la tactique à laquelle la classe ouvrière est condamnée, quand elle est encore dans une période d’insuffisante préparation. Et si un des caractères du socialisme utopique est de n’avoir pas compté sur la force propre de la classe ouvrière, le *Manifeste communiste* de Marx et de Engels fait encore partie de la période d’utopie. Robert Owen, Fourier, comptaient sur le bon vouloir des classes supérieures. Marx et Engels attendent, pour le prolétariat, la faveur d’une Révolution bourgeoise. Ce que propose le *Manifeste*, ce n’est pas la méthode de révolution d’une classe sûre d’elle-même et dont l’heure est enfin venue : c’est l’expédient de Révolution d’une classe impatiente et faible, qui veut brusquer par artifice la marche des choses.
+Ainsi, c’est sur une Révolution bourgeoise victorieuse que se greffera la Révolution prolétarienne. L’esprit de Marx, en sa haute ironie un peu sarcastique, se complaisait à ces jeux de la pensée. Que l’histoire mystifiât la bourgeoisie en lui arrachant des mains sa victoire toute chaude, c’était pour lui une âpre joie. Mais c’était un plan de révolution prolétarienne trop compliqué et contradictoire. D’abord, si le prolétariat n’a pas la force de donner lui-même le signal de la Révolution, s’il est obligé de compter sur les surprises heureuses de la Révolution bourgeoise, comment peut-on être assuré qu’il aura contre la bourgeoisie victorieuse la force qu’il n’avait pas avant le mouvement bourgeois? Ou bien, dans sa tentative de révolution contre le vieux monde absolutiste et féodal, la bourgeoisie sera vaincue: et sous sa défaite le prolétariat sera accablé bien avant d’avoir combattu pour lui-même. Ou bien elle l’emportera; elle brisera l’arbitraire des rois, la puissance des nobles et des prêtres, absorbera la propriété féodale, abolira les entraves corporatives: et elle s’élancera d’un mouvement si vif, si enthousiaste dans la carrière ouverte par elle, que le prolétariat sera impuissant à créer soudain un mouvement nouveau et contraire. Et il aura beau procéder par surprise et violence, tenter d’organiser « sa dictature  et de « conquérir la démocratie » par la force, sa puissance réelle ne pourra pas être élevée artificiellement au-dessus du niveau où elle était avant la Révolution bourgeoise. Miquel ne manquait pas de clairvoyance lorsqu’il écrivait à Marx dans sa fameuse lettre de 1850, et en prévision d’une reprise de Révolution: « Le parti ouvrier pourra l’emporter sur la haute bourgeoisie et les restes de la haute féodalité, mais il sera fusillé dans les flancs par les démocrates. Nous pouvons peut-être donner pour quelque temps à la Révolution une direction antibourgeoise, nous pouvons détruire les conditions essentielles de la production bourgeoise: mais il nous est impossible d’abattre la petite bourgeoisie. Obtenir autant que possible, voilà ma devise. Nous devons empêcher aussi longtemps que possible après la première victoire toute organisation des petits, bourgeois, et notamment nous opposer en phalange serrée à toute assemblée constituante. Le terrorisme particulier, l’anarchie locale, doivent remplacer pour nous ce qui nous manque en gros ». Mais on ne remplace pas ainsi « ce qui manque en gros ». Il est certain que lorsqu’une classe n’est pas encore prête historiquement, lorsqu’elle est obligée d’attendre le signal et le moyen de sa propre action de ceux-là mêmes qu’elle prétend remplacer, lorsque sa Révolution empruntant sa force du mouvement ennemi n’est encore qu’une Révolution parasitaire, elle ne peut se promettre quelque succès que si elle tient la Révolution ouverte et « en permanence  si elle prolonge l’agitation de tous les éléments sociaux. Mais à ce jeu elle ne fait guère que gagner du temps ou accroître les chances d’une réaction qui emporte à la fois et prolétariat et bourgeoisie. C’est la tactique à laquelle la classe ouvrière est condamnée, quand elle est encore dans une période d’insuffisante préparation. Et si un des caractères du socialisme utopique est de n’avoir pas compté sur la force propre de la classe ouvrière, le *Manifeste communiste* de Marx et de Engels fait encore partie de la période d’utopie. Robert Owen, Fourier, comptaient sur le bon vouloir des classes supérieures. Marx et Engels attendent, pour le prolétariat, la faveur d’une Révolution bourgeoise. Ce que propose le *Manifeste*, ce n’est pas la méthode de révolution d’une classe sûre d’elle-même et dont l’heure est enfin venue: c’est l’expédient de Révolution d’une classe impatiente et faible, qui veut brusquer par artifice la marche des choses.
 
-Aussi bien, au bout de cet effort paradoxal, après cette sorte de détournement prolétarien de la Révolution bourgeoise, ce n’est pas une pleine victoire du prolétariat et du communisme que Marx entrevoit : c’est un régime singulièrement mêlé de propriété capitaliste et de communisme, de violence à la propriété et d’organisation du crédit. Chose singulière ! Après avoir constaté que c’est l’évolution de l’industrie et la croissance du prolétariat industriel qui créent une force révolutionnaire, le *Manifeste* ne prévoit d’abord, dans le programme immédiat de la révolution communiste victorieuse, que l’expropriation de la rente foncière. Il rétrograde au delà de Babeuf, dont la gloire est d’avoir fait entrer la production industrielle aussi bien que la production agricole dans le plan communiste. Il recule presque jusqu’à Saint-Just, qui semble avoir prévu la possibilité pour la nation d’absorber les fermages. « Nous avons vu plus haut, dit Marx, que la première démarche de la révolution ouvrière serait de constituer le prolétariat en classe régnante, de conquérir le régime démocratique.
+Aussi bien, au bout de cet effort paradoxal, après cette sorte de détournement prolétarien de la Révolution bourgeoise, ce n’est pas une pleine victoire du prolétariat et du communisme que Marx entrevoit: c’est un régime singulièrement mêlé de propriété capitaliste et de communisme, de violence à la propriété et d’organisation du crédit. Chose singulière! Après avoir constaté que c’est l’évolution de l’industrie et la croissance du prolétariat industriel qui créent une force révolutionnaire, le *Manifeste* ne prévoit d’abord, dans le programme immédiat de la révolution communiste victorieuse, que l’expropriation de la rente foncière. Il rétrograde au delà de Babeuf, dont la gloire est d’avoir fait entrer la production industrielle aussi bien que la production agricole dans le plan communiste. Il recule presque jusqu’à Saint-Just, qui semble avoir prévu la possibilité pour la nation d’absorber les fermages. « Nous avons plus haut, dit Marx, que la première démarche de la révolution ouvrière serait de constituer le prolétariat en classe régnante, de conquérir le régime démocratique.
 
 « Le prolétariat usera de sa suprématie politique pour arracher peu à peu à la bourgeoisie tous les capitaux, pour centraliser entre les mains de l’état, c’est-à-dire du prolétariat constitué en classe dirigeante, les instruments de production et pour accroître au plus vite la masse disponible des forces productives.
 
-« Il va de soi que cela impliquera dans la période du début des infractions despotiques au droit de propriété et aux conditions bourgeoises de la production. Des mesures devront être prises qui sans doute paraîtront insuffisantes et auxquelles on ne pourra pas s’en tenir, mais qui, une fois le mouvement commencé, mèneront à des mesures nouvelles et seront indispensables à titre de moyens pour révolutionner tout le régime de production. Ces mesures, évidemment, seront différentes en des pays différents. Cependant les mesures suivantes seront assez généralement applicables, du moins dans les pays les plus avancés :
+« Il de soi que cela impliquera dans la période du début des infractions despotiques au droit de propriété et aux conditions bourgeoises de la production. Des mesures devront être prises qui sans doute paraîtront insuffisantes et auxquelles on ne pourra pas s’en tenir, mais qui, une fois le mouvement commencé, mèneront à des mesures nouvelles et seront indispensables à titre de moyens pour révolutionner tout le régime de production. Ces mesures, évidemment, seront différentes en des pays différents. Cependant les mesures suivantes seront assez généralement applicables, du moins dans les pays les plus avancés:
 
-« 1o Expropriation de la propriété foncière ; affectation de la rente foncière aux dépenses de l’État.
+«  Expropriation de la propriété foncière; affectation de la rente foncière aux dépenses de l’État.
 
-« 2o Impôt fortement progressif.
+«  Impôt fortement progressif.
 
-« 3o Abolition de l’héritage.
+«  Abolition de l’héritage.
 
-« 4o Confiscation des biens de tous les émigrés et rebelles.
+«  Confiscation des biens de tous les émigrés et rebelles.
 
-« 5o Centralisation du crédit aux mains de l’État par le moyen d’une banque nationale constituée avec les capitaux de l’État et avec un monopole exclusif.
+«  Centralisation du crédit aux mains de l’État par le moyen d’une banque nationale constituée avec les capitaux de l’État et avec un monopole exclusif.
 
-« 6o Centralisation des industries de transport aux mains de l’État.
+«  Centralisation des industries de transport aux mains de l’État.
 
-« 7o Multiplication des manufactures nationales, des instruments nationaux de production, défrichement et amélioration des terres cultivables d’après un plan d’ensemble.
+«  Multiplication des manufactures nationales, des instruments nationaux de production, défrichement et amélioration des terres cultivables d’après un plan d’ensemble.
 
-« 8o Travail obligatoire pour tous : organisation d’armées industrielles, notamment en vue de l’agriculture.
+«  Travail obligatoire pour tous: organisation d’armées industrielles, notamment en vue de l’agriculture.
 
-« 9o Réunion de l’agriculture et du travail industriel : préparation de toutes les mesures capables de faire disparaître progressivement la différence entre la ville et la campagne.
+«  Réunion de l’agriculture et du travail industriel: préparation de toutes les mesures capables de faire disparaître progressivement la différence entre la ville et la campagne.
 
-« 10o Éducation publique et gratuite de tous les enfants. Abolition des formes actuellement en usage du travail des enfants dans les fabriques. Réunion de l’éducation et de la production matérielle, etc. »
+«  Éducation publique et gratuite de tous les enfants. Abolition des formes actuellement en usage du travail des enfants dans les fabriques. Réunion de l’éducation et de la production matérielle, etc. »
 
-Étrange programme, où sont rapprochés le communisme agraire du dix-huitième siècle et quelques éléments de ce que nous appelons aujourd’hui le programme de Saint-Mandé : Marx et Engels, dans l’ordre industriel, se contentent d’abord de la nationalisation des chemins de fer : il n’y a même pas la nationalisation des mines acceptée aujourd’hui par les radicaux-socialistes. Mais ce qui me frappe, ce n’est pas le chaos du programme, la coexistence du communisme agricole et du capitalisme industriel. Ce n’est pas la contradiction entre l’article qui abolit l’héritage et qui retire ainsi par là aux générations nouvelles le capital industriel, et l’ensemble des articles qui laissent subsister la propriété individuelle. L’histoire démontre que des formes diverses et même contradictoires ont souvent coexisté : longtemps la production corporative et la production capitaliste ont fonctionné côte à côte : tout le dix-septième et tout le dix-huitième siècles sont faits du mélange des deux, et longtemps aussi le travail libre agricole et le servage avaient coexisté. Et je suis convaincu que dans l’évolution révolutionnaire qui nous conduira au communisme, la propriété collectiviste et la propriété individuelle, le communisme et le capitalisme seront longtemps juxtaposés. C’est la loi même des grandes transformations. Marx et Engels avaient parfaitement le droit, sans se désavouer eux-mêmes, de dire en 1872 qu’ils faisaient assez bon marché de leur programme de 1847. « Ce passage aujourd’hui devrait être modifié en plusieurs de ses termes. Les progrès immenses accomplis par la grande industrie dans les vingt-cinq dernières années, les progrès parallèles accomplis par la classe ouvrière organisée en parti… font paraître vieillis plus d’un passage de ce programme. » Tout au plus peut-on s’étonner qu’ils n’aient pas fait, dès 1847, une part plus large au communisme industriel.
+Étrange programme, où sont rapprochés le communisme agraire du dix-huitième siècle et quelques éléments de ce que nous appelons aujourd’hui le programme de Saint-Mandé: Marx et Engels, dans l’ordre industriel, se contentent d’abord de la nationalisation des chemins de fer: il n’y a même pas la nationalisation des mines acceptée aujourd’hui par les radicaux-socialistes. Mais ce qui me frappe, ce n’est pas le chaos du programme, la coexistence du communisme agricole et du capitalisme industriel. Ce n’est pas la contradiction entre l’article qui abolit l’héritage et qui retire ainsi par aux générations nouvelles le capital industriel, et l’ensemble des articles qui laissent subsister la propriété individuelle. L’histoire démontre que des formes diverses et même contradictoires ont souvent coexisté: longtemps la production corporative et la production capitaliste ont fonctionné côte à côte: tout le dix-septième et tout le dix-huitième siècles sont faits du mélange des deux, et longtemps aussi le travail libre agricole et le servage avaient coexisté. Et je suis convaincu que dans l’évolution révolutionnaire qui nous conduira au communisme, la propriété collectiviste et la propriété individuelle, le communisme et le capitalisme seront longtemps juxtaposés. C’est la loi même des grandes transformations. Marx et Engels avaient parfaitement le droit, sans se désavouer eux-mêmes, de dire en 1872 qu’ils faisaient assez bon marché de leur programme de 1847. « Ce passage aujourd’hui devrait être modifié en plusieurs de ses termes. Les progrès immenses accomplis par la grande industrie dans les vingt-cinq dernières années, les progrès parallèles accomplis par la classe ouvrière organisée en parti… font paraître vieillis plus d’un passage de ce programme. » Tout au plus peut-on s’étonner qu’ils n’aient pas fait, dès 1847, une part plus large au communisme industriel.
 
-Mais ce qui étonne, c’est qu’ils aient pu croire le prolétariat capable de confisquer à son profit les révolutions bourgeoises et de conquérir, par un coup d’autorité, la démocratie, alors qu’ils le supposaient incapable, au lendemain de sa victoire et même dans les pays les plus avancés, d’instituer largement le communisme industriel. Ce qui frappe surtout, dans le *Manifeste*, ce n’est pas le chaos du programme, qui pourrait se débrouiller, mais le chaos des méthodes. C’est par un coup de force que le prolétariat s’est installé d’abord au pouvoir : c’est par un coup de force qu’il l’a arraché aux révolutionnaires bourgeois. Il « conquiert la démocratie », c’est-à-dire qu’en fait il la suspend, puisqu’il substitue à la volonté de la majorité des citoyens librement consultés la volonté dictatoriale d’une classe. C’est encore par la force, par la puissance dictatoriale, qu’il commet ces premières « infractions despotiques » à la propriété que le *Manifeste* prévoit. Mais ensuite, pour tout le développement de la révolution, pour l’élaboration et l’organisation de l’ordre nouveau, est-ce encore la dictature du prolétariat qui subsiste, ou est-il rentré sous la loi de la démocratie, du suffrage universel et des transactions ? Il est impossible de supposer que Marx et Engels aient songé à suspendre longtemps, au profit de la dictature prolétarienne, la démocratie. Comment le pourraient-ils, la révolution prolétarienne elle-même ayant surgi d’un mouvement vaste vers la démocratie ? Comment le pourraient-ils encore, puisqu’ils laissent subsister la puissance économique de la bourgeoisie, la forme capitaliste de l’industrie ? Laisser au patronat, au moins dans une période provisoire dont ils n’essaient même pas d’indiquer le terme, la direction des ateliers, des manufactures et des usines, et tenir ce même patronat hors du droit politique, hors de la cité, c’est une impossibilité. Il est contradictoire de faire des bourgeois des citoyens passifs et de leur laisser encore dans une large mesure la maîtrise de la production. Il est contradictoire d’organiser le crédit d’État et de ne pas soumettre au contrôle de toute la nation le fonctionnement de ce crédit. Une classe, née de la démocratie, qui, au lieu de se ranger à la loi de la démocratie, prolongerait sa dictature au delà des premiers jours de la révolution, ne serait bientôt plus qu’une bande campée sur le territoire et abusant des ressources du pays. Donc ou Marx et Engels acheminent le prolétariat à un chaos de barbarie et d’impuissance, ou ils prévoient qu’après les premiers actes politiques et économiques qui auront donné à la classe ouvrière un grand essor et marqué d’un sceau socialiste la démocratie, il se confondra de nouveau dans la vie nationale et dans la légalité du suffrage universel. Mais qu’est-ce à dire ? Et si la démocratie n’est point préparée au mouvement communiste, ne va-t-elle point contrarier, au lieu de les étendre, les effets des premières mesures dictatoriales du prolétariat ? Et si au contraire la démocratie y est préparée, si le prolétariat peut, par la seule force légale, obtenir d’elle qu’elle développe dans le sens communiste les premières institutions révolutionnaires, c’est en réalité la conquête légale de la démocratie qui devient la méthode souveraine de Révolution. Tout le reste, je le répète, n’est que l’expédient, peut-être nécessaire un moment, d’une classe encore débile et mal préparée. Mais ceux des socialistes d’aujourd’hui qui parlent encore de « dictature impersonnelle du prolétariat » ou qui prévoient la prise de possession brusque du pouvoir et la violence faite à la démocratie, ceux-là rétrogradent au temps où le prolétariat était faible encore, et où il était réduit à des moyens factices de victoire.
+Mais ce qui étonne, c’est qu’ils aient croire le prolétariat capable de confisquer à son profit les révolutions bourgeoises et de conquérir, par un coup d’autorité, la démocratie, alors qu’ils le supposaient incapable, au lendemain de sa victoire et même dans les pays les plus avancés, d’instituer largement le communisme industriel. Ce qui frappe surtout, dans le *Manifeste*, ce n’est pas le chaos du programme, qui pourrait se débrouiller, mais le chaos des méthodes. C’est par un coup de force que le prolétariat s’est installé d’abord au pouvoir: c’est par un coup de force qu’il l’a arraché aux révolutionnaires bourgeois. Il « conquiert la démocratie  c’est-à-dire qu’en fait il la suspend, puisqu’il substitue à la volonté de la majorité des citoyens librement consultés la volonté dictatoriale d’une classe. C’est encore par la force, par la puissance dictatoriale, qu’il commet ces premières « infractions despotiques » à la propriété que le *Manifeste* prévoit. Mais ensuite, pour tout le développement de la révolution, pour l’élaboration et l’organisation de l’ordre nouveau, est-ce encore la dictature du prolétariat qui subsiste, ou est-il rentré sous la loi de la démocratie, du suffrage universel et des transactions? Il est impossible de supposer que Marx et Engels aient songé à suspendre longtemps, au profit de la dictature prolétarienne, la démocratie. Comment le pourraient-ils, la révolution prolétarienne elle-même ayant surgi d’un mouvement vaste vers la démocratie? Comment le pourraient-ils encore, puisqu’ils laissent subsister la puissance économique de la bourgeoisie, la forme capitaliste de l’industrie? Laisser au patronat, au moins dans une période provisoire dont ils n’essaient même pas d’indiquer le terme, la direction des ateliers, des manufactures et des usines, et tenir ce même patronat hors du droit politique, hors de la cité, c’est une impossibilité. Il est contradictoire de faire des bourgeois des citoyens passifs et de leur laisser encore dans une large mesure la maîtrise de la production. Il est contradictoire d’organiser le crédit d’État et de ne pas soumettre au contrôle de toute la nation le fonctionnement de ce crédit. Une classe, née de la démocratie, qui, au lieu de se ranger à la loi de la démocratie, prolongerait sa dictature au delà des premiers jours de la révolution, ne serait bientôt plus qu’une bande campée sur le territoire et abusant des ressources du pays. Donc ou Marx et Engels acheminent le prolétariat à un chaos de barbarie et d’impuissance, ou ils prévoient qu’après les premiers actes politiques et économiques qui auront donné à la classe ouvrière un grand essor et marqué d’un sceau socialiste la démocratie, il se confondra de nouveau dans la vie nationale et dans la légalité du suffrage universel. Mais qu’est-ce à dire? Et si la démocratie n’est point préparée au mouvement communiste, ne va-t-elle point contrarier, au lieu de les étendre, les effets des premières mesures dictatoriales du prolétariat? Et si au contraire la démocratie y est préparée, si le prolétariat peut, par la seule force légale, obtenir d’elle qu’elle développe dans le sens communiste les premières institutions révolutionnaires, c’est en réalité la conquête légale de la démocratie qui devient la méthode souveraine de Révolution. Tout le reste, je le répète, n’est que l’expédient, peut-être nécessaire un moment, d’une classe encore débile et mal préparée. Mais ceux des socialistes d’aujourd’hui qui parlent encore de « dictature impersonnelle du prolétariat » ou qui prévoient la prise de possession brusque du pouvoir et la violence faite à la démocratie, ceux-là rétrogradent au temps où le prolétariat était faible encore, et où il était réduit à des moyens factices de victoire.
 
-En fait, la tactique du *Manifeste*, qui consiste pour le prolétariat à dériver vers lui des mouvements qu’il n’eût pu susciter lui-même, cette tactique de la force croissante et hardie mais subordonnée encore, la classe ouvrière l’a employée d’instinct dans toutes les crises de la société démocratique et bourgeoise. Marx en avait reçu l’idée de la révolution française et de Babeuf. Après 1830, les mouvements ouvriers de Paris et de Lyon prolongèrent en une confuse affirmation prolétarienne la révolution de la bourgeoisie. En 1848, les prolétaires de Paris, de Vienne, de Berlin tentèrent, en d’audacieuses journées, de dériver vers le socialisme le mouvement de la Révolution. La fameuse parole de Blanqui : « On ne crée pas un mouvement, on le dérive » est l’expression même de cette politique. C’est la formule active du *Manifeste communiste* de Marx, c’est le mot d’ordre d’une classe qui se sent mineure encore mais appelée à de hautes destinées. En 1870, le 31 octobre succédant au 4 septembre est une reprise de la méthode marxiste et blanquiste. Dans la commune même, l’action croissante du prolétariat socialiste se substituant à la démocratie petite-bourgeoise est encore une application de la tactique du *Manifeste* : greffer la révolution prolétarienne sur la révolution démocratique et bourgeoise.
+En fait, la tactique du *Manifeste*, qui consiste pour le prolétariat à dériver vers lui des mouvements qu’il n’eût susciter lui-même, cette tactique de la force croissante et hardie mais subordonnée encore, la classe ouvrière l’a employée d’instinct dans toutes les crises de la société démocratique et bourgeoise. Marx en avait reçu l’idée de la révolution française et de Babeuf. Après 1830, les mouvements ouvriers de Paris et de Lyon prolongèrent en une confuse affirmation prolétarienne la révolution de la bourgeoisie. En 1848, les prolétaires de Paris, de Vienne, de Berlin tentèrent, en d’audacieuses journées, de dériver vers le socialisme le mouvement de la Révolution. La fameuse parole de Blanqui: « On ne crée pas un mouvement, on le dérive » est l’expression même de cette politique. C’est la formule active du *Manifeste communiste* de Marx, c’est le mot d’ordre d’une classe qui se sent mineure encore mais appelée à de hautes destinées. En 1870, le 31 octobre succédant au 4 septembre est une reprise de la méthode marxiste et blanquiste. Dans la commune même, l’action croissante du prolétariat socialiste se substituant à la démocratie petite-bourgeoise est encore une application de la tactique du *Manifeste*: greffer la révolution prolétarienne sur la révolution démocratique et bourgeoise.
 
-Lassalle avait eu une ambition plus hardie. Lui, il ne voulait pas laisser la révolution, même bourgeoise, prendre d’abord une forme bourgeoise. Il voulait la capter, pour ainsi dire, à sa source même, et la dériver d’emblée vers le prolétariat. Ainsi, lorsque, en 1863, éclata le conflit entre la représentation prussienne et le ministère prussien, lorsque la bourgeoisie progressiste et libérale d’Allemagne s’agita pour défendre le droit constitutionnel menacé par Bismarck, on put se demander si le conflit n’aboutirait point à une révolution. En celle-ci, ce n’est donc pas la question sociale, la question de la propriété qui aurait été posée. Elle n’eût pas été d’origine communiste et prolétarienne, mais au contraire d’origine bourgeoise et parlementaire. Elle eût été comme la reprise de la Révolution bourgeoise allemande que Marx annonçait en novembre 1847, et qui avorta en 1848 et 1849.
+Lassalle avait une ambition plus hardie. Lui, il ne voulait pas laisser la révolution, même bourgeoise, prendre d’abord une forme bourgeoise. Il voulait la capter, pour ainsi dire, à sa source même, et la dériver d’emblée vers le prolétariat. Ainsi, lorsque, en 1863, éclata le conflit entre la représentation prussienne et le ministère prussien, lorsque la bourgeoisie progressiste et libérale d’Allemagne s’agita pour défendre le droit constitutionnel menacé par Bismarck, on put se demander si le conflit n’aboutirait point à une révolution. En celle-ci, ce n’est donc pas la question sociale, la question de la propriété qui aurait été posée. Elle n’eût pas été d’origine communiste et prolétarienne, mais au contraire d’origine bourgeoise et parlementaire. Elle eût été comme la reprise de la Révolution bourgeoise allemande que Marx annonçait en novembre 1847, et qui avorta en 1848 et 1849.
 
-Mais cette Révolution allemande, si bourgeoise qu’elle fût en ses origines, Lassalle ne voulait pas qu’elle fût bourgeoise, même un moment, dans sa manifestation et dans sa marche. C’était, selon lui, le prolétariat allemand organisé qui devait susciter du conflit bourgeois la Révolution et prendre tout de suite en main la force nouvelle des événements. Il proclamait que la bourgeoisie était sans audace, qu’elle essaierait tout au plus de revenir à la fédération allemande de 1848, et qu’il fallait au contraire instituer l’entière unité de l’Allemagne démocratique. « Des buts misérablement médiocres, s’écriait-il, ne peuvent susciter qu’une conduite misérablement médiocre ; seule une grande idée, seul l’enthousiasme pour des buts puissants créent le dévouement, l’esprit de sacrifice, la vaillance ! » Et de quel droit la bourgeoisie allemande, qui avait laissé périr la liberté en 1848, se donnerait-elle aujourd’hui comme la gardienne de la liberté ? Aussi bien, et Lassalle en prenait acte triomphalement, les chefs de la bourgeoisie libérale déclaraient d’avance se refuser à toute révolution. C’est donc le prolétariat qui passerait d’emblée au premier plan si la crise devenait révolutionnaire. « Je trouve très maladroit M De Benningsen, disait Lassalle, de nous rappeler que lui et son parti ne veulent point de révolution ! Puisqu’il nous le rappelle sans relâche, nous voulons lui faire cette joie de ne point l’oublier. Levons nos mains et engageons-nous, si sous une forme ou sous une autre se produit le grand ébranlement, à rappeler aux nationaux-libéraux que jusqu’au dernier moment ils ont déclaré ne vouloir pas de révolution. »
+Mais cette Révolution allemande, si bourgeoise qu’elle fût en ses origines, Lassalle ne voulait pas qu’elle fût bourgeoise, même un moment, dans sa manifestation et dans sa marche. C’était, selon lui, le prolétariat allemand organisé qui devait susciter du conflit bourgeois la Révolution et prendre tout de suite en main la force nouvelle des événements. Il proclamait que la bourgeoisie était sans audace, qu’elle essaierait tout au plus de revenir à la fédération allemande de 1848, et qu’il fallait au contraire instituer l’entière unité de l’Allemagne démocratique. « Des buts misérablement médiocres, s’écriait-il, ne peuvent susciter qu’une conduite misérablement médiocre; seule une grande idée, seul l’enthousiasme pour des buts puissants créent le dévouement, l’esprit de sacrifice, la vaillance! » Et de quel droit la bourgeoisie allemande, qui avait laissé périr la liberté en 1848, se donnerait-elle aujourd’hui comme la gardienne de la liberté? Aussi bien, et Lassalle en prenait acte triomphalement, les chefs de la bourgeoisie libérale déclaraient d’avance se refuser à toute révolution. C’est donc le prolétariat qui passerait d’emblée au premier plan si la crise devenait révolutionnaire. « Je trouve très maladroit De Benningsen, disait Lassalle, de nous rappeler que lui et son parti ne veulent point de révolution! Puisqu’il nous le rappelle sans relâche, nous voulons lui faire cette joie de ne point l’oublier. Levons nos mains et engageons-nous, si sous une forme ou sous une autre se produit le grand ébranlement, à rappeler aux nationaux-libéraux que jusqu’au dernier moment ils ont déclaré ne vouloir pas de révolution. »
 
-C’est donc au prolétariat que serait, pour ainsi dire, adjugée dès la première heure la Révolution. Lassalle, conscient de la croissance de la classe ouvrière, et impatient aussi de cueillir tous les fruits de la vie, n’accepte point, comme Marx en 1847, une période première de révolution bourgeoise. Quoique née d’un conflit entre la bourgeoisie libérale et l’absolutisme royal, la Révolution passera dès le premier jour aux mains ouvrières. C’est encore l’application de la méthode marxiste, mais dans une sorte de cas limite où est réduite à zéro la durée de la période bourgeoise. De ce pouvoir révolutionnaire soudain conquis, Lassalle se proposait, il est vrai, de faire un usage très modéré. Il se serait borné à fonder le suffrage universel, à supprimer les impôts indirects, à affranchir la presse du joug du capital et à subventionner largement sur les ressources de l’État des associations ouvrières de production : pas d’expropriation ; pas d’application étendue d’un plan communiste.
+C’est donc au prolétariat que serait, pour ainsi dire, adjugée dès la première heure la Révolution. Lassalle, conscient de la croissance de la classe ouvrière, et impatient aussi de cueillir tous les fruits de la vie, n’accepte point, comme Marx en 1847, une période première de révolution bourgeoise. Quoique née d’un conflit entre la bourgeoisie libérale et l’absolutisme royal, la Révolution passera dès le premier jour aux mains ouvrières. C’est encore l’application de la méthode marxiste, mais dans une sorte de cas limite où est réduite à zéro la durée de la période bourgeoise. De ce pouvoir révolutionnaire soudain conquis, Lassalle se proposait, il est vrai, de faire un usage très modéré. Il se serait borné à fonder le suffrage universel, à supprimer les impôts indirects, à affranchir la presse du joug du capital et à subventionner largement sur les ressources de l’État des associations ouvrières de production: pas d’expropriation; pas d’application étendue d’un plan communiste.
 
-Ainsi, depuis cent vingt ans, la méthode de révolution ouvrière dont Babeuf a donné l’application première, dont Marx et Blanqui ont donné la formule, et qui consiste à profiter des révolutions bourgeoises pour y glisser le communisme prolétarien, a été essayée ou proposée bien des fois, et sous bien des formes. Elle a donné certes de grands résultats. C’est par elle qu’en de grandes journées historiques la classe ouvrière a pris conscience de sa force et de son destin. C’est par elle qu’indirectement encore et obliquement, le prolétariat s’est essayé au pouvoir. C’est par elle que la question de la propriété et du communisme a été constamment à l’ordre du jour de l’Europe selon le conseil du *Manifeste*. « Dans tous ces mouvements, la question que les communistes mettront au premier plan, la question pour eux essentielle, est celle de la propriété, *dût même le débat sur cette question n’être pas encore engagé très à fond*. » C’est par cette méthode enfin que le prolétariat a agi, bien avant d’avoir la force décisive. Mais c’était une chimère d’espérer que le communisme prolétarien pourrait être greffé sur la révolution bourgeoise. C’était une chimère de croire que les agitations révolutionnaires de la bourgeoisie donneraient au prolétariat l’occasion d’un coup de force heureux. En fait, cette tactique n’a jamais abouti. Tantôt la bourgeoisie révolutionnaire a sombré, entraînant avec elle le prolétariat. Tantôt la bourgeoisie révolutionnaire victorieuse a eu la force de contenir, de refouler le mouvement prolétarien. Et d’ailleurs, même si par surprise un mouvement prolétarien s’était soudain imposé à des agitations d’un autre ordre et d’une autre origine, à quoi eût-il abouti ? Il se serait rapidement affaibli en un mouvement purement démocratique par une série de compromis. De la Commune victorieuse, c’est tout au plus une république radicale qui serait sortie.
+Ainsi, depuis cent vingt ans, la méthode de révolution ouvrière dont Babeuf a donné l’application première, dont Marx et Blanqui ont donné la formule, et qui consiste à profiter des révolutions bourgeoises pour y glisser le communisme prolétarien, a été essayée ou proposée bien des fois, et sous bien des formes. Elle a donné certes de grands résultats. C’est par elle qu’en de grandes journées historiques la classe ouvrière a pris conscience de sa force et de son destin. C’est par elle qu’indirectement encore et obliquement, le prolétariat s’est essayé au pouvoir. C’est par elle que la question de la propriété et du communisme a été constamment à l’ordre du jour de l’Europe selon le conseil du *Manifeste*. « Dans tous ces mouvements, la question que les communistes mettront au premier plan, la question pour eux essentielle, est celle de la propriété, *dût même le débat sur cette question n’être pas encore engagé très à fond*. » C’est par cette méthode enfin que le prolétariat a agi, bien avant d’avoir la force décisive. Mais c’était une chimère d’espérer que le communisme prolétarien pourrait être greffé sur la révolution bourgeoise. C’était une chimère de croire que les agitations révolutionnaires de la bourgeoisie donneraient au prolétariat l’occasion d’un coup de force heureux. En fait, cette tactique n’a jamais abouti. Tantôt la bourgeoisie révolutionnaire a sombré, entraînant avec elle le prolétariat. Tantôt la bourgeoisie révolutionnaire victorieuse a la force de contenir, de refouler le mouvement prolétarien. Et d’ailleurs, même si par surprise un mouvement prolétarien s’était soudain imposé à des agitations d’un autre ordre et d’une autre origine, à quoi eût-il abouti? Il se serait rapidement affaibli en un mouvement purement démocratique par une série de compromis. De la Commune victorieuse, c’est tout au plus une république radicale qui serait sortie.
 
-Aujourd’hui, le mode déterminé sous lequel Marx, Engels et Blanqui concevaient la Révolution prolétarienne est éliminé par l’histoire. D’abord, le prolétariat plus fort ne compte plus sur la faveur d’une révolution bourgeoise. C’est par sa force propre et au nom de son idée propre qu’il veut agir sur la démocratie. Il ne guette pas une révolution bourgeoise pour jeter la bourgeoisie à bas de sa révolution comme on renverse un cavalier pour s’emparer de sa monture. Il a son organisation à lui, sa puissance à lui. Il a, par les syndicats et les coopératives, une puissance économique grandissante. Il a par le suffrage universel et la démocratie une force légale indéfiniment extensible. Il n’est pas réduit à être le parasite aventureux et violent des révolutions bourgeoises. Il prépare méthodiquement, ou mieux, il commence méthodiquement sa propre Révolution par la conquête graduelle et légale de la puissance de la production et de la puissance de l’État. Aussi bien il attendrait en vain, pour un coup de force et de dictature de classe, l’occasion d’une révolution bourgeoise. La période révolutionnaire de la bourgeoisie est close. Il se peut que pour la sauvegarde de ses intérêts économiques et sous l’action de la classe ouvrière la bourgeoisie d’Italie, d’Allemagne, de Belgique, soit conduite à étendre les droits constitutionnels du peuple, à revendiquer la plénitude du suffrage universel, la vérité du régime parlementaire, la responsabilité des ministres devant le parlement. Il se peut que l’action combinée de la démocratie bourgeoise et du prolétariat fasse reculer partout la prérogative royale ou l’autocratie impériale jusqu’au point où la monarchie n’a plus qu’une existence nominale. Il est certain que la lutte pour l’entière démocratie n’est pas close en Europe : mais, dans cette lutte, la bourgeoisie ne jouera guère qu’un rôle d’appoint, comme il est visible en ce moment en Belgique. Et d’ailleurs, il y a déjà, dans toutes les constitutions de l’Europe centrale et occidentale, assez d’éléments de démocratie pour que le passage à l’entière démocratie s’accomplisse sans crise révolutionnaire. Ainsi le prolétariat ne peut plus, comme l’avaient pensé Marx et Blanqui, abriter sa Révolution derrière les révolutions bourgeoises : il ne peut plus saisir et tourner à son profit les agitations révolutionnaires de la bourgeoisie, qui sont épuisées. Maintenant c’est à découvert, sur le large terrain de la légalité démocratique et du suffrage universel, que le prolétariat socialiste prépare, étend, organise sa Révolution. C’est à cette action révolutionnaire méthodique, directe et légale que Engels, dans la dernière partie de sa vie, conviait le prolétariat européen en des paroles fameuses qui rejetaient, en fait, le *Manifeste communiste* dans le passé. Désormais, l’action révolutionnaire de la bourgeoisie étant close, tout moyen de violence employé par le prolétariat ne ferait que coaliser contre lui toutes les forces non prolétariennes. Et c’est pourquoi j’ai toujours interprété la grève générale non comme un moyen de violence, mais comme un des plus vastes mécanismes de pression légale que, pour des objets définis et grands, pouvait manier le prolétariat éduqué et organisé.
+Aujourd’hui, le mode déterminé sous lequel Marx, Engels et Blanqui concevaient la Révolution prolétarienne est éliminé par l’histoire. D’abord, le prolétariat plus fort ne compte plus sur la faveur d’une révolution bourgeoise. C’est par sa force propre et au nom de son idée propre qu’il veut agir sur la démocratie. Il ne guette pas une révolution bourgeoise pour jeter la bourgeoisie à bas de sa révolution comme on renverse un cavalier pour s’emparer de sa monture. Il a son organisation à lui, sa puissance à lui. Il par les syndicats et les coopératives, une puissance économique grandissante. Il a par le suffrage universel et la démocratie une force légale indéfiniment extensible. Il n’est pas réduit à être le parasite aventureux et violent des révolutions bourgeoises. Il prépare méthodiquement, ou mieux, il commence méthodiquement sa propre Révolution par la conquête graduelle et légale de la puissance de la production et de la puissance de l’État. Aussi bien il attendrait en vain, pour un coup de force et de dictature de classe, l’occasion d’une révolution bourgeoise. La période révolutionnaire de la bourgeoisie est close. Il se peut que pour la sauvegarde de ses intérêts économiques et sous l’action de la classe ouvrière la bourgeoisie d’Italie, d’Allemagne, de Belgique, soit conduite à étendre les droits constitutionnels du peuple, à revendiquer la plénitude du suffrage universel, la vérité du régime parlementaire, la responsabilité des ministres devant le parlement. Il se peut que l’action combinée de la démocratie bourgeoise et du prolétariat fasse reculer partout la prérogative royale ou l’autocratie impériale jusqu’au point où la monarchie n’a plus qu’une existence nominale. Il est certain que la lutte pour l’entière démocratie n’est pas close en Europe: mais, dans cette lutte, la bourgeoisie ne jouera guère qu’un rôle d’appoint, comme il est visible en ce moment en Belgique. Et d’ailleurs, il y a déjà, dans toutes les constitutions de l’Europe centrale et occidentale, assez d’éléments de démocratie pour que le passage à l’entière démocratie s’accomplisse sans crise révolutionnaire. Ainsi le prolétariat ne peut plus, comme l’avaient pensé Marx et Blanqui, abriter sa Révolution derrière les révolutions bourgeoises: il ne peut plus saisir et tourner à son profit les agitations révolutionnaires de la bourgeoisie, qui sont épuisées. Maintenant c’est à découvert, sur le large terrain de la légalité démocratique et du suffrage universel, que le prolétariat socialiste prépare, étend, organise sa Révolution. C’est à cette action révolutionnaire méthodique, directe et légale que Engels, dans la dernière partie de sa vie, conviait le prolétariat européen en des paroles fameuses qui rejetaient, en fait, le *Manifeste communiste* dans le passé. Désormais, l’action révolutionnaire de la bourgeoisie étant close, tout moyen de violence employé par le prolétariat ne ferait que coaliser contre lui toutes les forces non prolétariennes. Et c’est pourquoi j’ai toujours interprété la grève générale non comme un moyen de violence, mais comme un des plus vastes mécanismes de pression légale que, pour des objets définis et grands, pouvait manier le prolétariat éduqué et organisé.
 
-Mais si l’hypothèse historique dont procède la conception révolutionnaire du *Manifeste communiste* est en effet épuisée, si le prolétariat ne peut plus compter sur les mouvements révolutionnaires de la bourgeoisie pour déployer sa propre force de révolution, s’il ne peut plus faire surgir sa dictature de classe d’une période de démocratie chaotique et violente, peut-il du moins attendre son avènement soudain d’un brusque effondrement économique de la bourgeoisie, d’un cataclysme du système capitaliste acculé enfin à l’impossibilité de vivre et déposant son bilan ? C’était encore là une perspective de Révolution prolétarienne ouverte par Marx. Il comptait à la fois, pour susciter la dictature de classe du prolétariat, sur l’avènement politique révolutionnaire de la bourgeoisie et sur sa chute économique. De lui-même, un jour, sous l’action toujours plus intense et plus fréquente des crises déchaînées par lui, et par l’épuisement de misère auquel il aurait réduit les exploités, le capitalisme devait succomber. Il n’est pas possible de contester sérieusement que ce fût là, dans le *Manifeste*, la pensée de Marx et de Engels. « Toutes les sociétés jusqu’à ce jour ont reposé, nous l’avons vu, sur l’antagonisme de classes oppressives et de classes opprimées. Mais pour pouvoir opprimer une classe, au moins faut-il lui assurer des conditions d’existence qui lui permettent de traîner sa vie d’esclavage. Le serf, malgré son servage, s’était élevé au rang de membre de la commune, le petit bourgeois était devenu bourgeois malgré le joug de l’absolutisme féodal. L’ouvrier moderne, au contraire, au lieu de s’élever par le progrès de l’industrie, descend de plus en plus au-dessous de la condition de sa propre classe. Le travailleur devient un pauvre, et le paupérisme grandit encore plus vite que la population et la richesse. Il devient ainsi manifeste que la bourgeoisie est incapable de demeurer désormais la classe dirigeante de la société et d’imposer à la société, comme une loi impérative, les conditions de son existence de classe. Elle est devenue incapable de régner, car elle ne sait plus assurer à ses esclaves la subsistance qui leur permette de supporter l’esclavage. Elle en est réduite à les laisser tomber à une condition où il lui faut les nourrir au lieu d’être nourrie par eux. La société ne peut plus vivre sous le règne de cette bourgeoisie ; c’est-à-dire que l’existence de cette bourgeoisie n’est plus compatible avec la vie sociale. »
+Mais si l’hypothèse historique dont procède la conception révolutionnaire du *Manifeste communiste* est en effet épuisée, si le prolétariat ne peut plus compter sur les mouvements révolutionnaires de la bourgeoisie pour déployer sa propre force de révolution, s’il ne peut plus faire surgir sa dictature de classe d’une période de démocratie chaotique et violente, peut-il du moins attendre son avènement soudain d’un brusque effondrement économique de la bourgeoisie, d’un cataclysme du système capitaliste acculé enfin à l’impossibilité de vivre et déposant son bilan? C’était encore une perspective de Révolution prolétarienne ouverte par Marx. Il comptait à la fois, pour susciter la dictature de classe du prolétariat, sur l’avènement politique révolutionnaire de la bourgeoisie et sur sa chute économique. De lui-même, un jour, sous l’action toujours plus intense et plus fréquente des crises déchaînées par lui, et par l’épuisement de misère auquel il aurait réduit les exploités, le capitalisme devait succomber. Il n’est pas possible de contester sérieusement que ce fût là, dans le *Manifeste*, la pensée de Marx et de Engels. « Toutes les sociétés jusqu’à ce jour ont reposé, nous l’avons vu, sur l’antagonisme de classes oppressives et de classes opprimées. Mais pour pouvoir opprimer une classe, au moins faut-il lui assurer des conditions d’existence qui lui permettent de traîner sa vie d’esclavage. Le serf, malgré son servage, s’était élevé au rang de membre de la commune, le petit bourgeois était devenu bourgeois malgré le joug de l’absolutisme féodal. L’ouvrier moderne, au contraire, au lieu de s’élever par le progrès de l’industrie, descend de plus en plus au-dessous de la condition de sa propre classe. Le travailleur devient un pauvre, et le paupérisme grandit encore plus vite que la population et la richesse. Il devient ainsi manifeste que la bourgeoisie est incapable de demeurer désormais la classe dirigeante de la société et d’imposer à la société, comme une loi impérative, les conditions de son existence de classe. Elle est devenue incapable de régner, car elle ne sait plus assurer à ses esclaves la subsistance qui leur permette de supporter l’esclavage. Elle en est réduite à les laisser tomber à une condition où il lui faut les nourrir au lieu d’être nourrie par eux. La société ne peut plus vivre sous le règne de cette bourgeoisie; c’est-à-dire que l’existence de cette bourgeoisie n’est plus compatible avec la vie sociale. »
 
 Et c’est à ce moment que, l’exploitation bourgeoise et capitaliste ayant atteint pour ainsi dire la limite de tolérance vitale des classes exploitées, il se produit une commotion inévitable, un soulèvement irrésistible, et la guerre civile latente entre les classes se dénoue enfin par « l’effondrement violent de la bourgeoisie ».
 
-Voilà bien la pensée de Marx et de Engels, à cette date. Je sais que l’on cherche maintenant à jeter un voile sur la brutalité de ces textes. Je sais que de subtils interprètes marxistes disent que Marx et Engels n’ont entendu parler que d’une paupérisation « relative ». Ainsi, quand les théologiens veulent mettre d’accord les textes de la Bible avec la réalité scientifiquement constatée, ils disent que dans la genèse, le mot *jour* désigne une période géologique de plusieurs millions d’années. Je n’y contredis point. Ce sont des élégances et des charités d’exégèse qui permettent de passer sans douleur du dogme longtemps professé à la vérité mieux connue. Et puisque des esprits « révolutionnaires » ont besoin de ces ménagements, qui songerait à les contrarier ? Pourtant si Marx n’avait voulu parler que d’une paupérisation relative, comment aurait-il conclu que le capitalisme ferait tomber ses esclaves au-dessous même du minimum vital et les contraindrait ainsi, par une suite de réflexes irrésistibles, à faire s’effondrer violemment la bourgeoisie ?
+Voilà bien la pensée de Marx et de Engels, à cette date. Je sais que l’on cherche maintenant à jeter un voile sur la brutalité de ces textes. Je sais que de subtils interprètes marxistes disent que Marx et Engels n’ont entendu parler que d’une paupérisation « relative ». Ainsi, quand les théologiens veulent mettre d’accord les textes de la Bible avec la réalité scientifiquement constatée, ils disent que dans la genèse, le mot *jour* désigne une période géologique de plusieurs millions d’années. Je n’y contredis point. Ce sont des élégances et des charités d’exégèse qui permettent de passer sans douleur du dogme longtemps professé à la vérité mieux connue. Et puisque des esprits « révolutionnaires » ont besoin de ces ménagements, qui songerait à les contrarier? Pourtant si Marx n’avait voulu parler que d’une paupérisation relative, comment aurait-il conclu que le capitalisme ferait tomber ses esclaves au-dessous même du minimum vital et les contraindrait ainsi, par une suite de réflexes irrésistibles, à faire s’effondrer violemment la bourgeoisie?
 
-On a dit aussi que Marx et Engels avaient voulu seulement définir la tendance abstraite du capitalisme, ce que deviendrait la société bourgeoise par sa propre loi si l’organisation ouvrière ne contrariait point, par un effort inverse, cette tendance d’oppression et de dépression. Et certes comment Marx, qui faisait du prolétariat l’essence même et la forme vivante du socialisme, aurait-il méconnu cette action prolétarienne ? Mais il semble que dans la pensée de Marx, cette action, tout en assurant en effet au prolétariat quelques avantages économiques partiels, se résume surtout à accroître sa conscience de classe, à développer en lui le sentiment de ses maux et celui de sa force. « Mais le développement de l’industrie ne fait pas qu’augmenter en nombre le prolétariat. Il agglomère le prolétariat en masses plus denses, et sa force en est grandie avec le sentiment qu’il en a. Les différences dans les intérêts et dans le genre de vie se nivellent entre les catégories diverses du prolétariat lui-même, à mesure que l’outillage mécanique détruit les différences dans le genre de travail et réduit presque partout le salaire à un niveau d’une égale modicité. Mais ce salaire des ouvriers subit des oscillations de jour en jour plus fréquentes, du fait de la concurrence croissante que les bourgeois se font entre eux, et qui entraîne des crises commerciales. La condition entière de l’ouvrier est de plus en plus mise en question à mesure que s’accélèrent le développement et l’amélioration incessante du machinisme. De plus en plus alors les collisions entre l’ouvrier individuel et le bourgeois individuel prennent le caractère de collisions entre deux classes. Le début, c’est que les ouvriers commencent à former des coalitions contre les bourgeois. L’objet de leur union est la défense de leur salaire. Ils vont jusqu’à fonder des associations durables dans le but d’accumuler des munitions pour des soulèvements éventuels. Par endroits, la lutte éclate en émeutes.
+On a dit aussi que Marx et Engels avaient voulu seulement définir la tendance abstraite du capitalisme, ce que deviendrait la société bourgeoise par sa propre loi si l’organisation ouvrière ne contrariait point, par un effort inverse, cette tendance d’oppression et de dépression. Et certes comment Marx, qui faisait du prolétariat l’essence même et la forme vivante du socialisme, aurait-il méconnu cette action prolétarienne? Mais il semble que dans la pensée de Marx, cette action, tout en assurant en effet au prolétariat quelques avantages économiques partiels, se résume surtout à accroître sa conscience de classe, à développer en lui le sentiment de ses maux et celui de sa force. « Mais le développement de l’industrie ne fait pas qu’augmenter en nombre le prolétariat. Il agglomère le prolétariat en masses plus denses, et sa force en est grandie avec le sentiment qu’il en a. Les différences dans les intérêts et dans le genre de vie se nivellent entre les catégories diverses du prolétariat lui-même, à mesure que l’outillage mécanique détruit les différences dans le genre de travail et réduit presque partout le salaire à un niveau d’une égale modicité. Mais ce salaire des ouvriers subit des oscillations de jour en jour plus fréquentes, du fait de la concurrence croissante que les bourgeois se font entre eux, et qui entraîne des crises commerciales. La condition entière de l’ouvrier est de plus en plus mise en question à mesure que s’accélèrent le développement et l’amélioration incessante du machinisme. De plus en plus alors les collisions entre l’ouvrier individuel et le bourgeois individuel prennent le caractère de collisions entre deux classes. Le début, c’est que les ouvriers commencent à former des coalitions contre les bourgeois. L’objet de leur union est la défense de leur salaire. Ils vont jusqu’à fonder des associations durables dans le but d’accumuler des munitions pour des soulèvements éventuels. Par endroits, la lutte éclate en émeutes.
 
-*Parfois les ouvriers remportent une victoire, mais passagère. Le bénéfice véritable de ces luttes n’est pas celui qui donne le succès immédiat. Il consiste dans l’union qui se propage de plus en plus entre les ouvriers*. Cette union est facilitée par les moyens de communication multipliés que la grande industrie crée et qui permettent aux ouvriers de localités différentes d’entrer en relations mutuelles. Or dès que cette union est faite, la multiplicité des luttes locales du même ordre se transforme en une lutte nationale unique, à direction centralisée, en une lutte de classe. Mais toute lutte de classe est une lutte politique. L’union que les bourgeois du moyen-âge quand ils ne disposaient que de chemins vicinaux, mirent des siècles à réaliser, les prolétaires modernes, grâce aux chemins de fer, la réalisent en peu d’années.
+*Parfois les ouvriers remportent une victoire, mais passagère. Le bénéfice véritable de ces luttes n’est pas celui qui donne le succès immédiat. Il consiste dans l’union qui se propage de plus en plus entre les ouvriers*. Cette union est facilitée par les moyens de communication multipliés que la grande industrie crée et qui permettent aux ouvriers de localités différentes d’entrer en relations mutuelles. dès que cette union est faite, la multiplicité des luttes locales du même ordre se transforme en une lutte nationale unique, à direction centralisée, en une lutte de classe. Mais toute lutte de classe est une lutte politique. L’union que les bourgeois du moyen-âge quand ils ne disposaient que de chemins vicinaux, mirent des siècles à réaliser, les prolétaires modernes, grâce aux chemins de fer, la réalisent en peu d’années.
 
 Cette organisation toutefois, qui crée une classe prolétarienne et, par suite, un parti politique prolétarien, à tout instant se brise à nouveau par la concurrence des ouvriers entre eux. Mais toujours aussi elle se redresse plus forte, plus ferme, plus puissante. En tirant parti des dissentiments internes de la bourgeoisie, elle parvient à faire reconnaître de force, et par la loi, quelques-uns des intérêts des travailleurs. Ainsi pour la loi sur la journée de dix heures en Angleterre. »
 
-Si j’ai reproduit ce génial tableau du mouvement ouvrier moderne, ce n’est pas pour en discuter chaque trait : il y aurait en plusieurs points, et notamment sur le nivellement des salaires, bien des réserves à faire. Mais j’ai voulu que le lecteur pût se poser utilement la question que je me pose ici moi-même : dans quelle mesure Marx a-t-il admis que l’organisation économique et politique des prolétaires faisait échec à la tendance de paupérisation qui est, selon lui, la loi même du capitalisme ? Je crois qu’on peut répondre : dans une mesure très faible. Sans doute, les ouvriers ainsi groupés en classe et en parti remportent, surtout grâce aux divisions de la classe possédante, quelques avantages partiels : mais il semble bien que leur union dans le combat est le seul bénéfice substantiel qu’ils retirent du combat même. Donc la force de cohésion et de protestation des ouvriers s’accroît en vue d’un soulèvement général ; leurs chances s’accroissent de mener à bien le mouvement révolutionnaire et de précipiter l’effondrement de la bourgeoisie. Mais en fait, et dans le fond même de leur vie actuelle, ils subissent, en n’y opposant que de trop faibles contrepoids, la loi de paupérisation prolétarienne. C’est même sans doute cette contradiction entre la paupérisation croissante subie par le prolétariat et la force croissante de revendication et d’action qui s’organise en lui qui apparaît à Marx comme le ressort des grands soulèvements prochains, comme la force immédiate de révolution. Les améliorations concrètes obtenues par l’effort ouvrier ne compensent qu’imparfaitement la dépréciation concrète que subit la vie ouvrière par la loi de la production bourgeoise. Dans le conflit des tendances qui se disputent le prolétariat, la tendance déprimante a la primauté dans le présent ; c’est elle surtout qui agit sur la condition réelle de la classe ouvrière.
+Si j’ai reproduit ce génial tableau du mouvement ouvrier moderne, ce n’est pas pour en discuter chaque trait: il y aurait en plusieurs points, et notamment sur le nivellement des salaires, bien des réserves à faire. Mais j’ai voulu que le lecteur pût se poser utilement la question que je me pose ici moi-même: dans quelle mesure Marx a-t-il admis que l’organisation économique et politique des prolétaires faisait échec à la tendance de paupérisation qui est, selon lui, la loi même du capitalisme? Je crois qu’on peut répondre: dans une mesure très faible. Sans doute, les ouvriers ainsi groupés en classe et en parti remportent, surtout grâce aux divisions de la classe possédante, quelques avantages partiels: mais il semble bien que leur union dans le combat est le seul bénéfice substantiel qu’ils retirent du combat même. Donc la force de cohésion et de protestation des ouvriers s’accroît en vue d’un soulèvement général; leurs chances s’accroissent de mener à bien le mouvement révolutionnaire et de précipiter l’effondrement de la bourgeoisie. Mais en fait, et dans le fond même de leur vie actuelle, ils subissent, en n’y opposant que de trop faibles contrepoids, la loi de paupérisation prolétarienne. C’est même sans doute cette contradiction entre la paupérisation croissante subie par le prolétariat et la force croissante de revendication et d’action qui s’organise en lui qui apparaît à Marx comme le ressort des grands soulèvements prochains, comme la force immédiate de révolution. Les améliorations concrètes obtenues par l’effort ouvrier ne compensent qu’imparfaitement la dépréciation concrète que subit la vie ouvrière par la loi de la production bourgeoise. Dans le conflit des tendances qui se disputent le prolétariat, la tendance déprimante a la primauté dans le présent; c’est elle surtout qui agit sur la condition réelle de la classe ouvrière.
 
-Et puisqu’on parle de tendances, c’est dans ce sens qu’inclinait visiblement toute la pensée de Marx et de Engels. Je dirai presque que Marx avait besoin d’un prolétariat infiniment appauvri et dénué, dans sa conception dialectique de l’histoire moderne. Le prolétariat, pour être dans la dialectique hégélienne de Marx le moment humain, pour être vraiment l’idée même de l’humanité, devait à ce point être dépouillé de tout droit social, que l’humanité seule, infinie en détresse et en droit, subsistât en lui. Et comment pourrait-on se flatter de comprendre Marx sans descendre aux origines dialectiques, aux sources profondes de sa pensée ? Sa *Critique de la philosophie hégélienne du droit*, parue en 1844 dans les *Annales germano-françaises*, est à cet égard un document décisif. « Où est donc, dit-il, la possibilité positive de l’émancipation allemande ? Réponse : dans la formation d’une classe avec des chaînes radicales, d’une classe de la société bourgeoise, qui ne soit pas une classe de la société bourgeoise, d’un état, qui soit la dissolution de tout état, d’une sphère qui ait un caractère universel par la souffrance universelle et qui ne revendique aucun droit particulier, parce que ce n’est point une injustice particulière, mais l’injustice totale qui est accomplie sur lui, qui ne puisse faire appel à aucun titre historique, mais seulement au titre d’humanité, qui soit non pas en opposition particulière avec telle ou telle conséquence, mais en opposition générale avec tous les principes de l’État allemand, d’une sphère enfin qui ne puisse s’émanciper elle-même, sans s’émanciper de toutes les autres sphères de la société, et sans émanciper par là toutes les autres sphères de la société, qui, en un mot, soit la perte totale de l’homme, et qui ne puisse par conséquent se retrouver elle-même que par l’entière restitution de l’homme. »
+Et puisqu’on parle de tendances, c’est dans ce sens qu’inclinait visiblement toute la pensée de Marx et de Engels. Je dirai presque que Marx avait besoin d’un prolétariat infiniment appauvri et dénué, dans sa conception dialectique de l’histoire moderne. Le prolétariat, pour être dans la dialectique hégélienne de Marx le moment humain, pour être vraiment l’idée même de l’humanité, devait à ce point être dépouillé de tout droit social, que l’humanité seule, infinie en détresse et en droit, subsistât en lui. Et comment pourrait-on se flatter de comprendre Marx sans descendre aux origines dialectiques, aux sources profondes de sa pensée? Sa *Critique de la philosophie hégélienne du droit*, parue en 1844 dans les *Annales germano-françaises*, est à cet égard un document décisif. « Où est donc, dit-il, la possibilité positive de l’émancipation allemande? Réponse: dans la formation d’une classe avec des chaînes radicales, d’une classe de la société bourgeoise, qui ne soit pas une classe de la société bourgeoise, d’un état, qui soit la dissolution de tout état, d’une sphère qui ait un caractère universel par la souffrance universelle et qui ne revendique aucun droit particulier, parce que ce n’est point une injustice particulière, mais l’injustice totale qui est accomplie sur lui, qui ne puisse faire appel à aucun titre historique, mais seulement au titre d’humanité, qui soit non pas en opposition particulière avec telle ou telle conséquence, mais en opposition générale avec tous les principes de l’État allemand, d’une sphère enfin qui ne puisse s’émanciper elle-même, sans s’émanciper de toutes les autres sphères de la société, et sans émanciper par toutes les autres sphères de la société, qui, en un mot, soit la perte totale de l’homme, et qui ne puisse par conséquent se retrouver elle-même que par l’entière restitution de l’homme. »
 
 J’entends bien que c’est de l’Allemagne que parle ici Marx, et des conditions particulières de son affranchissement. Je sais qu’il reconnaît aux classes sociales de la France un plus haut idéalisme historique, qu’elles ont, selon lui, l’habitude de se considérer comme les gardiennes de l’intérêt universel et qu’il suffira en France, pour que s’accomplisse l’entière émancipation, que cette action idéaliste passe de la bourgeoisie, en qui la mission humaine est limitée et contrariée par des soucis de propriété, au prolétariat français, en qui la mission humaine peut développer sans obstacle son universalité.
 
-Oui, c’est de l’Allemagne et du prolétariat allemand qu’il s’agit. Mais qui ne voit que, malgré les différences ethniques et historiques, il est pour Marx une figure du prolétariat et même, par son absolu dénuement, la figure suprême ? C’est donc sous une transposition hégélienne du christianisme que Marx se représente le mouvement moderne d’émancipation. De même que le Dieu chrétien s’est abaissé au plus bas de l’humanité souffrante pour relever l’humanité toute entière, de même que le sauveur, pour sauver en effet tous les hommes, a dû se réduire à ce degré de dénuement tout voisin de l’animalité, au-dessous duquel ne se pouvait rencontrer aucun homme, de même que cet abaissement infini de Dieu était la condition du relèvement infini de l’homme, de même dans la dialectique de Marx, le prolétariat, le Sauveur moderne, a dû être dépouillé de toute garantie, dévêtu de tout droit, abaissé au plus profond du néant historique et social, pour relever en se relevant toute l’humanité. Et comme le dieu-homme, pour rester dans sa mission, a dû rester pauvre, souffrant et humilié jusqu’au jour triomphal de la résurrection, jusqu’à cette victoire particulière sur la mort qui a affranchi de la mort toute l’humanité, ainsi le prolétariat reste d’autant mieux dans sa mission dialectique, que, jusqu’au soulèvement final, jusqu’à la résurrection révolutionnaire de l’humanité, il porte, comme une croix toujours plus pesante, la loi essentielle d’oppression et de dépression du capitalisme. De là évidemment, chez Marx, une tendance originelle à accueillir difficilement l’idée d’un relèvement partiel du prolétariat. De là une sorte de joie, où il entre quelque mysticité dialectique, à constater les forces d’écrasement qui pèsent sur les prolétaires.
+Oui, c’est de l’Allemagne et du prolétariat allemand qu’il s’agit. Mais qui ne voit que, malgré les différences ethniques et historiques, il est pour Marx une figure du prolétariat et même, par son absolu dénuement, la figure suprême? C’est donc sous une transposition hégélienne du christianisme que Marx se représente le mouvement moderne d’émancipation. De même que le Dieu chrétien s’est abaissé au plus bas de l’humanité souffrante pour relever l’humanité toute entière, de même que le sauveur, pour sauver en effet tous les hommes, a se réduire à ce degré de dénuement tout voisin de l’animalité, au-dessous duquel ne se pouvait rencontrer aucun homme, de même que cet abaissement infini de Dieu était la condition du relèvement infini de l’homme, de même dans la dialectique de Marx, le prolétariat, le Sauveur moderne, a être dépouillé de toute garantie, dévêtu de tout droit, abaissé au plus profond du néant historique et social, pour relever en se relevant toute l’humanité. Et comme le dieu-homme, pour rester dans sa mission, a rester pauvre, souffrant et humilié jusqu’au jour triomphal de la résurrection, jusqu’à cette victoire particulière sur la mort qui a affranchi de la mort toute l’humanité, ainsi le prolétariat reste d’autant mieux dans sa mission dialectique, que, jusqu’au soulèvement final, jusqu’à la résurrection révolutionnaire de l’humanité, il porte, comme une croix toujours plus pesante, la loi essentielle d’oppression et de dépression du capitalisme. De évidemment, chez Marx, une tendance originelle à accueillir difficilement l’idée d’un relèvement partiel du prolétariat. De une sorte de joie, où il entre quelque mysticité dialectique, à constater les forces d’écrasement qui pèsent sur les prolétaires.
 
-Marx se trompait. Ce n’est pas du dénuement absolu que pouvait venir la libération absolue. Quelque pauvre que fût le prolétaire allemand, il n’était pas la pauvreté suprême. D’abord dans l’ouvrier moderne il y a d’emblée toute la part d’humanité conquise par l’abolition des sauvageries et des barbaries premières, par l’abolition de l’esclavage et du servage. Puis, quelque médiocres que fussent en effet à ce moment les titres historiques propres des prolétaires allemands, ils n’en étaient point tout à fait démunis. Leur histoire, depuis la Révolution française, n’était pas tout à fait vide. Et surtout, par leur sympathie pour l’action émancipatrice des prolétaires français, des ouvriers du 14 juillet, des 5 et 6 octobre, du 10 août, des sections parisiennes, ils avaient une part dans les titres historiques du prolétariat français, devenus des titres universels, comme la Déclaration des Droits de l’homme avait été un symbole universel, comme la chute de la Bastille avait été une délivrance universelle. Au moment même où Marx écrivait pour le prolétariat allemand ces paroles de mystique abaissement et de mystique résurrection, les prolétaires allemands, comme d’ailleurs Marx lui-même, tournaient leur cœur et leurs yeux vers la France, vers la grande patrie des titres historiques du prolétariat. Mais quoi d’étrange que Marx, avec cette conception dialectique première, ait accordé la primauté, dans l’évolution capitaliste, à la tendance de dépression ? Quoi d’étonnant que dans le *Capital* encore il ait écrit que « l’oppression, l’esclavage, l’exploitation, la misère, s’accroissaient », mais aussi « la résistance de la classe ouvrière, sans cesse grossissante et de plus en plus disciplinée, unie et organisée par le mécanisme même de la production capitaliste », mettant encore ici en balance une force de dépression qui agit immédiatement et une force de résistance et d’organisation qui semble surtout préparer l’avenir ?
+Marx se trompait. Ce n’est pas du dénuement absolu que pouvait venir la libération absolue. Quelque pauvre que fût le prolétaire allemand, il n’était pas la pauvreté suprême. D’abord dans l’ouvrier moderne il y a d’emblée toute la part d’humanité conquise par l’abolition des sauvageries et des barbaries premières, par l’abolition de l’esclavage et du servage. Puis, quelque médiocres que fussent en effet à ce moment les titres historiques propres des prolétaires allemands, ils n’en étaient point tout à fait démunis. Leur histoire, depuis la Révolution française, n’était pas tout à fait vide. Et surtout, par leur sympathie pour l’action émancipatrice des prolétaires français, des ouvriers du 14 juillet, des 5 et 6 octobre, du 10 août, des sections parisiennes, ils avaient une part dans les titres historiques du prolétariat français, devenus des titres universels, comme la Déclaration des Droits de l’homme avait été un symbole universel, comme la chute de la Bastille avait été une délivrance universelle. Au moment même où Marx écrivait pour le prolétariat allemand ces paroles de mystique abaissement et de mystique résurrection, les prolétaires allemands, comme d’ailleurs Marx lui-même, tournaient leur cœur et leurs yeux vers la France, vers la grande patrie des titres historiques du prolétariat. Mais quoi d’étrange que Marx, avec cette conception dialectique première, ait accordé la primauté, dans l’évolution capitaliste, à la tendance de dépression? Quoi d’étonnant que dans le *Capital* encore il ait écrit que « l’oppression, l’esclavage, l’exploitation, la misère, s’accroissaient  mais aussi « la résistance de la classe ouvrière, sans cesse grossissante et de plus en plus disciplinée, unie et organisée par le mécanisme même de la production capitaliste  mettant encore ici en balance une force de dépression qui agit immédiatement et une force de résistance et d’organisation qui semble surtout préparer l’avenir?
 
-Engels, lui, s’est fait de l’inflexibilité du système capitaliste, de son impuissance à s’adapter à la moindre réforme, une idée si rigide et si stricte qu’il commet dans l’interprétation des mouvements sociaux les plus graves et les plus décisives erreurs. Il est difficile d’imaginer des méprises plus lourdes que celles qu’il commet à chaque pas dans son livre célèbre sur *la situation des classes laborieuses en Angleterre*. Il a vu partout des incompatibilités, des impossibilités, des contradictions insolubles et qui ne pouvaient se résoudre que par la Révolution. Il annonce en 1845, comme imminente et absolument inévitable en Angleterre, une Révolution ouvrière et communiste, qui sera la plus sanglante qu’ait vue l’histoire. Les pauvres égorgeront les riches et brûleront les châteaux. Il n’y a pas de doute possible à cet égard. « Nulle part il n’est aussi facile de prophétiser qu’en Angleterre, parce qu’ici tous les développements sociaux sont d’une netteté et d’une acuité extrêmes. La révolution *doit* venir, et il est déjà trop tard pour introduire une solution pacifique. » Étrange vue sur ce pays d’Angleterre, si habile toujours aux évolutions et aux compromis ! Il pousse si loin son intransigeance sociale qu’il en arrive à tenir sur les grandes questions précises qui sont posées à ce moment le langage des conservateurs les plus têtus. Comme à eux, tout progrès politique et social lui paraît impossible dans le système présent. Les chartistes acculent l’Angleterre ou à l’abîme ou à l’entière révolution communiste. Ils demandent le suffrage universel : mais il est inconciliable avec la monarchie ; ils demandent la journée de dix heures : mais elle est inconciliable dans le système capitaliste avec les exigences de la production ; et son effet, vraiment excellent, sera d’obliger l’Angleterre à entrer sous peine de ruine dans des voies toutes nouvelles. « Les arguments d’économie nationale des fabricants, écrit Engels, que le bill des dix heures accroîtra les frais de production, que par là l’industrie anglaise sera rendue incapable de lutter contre la concurrence étrangère, que le salaire du travail tombera nécessairement, sont à moitié vrais : mais ils ne prouvent qu’une chose, c’est que la grandeur industrielle de l’Angleterre ne peut être maintenue que par le traitement barbare infligé aux ouvriers, par la destruction de la santé, par la décadence sociale, physique et intellectuelle de générations entières. Naturellement si la journée de dix heures devenait une mesure légale définitive, l’Angleterre serait ruinée par là ; mais parce que cette loi entraînerait nécessairement après elle d’autres mesures, qui obligeraient l’Angleterre à entrer dans une voie tout autre que celle qui a été suivie jusqu’ici, cette loi sera un progrès. »
+Engels, lui, s’est fait de l’inflexibilité du système capitaliste, de son impuissance à s’adapter à la moindre réforme, une idée si rigide et si stricte qu’il commet dans l’interprétation des mouvements sociaux les plus graves et les plus décisives erreurs. Il est difficile d’imaginer des méprises plus lourdes que celles qu’il commet à chaque pas dans son livre célèbre sur *la situation des classes laborieuses en Angleterre*. Il a partout des incompatibilités, des impossibilités, des contradictions insolubles et qui ne pouvaient se résoudre que par la Révolution. Il annonce en 1845, comme imminente et absolument inévitable en Angleterre, une Révolution ouvrière et communiste, qui sera la plus sanglante qu’ait vue l’histoire. Les pauvres égorgeront les riches et brûleront les châteaux. Il n’y a pas de doute possible à cet égard. « Nulle part il n’est aussi facile de prophétiser qu’en Angleterre, parce qu’ici tous les développements sociaux sont d’une netteté et d’une acuité extrêmes. La révolution *doit* venir, et il est déjà trop tard pour introduire une solution pacifique. » Étrange vue sur ce pays d’Angleterre, si habile toujours aux évolutions et aux compromis! Il pousse si loin son intransigeance sociale qu’il en arrive à tenir sur les grandes questions précises qui sont posées à ce moment le langage des conservateurs les plus têtus. Comme à eux, tout progrès politique et social lui paraît impossible dans le système présent. Les chartistes acculent l’Angleterre ou à l’abîme ou à l’entière révolution communiste. Ils demandent le suffrage universel: mais il est inconciliable avec la monarchie; ils demandent la journée de dix heures: mais elle est inconciliable dans le système capitaliste avec les exigences de la production; et son effet, vraiment excellent, sera d’obliger l’Angleterre à entrer sous peine de ruine dans des voies toutes nouvelles. « Les arguments d’économie nationale des fabricants, écrit Engels, que le bill des dix heures accroîtra les frais de production, que par l’industrie anglaise sera rendue incapable de lutter contre la concurrence étrangère, que le salaire du travail tombera nécessairement, sont à moitié vrais: mais ils ne prouvent qu’une chose, c’est que la grandeur industrielle de l’Angleterre ne peut être maintenue que par le traitement barbare infligé aux ouvriers, par la destruction de la santé, par la décadence sociale, physique et intellectuelle de générations entières. Naturellement si la journée de dix heures devenait une mesure légale définitive, l’Angleterre serait ruinée par; mais parce que cette loi entraînerait nécessairement après elle d’autres mesures, qui obligeraient l’Angleterre à entrer dans une voie tout autre que celle qui a été suivie jusqu’ici, cette loi sera un progrès. »
 
-Quel esprit de défiance à l’égard des réformes partielles ! Quelles limites étroites assignées aux facultés de transformation du régime industriel ! Et quand en 1892, cinquante ans après, Engels réédite ce livre, il ne songe pas un moment à se demander par quel vice de pensée, par quelle erreur systématique il a été induit à des idées aussi fausses sur le mouvement politique et social de l’Angleterre. Il aime mieux se complaire dans une œuvre que l’histoire a presque toute démentie. Il est donc tout naturel de supposer que Engels, avec cette façon première de comprendre les choses, a incliné toujours, comme Marx, à donner aux forces de dépression qui abaissent en régime capitaliste la classe ouvrière, la primauté sur les forces de relèvement.
+Quel esprit de défiance à l’égard des réformes partielles! Quelles limites étroites assignées aux facultés de transformation du régime industriel! Et quand en 1892, cinquante ans après, Engels réédite ce livre, il ne songe pas un moment à se demander par quel vice de pensée, par quelle erreur systématique il a été induit à des idées aussi fausses sur le mouvement politique et social de l’Angleterre. Il aime mieux se complaire dans une œuvre que l’histoire a presque toute démentie. Il est donc tout naturel de supposer que Engels, avec cette façon première de comprendre les choses, a incliné toujours, comme Marx, à donner aux forces de dépression qui abaissent en régime capitaliste la classe ouvrière, la primauté sur les forces de relèvement.
 
 Mais, quelle que soit l’interprétation donnée sur ce point à la pensée incertaine et obscure de Marx et de Engels, il importe peu. L’essentiel, c’est que nul des socialistes, aujourd’hui, n’accepte la théorie de la paupérisation absolue du prolétariat. Les uns ouvertement, les autres avec des précautions infinies, quelques-uns avec une malicieuse bonhomie viennoise, tous déclarent qu’il est faux que dans l’ensemble la condition économique matérielle des prolétaires aille en empirant. Des tendances de dépression et des tendances de relèvement, ce ne sont pas au total, et dans la réalité immédiate de la vie, les tendances dépressives qui l’emportent. Dès lors il n’est plus permis de répéter après Marx et Engels que le système capitaliste périra parce qu’il n’assure même pas à ceux qu’il exploite le minimum nécessaire à la vie. Dès lors encore, il devient puéril d’attendre qu’un cataclysme économique menaçant le prolétariat dans sa vie même provoque, sous la révolte de l’instinct vital, « l’effondrement violent de la bourgeoisie ». Ainsi, les deux hypothèses, l’une historique, l’autre économique, d’où devait sortir, dans la pensée du *Manifeste communiste*, la soudaine Révolution prolétarienne, la Révolution de dictature ouvrière, sont également ruinées.
 
-Ni il n’y aura dans l’ordre politique une révolution bourgeoise que le prolétariat révolutionnaire puisse soudain chevaucher ; ni il n’y aura dans l’ordre économique un cataclysme, une catastrophe qui, sur les ruines du capitalisme effondré, suscite en un jour la domination de classe du prolétariat communiste et un système nouveau de production. Ces hypothèses n’ont pas été vaines. Si le prolétariat n’a pu se saisir d’aucune des révolutions bourgeoises, il s’est poussé cependant depuis cent vingt années à travers les agitations de la bourgeoisie révolutionnaire, et il continuera encore, sous les formes nouvelles que développe la démocratie, à tirer parti des inévitables conflits intérieurs de la bourgeoisie. S’il n’y a pas eu réaction totale et révolutionnaire de l’instinct vital du prolétariat sous un cataclysme total du capitalisme, il y a eu d’innombrables crises qui, en attestant le désordre intime de la production capitaliste, ont naturellement excité les prolétaires à préparer un ordre nouveau. Mais où l’erreur commence, c’est lorsqu’on attend en effet la chute soudaine du capitalisme et l’avènement soudain du prolétariat ou d’un grand ébranlement politique de la société bourgeoise, ou d’un grand ébranlement économique de la production bourgeoise.
+Ni il n’y aura dans l’ordre politique une révolution bourgeoise que le prolétariat révolutionnaire puisse soudain chevaucher; ni il n’y aura dans l’ordre économique un cataclysme, une catastrophe qui, sur les ruines du capitalisme effondré, suscite en un jour la domination de classe du prolétariat communiste et un système nouveau de production. Ces hypothèses n’ont pas été vaines. Si le prolétariat n’a se saisir d’aucune des révolutions bourgeoises, il s’est poussé cependant depuis cent vingt années à travers les agitations de la bourgeoisie révolutionnaire, et il continuera encore, sous les formes nouvelles que développe la démocratie, à tirer parti des inévitables conflits intérieurs de la bourgeoisie. S’il n’y a pas réaction totale et révolutionnaire de l’instinct vital du prolétariat sous un cataclysme total du capitalisme, il y a d’innombrables crises qui, en attestant le désordre intime de la production capitaliste, ont naturellement excité les prolétaires à préparer un ordre nouveau. Mais où l’erreur commence, c’est lorsqu’on attend en effet la chute soudaine du capitalisme et l’avènement soudain du prolétariat ou d’un grand ébranlement politique de la société bourgeoise, ou d’un grand ébranlement économique de la production bourgeoise.
 
 Ce n’est pas par le contre-coup imprévu des agitations politiques que le prolétariat arrivera au pouvoir, mais par l’organisation méthodique et légale de ses propres forces sous la loi de la démocratie et du suffrage universel. Ce n’est pas par l’effondrement de la bourgeoisie capitaliste, c’est par la croissance du prolétariat que l’ordre communiste s’installera graduellement dans notre société. À quiconque accepte ces vérités désormais nécessaires, des méthodes précises et sûres de transformation sociale et de progressive organisation ne tardent pas à apparaître. Ceux qui ne les acceptent pas nettement, ceux qui ne prennent pas vraiment au sérieux les résultats décisifs du mouvement prolétarien depuis un siècle, ceux qui rétrogradent jusqu’au *Manifeste communiste* si visiblement dépassé par les événements, ou qui mêlent aux pensées directes et vraies que la réalité présente leur suggère des restes de pensées anciennes d’où la vérité a fui, ceux-là se condamnent eux-mêmes à vivre dans le chaos.
 
 Mais je ne pourrais justifier dans le détail cette affirmation générale que par l’analyse minutieuse de toutes les tendances présentes du socialisme français et du socialisme international. Je ne pourrais aussi légitimer pleinement la méthode que j’ai indiquée que par des applications précises et par l’exposé d’un programme « d’évolution révolutionnaire » Ce sera l’objet d’une œuvre plus systématique et plus liée que les études fragmentaires qu’à votre demande, mon cher Péguy, je soumets dès maintenant aux lecteurs de bonne foi, curieux, en ces questions difficiles, même d’un modeste commencement de clarté.
 
-Je ne veux, dans cette introduction, ajouter qu’un mot, qui a un rapport direct à l’objet du volume. Quelques-uns de nos contradicteurs disent volontiers que cette méthode d’évolution soumise à la loi de la démocratie risque d’affaiblir et d’obscurcir l’idéal socialiste. C’est exactement le contraire. Ce sont les appels déclamatoires à la violence, c’est l’attente quasi-mystique d’une catastrophe libératrice qui dispensent les hommes de préciser leur pensée, de déterminer leur idéal. Mais ceux qui se proposent de conduire la démocratie, par de larges et sûres voies, vers l’entier communisme, ceux qui ne peuvent compter sur l’enthousiasme d’une heure et sur les illusions d’un peuple excité, ceux-là sont obligés de dire avec la plus décisive netteté vers quelle forme de société ils veulent acheminer les hommes et les choses, et par quelle suite d’institutions et de lois ils espèrent aboutir à l’ordre communiste. Plus le parti socialiste se confondra dans la nation par l’acceptation définitive de la démocratie et de la légalité, plus il sera tenu de marquer sa conception propre : et à travers l’atmosphère moins agitée le but final se dessinera mieux. Sous peine de se perdre dans le plus vulgaire empirisme et de se dissoudre dans un opportunisme sans règle et sans objet, il devra ordonner toutes ses pensées, toute son action en vue de l’idéal communiste. Ou plutôt cet idéal devra être toujours présent et toujours discernable en chacun de ses actes, en chacune de ses paroles. Je ne sais si Bernstein n’a pas été conduit, par la nécessité de la polémique, à éclairer surtout le côté critique de son œuvre. Ce serait en tout cas une grande erreur et une grande faute de paraître dissoudre dans les brumes de l’avenir le but final du socialisme. Le communisme doit être l’idée directrice et visible de tout le mouvement. Le socialisme « critique » doit être, plus que tout autre, agissant et constructif. Et une des formes premières de l’action c’est de dissiper les équivoques dont les partis extrêmes de la démocratie bourgeoise leurrent encore les esprits… Démêler les sophismes et dénoncer les contradictions du radicalisme bourgeois est peut-être le premier devoir de ceux qui veulent conquérir légalement, à toute l’idée socialiste et communiste, la démocratie. C’est tout naturellement que j’ai été conduit, après avoir esquissé à grands traits la méthode d’évolution révolutionnaire, à demander au parti radical ce qu’il entend par sa fameuse formule de la « propriété individuelle ». Ce n’est là, bien entendu, qu’une très faible partie de l’examen critique auquel les équivoques et les contradictions radicales devront être soumises par notre parti.
+Je ne veux, dans cette introduction, ajouter qu’un mot, qui a un rapport direct à l’objet du volume. Quelques-uns de nos contradicteurs disent volontiers que cette méthode d’évolution soumise à la loi de la démocratie risque d’affaiblir et d’obscurcir l’idéal socialiste. C’est exactement le contraire. Ce sont les appels déclamatoires à la violence, c’est l’attente quasi-mystique d’une catastrophe libératrice qui dispensent les hommes de préciser leur pensée, de déterminer leur idéal. Mais ceux qui se proposent de conduire la démocratie, par de larges et sûres voies, vers l’entier communisme, ceux qui ne peuvent compter sur l’enthousiasme d’une heure et sur les illusions d’un peuple excité, ceux-là sont obligés de dire avec la plus décisive netteté vers quelle forme de société ils veulent acheminer les hommes et les choses, et par quelle suite d’institutions et de lois ils espèrent aboutir à l’ordre communiste. Plus le parti socialiste se confondra dans la nation par l’acceptation définitive de la démocratie et de la légalité, plus il sera tenu de marquer sa conception propre: et à travers l’atmosphère moins agitée le but final se dessinera mieux. Sous peine de se perdre dans le plus vulgaire empirisme et de se dissoudre dans un opportunisme sans règle et sans objet, il devra ordonner toutes ses pensées, toute son action en vue de l’idéal communiste. Ou plutôt cet idéal devra être toujours présent et toujours discernable en chacun de ses actes, en chacune de ses paroles. Je ne sais si Bernstein n’a pas été conduit, par la nécessité de la polémique, à éclairer surtout le côté critique de son œuvre. Ce serait en tout cas une grande erreur et une grande faute de paraître dissoudre dans les brumes de l’avenir le but final du socialisme. Le communisme doit être l’idée directrice et visible de tout le mouvement. Le socialisme « critique » doit être, plus que tout autre, agissant et constructif. Et une des formes premières de l’action c’est de dissiper les équivoques dont les partis extrêmes de la démocratie bourgeoise leurrent encore les esprits… Démêler les sophismes et dénoncer les contradictions du radicalisme bourgeois est peut-être le premier devoir de ceux qui veulent conquérir légalement, à toute l’idée socialiste et communiste, la démocratie. C’est tout naturellement que j’ai été conduit, après avoir esquissé à grands traits la méthode d’évolution révolutionnaire, à demander au parti radical ce qu’il entend par sa fameuse formule de la « propriété individuelle ». Ce n’est là, bien entendu, qu’une très faible partie de l’examen critique auquel les équivoques et les contradictions radicales devront être soumises par notre parti.
 
-M Maxime Leroy, dans *La revue blanche*, m’a fait quelques objections : il me dit que l’usufruit, l’usage, l’habitation, l’hypothèque, la copropriété des gros murs et escaliers, etc., sont des droits anciens qui n’impliquent en aucune manière un droit social nouveau.
+Maxime Leroy, dans *La revue blanche*, m’a fait quelques objections: il me dit que l’usufruit, l’usage, l’habitation, l’hypothèque, la copropriété des gros murs et escaliers, etc., sont des droits anciens qui n’impliquent en aucune manière un droit social nouveau.
 
-Mais il y a un malentendu. Je n’ai jamais dit que ce fussent là des formes nouvelles, encore moins des ébauches de copropriété sociale. J’ai au contraire toujours rappelé que c’était au profit d’autres individus qu’était limité le droit de l’individu. Mais il reste vrai que la propriété, même individuelle, est extrêmement complexe, qu’elle est formée de droits très divers, tantôt réunis dans la main d’un seul individu, tantôt dispersés dans les mains de plusieurs ; qu’elle est bien loin d’être un bloc indécomposable et une quantité simple, qu’il y a dès lors quelque enfantillage à se donner, *in abstracto*, comme le défenseur de la propriété individuelle, et qu’on est mal fondé en outre à nous reprocher l’extrême complication du concept de la propriété communiste, qui enveloppera le droit de la nation, le droit des groupes intermédiaires et le droit des individus. C’est là, en ce point, tout ce que j’ai voulu démontrer.
+Mais il y a un malentendu. Je n’ai jamais dit que ce fussent des formes nouvelles, encore moins des ébauches de copropriété sociale. J’ai au contraire toujours rappelé que c’était au profit d’autres individus qu’était limité le droit de l’individu. Mais il reste vrai que la propriété, même individuelle, est extrêmement complexe, qu’elle est formée de droits très divers, tantôt réunis dans la main d’un seul individu, tantôt dispersés dans les mains de plusieurs; qu’elle est bien loin d’être un bloc indécomposable et une quantité simple, qu’il y a dès lors quelque enfantillage à se donner, *in abstracto*, comme le défenseur de la propriété individuelle, et qu’on est mal fondé en outre à nous reprocher l’extrême complication du concept de la propriété communiste, qui enveloppera le droit de la nation, le droit des groupes intermédiaires et le droit des individus. C’est là, en ce point, tout ce que j’ai voulu démontrer.
 
-M Leroy dit : « Ce qu’il faut constater, c’est que toutes les législations ont apporté des restrictions au droit de propriété individuelle comme à tous les droits individuels… L’individualisme juridique absolu ne peut être qu’une entité métaphysique. »
+Leroy dit: « Ce qu’il faut constater, c’est que toutes les législations ont apporté des restrictions au droit de propriété individuelle comme à tous les droits individuels… L’individualisme juridique absolu ne peut être qu’une entité métaphysique. »
 
-Sans doute : mais ce que je note, c’est d’abord que la Révolution française elle-même, malgré sa préoccupation individualiste, a porté à la propriété individuelle, dans l’ordre de l’héritage, une atteinte sans précédent. M Leroy me dit que « le principe de l’égalité des partages était un principe coutumier déjà appliqué en Germanie et dans la Grèce d’avant Solon ». Il y aurait sans doute beaucoup à dire sur cet objet : mais quelle distance entre ces coutumes anciennes et la législation vigoureuse de la Convention ! Et surtout, comment M Leroy n’a-t-il pas vu que ce qui fait l’intérêt de la législation révolutionnaire c’est son apparente antinomie ? C’est au nom du droit des individus et pour le sauvegarder, que la révolution est obligée de constituer un domaine familial commun et intangible. L’individualisme concret se traduit ici par un communisme familial : de même, lorsque la société aura souci de *tous les individus*, lorsqu’elle verra et protégera en eux contre toutes les usurpations, non pas les héritiers désignés de tel ou tel patrimoine familial, mais les héritiers du patrimoine humain, c’est le communisme social qui sera la forme suprême et la suprême garantie de ce haut individualisme universel. Que ce soit la logique individualiste qui ait abouti au collectivisme familial, voilà qui est nouveau dans le monde et je m’étonne que M Leroy me rappelle aux forêts de la Germanie.
+Sans doute: mais ce que je note, c’est d’abord que la Révolution française elle-même, malgré sa préoccupation individualiste, a porté à la propriété individuelle, dans l’ordre de l’héritage, une atteinte sans précédent. Leroy me dit que « le principe de l’égalité des partages était un principe coutumier déjà appliqué en Germanie et dans la Grèce d’avant Solon ». Il y aurait sans doute beaucoup à dire sur cet objet: mais quelle distance entre ces coutumes anciennes et la législation vigoureuse de la Convention! Et surtout, comment Leroy n’a-t-il pas que ce qui fait l’intérêt de la législation révolutionnaire c’est son apparente antinomie? C’est au nom du droit des individus et pour le sauvegarder, que la révolution est obligée de constituer un domaine familial commun et intangible. L’individualisme concret se traduit ici par un communisme familial: de même, lorsque la société aura souci de *tous les individus*, lorsqu’elle verra et protégera en eux contre toutes les usurpations, non pas les héritiers désignés de tel ou tel patrimoine familial, mais les héritiers du patrimoine humain, c’est le communisme social qui sera la forme suprême et la suprême garantie de ce haut individualisme universel. Que ce soit la logique individualiste qui ait abouti au collectivisme familial, voilà qui est nouveau dans le monde et je m’étonne que Leroy me rappelle aux forêts de la Germanie.
 
-En second lieu, ce que j’ai noté c’est que dans cette société individualiste la propriété individuelle subit un refoulement incessant et une incessante dénaturation. M Leroy en convient pour toute une catégorie de lois : « Aussi, dit-il, c’est moins dans le Code civil de 1804, qui n’est que le proche passé remanié, qu’il faut chercher le droit nouveau, que dans les lois sociales postérieures qui, ainsi que le remarque M Jaurès, constituent, elles, de véritables dépossessions dans un sens collectiviste : droit de grève, inspection du travail, etc. » Cela est très important et suffirait à montrer la frivolité et l’inconsistance doctrinale des radicaux, qui se proclament contre nous les sauveurs de la propriété individuelle et qui ne paraissent pas se douter que les lois sociales auxquelles ils consentent sous l’action de la classe ouvrière en sont une perpétuelle restriction. Mais s’il serait puéril de chercher dans le Code Napoléon les traits du droit nouveau, il y a intérêt à montrer que, même dans le Code civil, même en dehors de la législation sociale que la classe ouvrière a peu à peu imposée, la propriété individuelle a des facultés presque illimitées de décomposition, qu’elle se prête à toutes sortes de démembrements et que les rapports mêmes des propriétés individuelles se marquent par de réciproques expropriations partielles.
+En second lieu, ce que j’ai noté c’est que dans cette société individualiste la propriété individuelle subit un refoulement incessant et une incessante dénaturation. Leroy en convient pour toute une catégorie de lois: « Aussi, dit-il, c’est moins dans le Code civil de 1804, qui n’est que le proche passé remanié, qu’il faut chercher le droit nouveau, que dans les lois sociales postérieures qui, ainsi que le remarque Jaurès, constituent, elles, de véritables dépossessions dans un sens collectiviste: droit de grève, inspection du travail, etc. » Cela est très important et suffirait à montrer la frivolité et l’inconsistance doctrinale des radicaux, qui se proclament contre nous les sauveurs de la propriété individuelle et qui ne paraissent pas se douter que les lois sociales auxquelles ils consentent sous l’action de la classe ouvrière en sont une perpétuelle restriction. Mais s’il serait puéril de chercher dans le Code Napoléon les traits du droit nouveau, il y a intérêt à montrer que, même dans le Code civil, même en dehors de la législation sociale que la classe ouvrière a peu à peu imposée, la propriété individuelle a des facultés presque illimitées de décomposition, qu’elle se prête à toutes sortes de démembrements et que les rapports mêmes des propriétés individuelles se marquent par de réciproques expropriations partielles.
 
-Aussi bien M. Leroy fait vraiment trop bon marché du sens révolutionnaire et communiste latent du droit d’expropriation pour cause d’utilité publique : « Le droit supérieur que la société s’arroge sur les propriétés privées n’est que la reprise, dans un sens démocratique, du droit de propriété éminent du roi sur tous les biens du royaume. » Peut-être, quoique la Révolution assignât d’autres origines à ce droit. Mais ce qui est important, précisément, c’est la reprise de ce droit *dans un sens démocratique*. Car cette reprise démocratique pourra être continuée et agrandie dans le sens socialiste. Et comment peut-il paraître indifférent à M Leroy que la société bourgeoise, entraînée par la puissance des intérêts capitalistes, ait peu à peu donné à ce droit d’expropriation, sous les yeux du prolétariat qui médite et qui attend, une extension croissante ? Pendant que les radicaux disent : « Propriété individuelle », le capitalisme lui-même fortifie et assouplit l’outil juridique d’expropriation dont le prolétariat fera usage à l’égard de tout le système bourgeois. Voilà ce que j’avais le droit de marquer : et il me semble que, si on prend toute ma démonstration dans son vrai sens, elle résiste pleinement aux objections de M Leroy, que je remercie d’ailleurs de la forme courtoise et presque amicale qu’il leur a donnée.
+Aussi bien M. Leroy fait vraiment trop bon marché du sens révolutionnaire et communiste latent du droit d’expropriation pour cause d’utilité publique: « Le droit supérieur que la société s’arroge sur les propriétés privées n’est que la reprise, dans un sens démocratique, du droit de propriété éminent du roi sur tous les biens du royaume. » Peut-être, quoique la Révolution assignât d’autres origines à ce droit. Mais ce qui est important, précisément, c’est la reprise de ce droit *dans un sens démocratique*. Car cette reprise démocratique pourra être continuée et agrandie dans le sens socialiste. Et comment peut-il paraître indifférent à Leroy que la société bourgeoise, entraînée par la puissance des intérêts capitalistes, ait peu à peu donné à ce droit d’expropriation, sous les yeux du prolétariat qui médite et qui attend, une extension croissante? Pendant que les radicaux disent: « Propriété individuelle  le capitalisme lui-même fortifie et assouplit l’outil juridique d’expropriation dont le prolétariat fera usage à l’égard de tout le système bourgeois. Voilà ce que j’avais le droit de marquer: et il me semble que, si on prend toute ma démonstration dans son vrai sens, elle résiste pleinement aux objections de Leroy, que je remercie d’ailleurs de la forme courtoise et presque amicale qu’il leur a donnée.
 
 Je m’arrête, mon cher Péguy, en me félicitant une fois de plus, quelles que soient nos divergences en bien des questions ou à raison de ces divergences mêmes, d’être en communication directe de pensée avec les libres esprits que votre initiative et votre critique toujours en éveil ont groupés autour des *Cahiers de la Quinzaine*.
 
-Il y a onze ans, au moment où la démocratie socialiste allemande élaborait son programme, le projet de programme qui devait être bientôt adopté à Erfurt fut soumis à Engels, l’ami survivant de Marx. Engels fit de graves objections à la partie politique de ce programme. Il la trouvait timide, inconsistante et inefficace. On parle, disait-il, de suffrage universel direct, de referendum et d’initiative populaire. Mais à quoi cela peut-il servir tant que la constitution même de l’Allemagne est absolutiste, et tant que l’Allemagne, morcelée en petits états où domine la volonté des princes, n’offre pas à la volonté de la nation un champ libre et uni ? Comment peut-on, avec une pareille constitution politique, espérer un passage régulier et tranquille du capitalisme au socialisme ?
+Il y a onze ans, au moment où la démocratie socialiste allemande élaborait son programme, le projet de programme qui devait être bientôt adopté à Erfurt fut soumis à Engels, l’ami survivant de Marx. Engels fit de graves objections à la partie politique de ce programme. Il la trouvait timide, inconsistante et inefficace. On parle, disait-il, de suffrage universel direct, de referendum et d’initiative populaire. Mais à quoi cela peut-il servir tant que la constitution même de l’Allemagne est absolutiste, et tant que l’Allemagne, morcelée en petits états où domine la volonté des princes, n’offre pas à la volonté de la nation un champ libre et uni? Comment peut-on, avec une pareille constitution politique, espérer un passage régulier et tranquille du capitalisme au socialisme?
 
-Ici je cite textuellement, d’après la lettre de Engels qui vient d’être trouvée dans les papiers de Liebknecht et que publie la revue de Kautsky, la *Neue Zeit* :
+Ici je cite textuellement, d’après la lettre de Engels qui vient d’être trouvée dans les papiers de Liebknecht et que publie la revue de Kautsky, la *Neue Zeit*:
 
-« On se dit à soi-même et au parti que la société d’aujourd’hui va vers le socialisme par une évolution interne, et on ne se demande pas si, par cette évolution même, elle ne brisera point les formes, les enveloppes de la constitution actuelle.
+« On se dit à soi-même et au parti que la société d’aujourd’hui vers le socialisme par une évolution interne, et on ne se demande pas si, par cette évolution même, elle ne brisera point les formes, les enveloppes de la constitution actuelle.
 
 On parle comme si l’Allemagne n’avait point à s’évader des chaînes d’un ordre politique absolutiste et chaotique. *Il est permis de se représenter que la vieille société pourra se transformer pacifiquement en la nouvelle dans les pays où la représentation du peuple concentre en soi tous les pouvoirs, où l’on peut faire constitutionnellement ce que l’on veut dès qu’on a la majorité du peuple derrière soi, dans les Républiques démocratiques comme la France et l’Amérique*, dans les monarchies comme l’Angleterre où la dynastie est impuissante contre le peuple. Mais en Allemagne, où le gouvernement est presque tout-puissant et où le Reichstag et les autres corps représentatifs sont destitués de pouvoir réel, tenir un pareil langage c’est se lier à l’absolutisme tout nu.
 
 Si une chose est certaine, c’est que notre parti et la classe ouvrière ne peuvent arriver au pouvoir que sous la forme de la République démocratique. Celle-ci est la forme spécifique de la dictature du prolétariat, comme l’a montré déjà la grande Révolution française. *On ne peut pas se représenter que nos meilleurs militants deviennent ministres sous un empereur, comme Miquel*. »
 
-De ces remarquables paroles de Engels, je ne veux retenir aujourd’hui que deux points. Le premier, c’est que, pour l’illustre ami de Marx, la République démocratique n’est pas, comme le disent si souvent chez nous de prétendus doctrinaires du marxisme, une forme purement bourgeoise, qui importe aussi peu au prolétariat que toute autre forme gouvernementale. Mais la République est, selon Engels, la forme politique du socialisme : elle l’annonce, elle le prépare, elle le contient même déjà en quelque mesure, puisque seule elle y peut conduire par une évolution légale, sans rupture de continuité.
+De ces remarquables paroles de Engels, je ne veux retenir aujourd’hui que deux points. Le premier, c’est que, pour l’illustre ami de Marx, la République démocratique n’est pas, comme le disent si souvent chez nous de prétendus doctrinaires du marxisme, une forme purement bourgeoise, qui importe aussi peu au prolétariat que toute autre forme gouvernementale. Mais la République est, selon Engels, la forme politique du socialisme: elle l’annonce, elle le prépare, elle le contient même déjà en quelque mesure, puisque seule elle y peut conduire par une évolution légale, sans rupture de continuité.
 
-C’est donc nous qui étions fidèles à la véritable pensée marxiste, lorsque dans la crise des libertés françaises nous avons défendu la République contre tous ses ennemis. Et ceux qui, sous prétexte de révolution et de pureté doctrinale, se réfugiaient tristement dans l’abstention politicienne, ceux-là désertaient la pensée socialiste. Ils désertaient aussi la tradition révolutionnaire du prolétariat français. Engels parle de la République de 1793, de cette Révolution que quelques socialistes français déclarent exclusivement bourgeoise, et qui à un moment fut, selon Engels, l’instrument approprié de la dictature prolétarienne. Or, avant-hier, en cherchant aux Archives, avec Gabriel Deville, des documents sur la Révolution, j’y ai lu avec un tressaillement de joie ce fragment d’un journal de Babeuf. Babeuf se félicite d’avoir défendu la Révolution et la République, même quand elles étaient aux mains des persécuteurs du peuple. Il se félicite d’avoir sauvé la République au risque même de sauver en même temps les hommes indignes qui la représentaient : « Oui, dit-il, si les royalistes n’ont pas triomphé au 13 vendémiaire, c’est que, dans ce grand danger de la liberté publique, les démocrates sentirent que, pour un intérêt aussi sacré, ils devaient, au péril de leurs jours, sauver ceux de leurs persécuteurs qui l’avaient tant trahie, mais ne pouvaient périr eux-mêmes sans qu’elle succombât. » Admirables paroles, et qui crient contre le citoyen Vaillant. Elles ne laissent rien subsister des prétextes par lesquels il essayait de couvrir son abstention et sa politique d’équilibre aux jours du péril républicain, dans la crise boulangiste et dans la crise nationaliste. C’est par une usurpation de titre qu’il prétend se rattacher au babouvisme ; c’est nous qui avons été, en ces jours troublés, fidèles au communisme révolutionnaire de la France.
+C’est donc nous qui étions fidèles à la véritable pensée marxiste, lorsque dans la crise des libertés françaises nous avons défendu la République contre tous ses ennemis. Et ceux qui, sous prétexte de révolution et de pureté doctrinale, se réfugiaient tristement dans l’abstention politicienne, ceux-là désertaient la pensée socialiste. Ils désertaient aussi la tradition révolutionnaire du prolétariat français. Engels parle de la République de 1793, de cette Révolution que quelques socialistes français déclarent exclusivement bourgeoise, et qui à un moment fut, selon Engels, l’instrument approprié de la dictature prolétarienne. Or, avant-hier, en cherchant aux Archives, avec Gabriel Deville, des documents sur la Révolution, j’y ai avec un tressaillement de joie ce fragment d’un journal de Babeuf. Babeuf se félicite d’avoir défendu la Révolution et la République, même quand elles étaient aux mains des persécuteurs du peuple. Il se félicite d’avoir sauvé la République au risque même de sauver en même temps les hommes indignes qui la représentaient: « Oui, dit-il, si les royalistes n’ont pas triomphé au 13 vendémiaire, c’est que, dans ce grand danger de la liberté publique, les démocrates sentirent que, pour un intérêt aussi sacré, ils devaient, au péril de leurs jours, sauver ceux de leurs persécuteurs qui l’avaient tant trahie, mais ne pouvaient périr eux-mêmes sans qu’elle succombât. » Admirables paroles, et qui crient contre le citoyen Vaillant. Elles ne laissent rien subsister des prétextes par lesquels il essayait de couvrir son abstention et sa politique d’équilibre aux jours du péril républicain, dans la crise boulangiste et dans la crise nationaliste. C’est par une usurpation de titre qu’il prétend se rattacher au babouvisme; c’est nous qui avons été, en ces jours troublés, fidèles au communisme révolutionnaire de la France.
 
-Mais les paroles de Engels nous révèlent encore à quel point les socialistes allemands se préoccupaient des moyens de réaliser le communisme. Engels regrette passionnément qu’il n’y ait pas une République allemande. Et il laisse entrevoir qu’autant il lui répugnerait de voir des socialistes ministres sous un empereur, autant il lui paraîtrait naturel qu’ils prissent part à la direction gouvernementale d’une république démocratique évoluant vers le socialisme. Liebknecht, comme on le verra par les fragments cités, allait plus loin, puisqu’il prévoyait la participation des socialistes au gouvernement, même sous la constitution impériale ; mais quoi qu’il en soit de la question ministérielle, tout à fait secondaire, le problème qui les obsédait tous était celui-ci : comment passer de la société bourgeoise à la société communiste ? Par quels chemins ? Par quelle évolution ? C’est là, j’ose le dire, le problème qui est toujours présent à notre pensée. C’est à la solution théorique et pratique de ce problème que nous avons donné, sans réserve et sans retour, tout notre effort d’esprit, tout notre effort d’action.
+Mais les paroles de Engels nous révèlent encore à quel point les socialistes allemands se préoccupaient des moyens de réaliser le communisme. Engels regrette passionnément qu’il n’y ait pas une République allemande. Et il laisse entrevoir qu’autant il lui répugnerait de voir des socialistes ministres sous un empereur, autant il lui paraîtrait naturel qu’ils prissent part à la direction gouvernementale d’une république démocratique évoluant vers le socialisme. Liebknecht, comme on le verra par les fragments cités, allait plus loin, puisqu’il prévoyait la participation des socialistes au gouvernement, même sous la constitution impériale; mais quoi qu’il en soit de la question ministérielle, tout à fait secondaire, le problème qui les obsédait tous était celui-ci: comment passer de la société bourgeoise à la société communiste? Par quels chemins? Par quelle évolution? C’est là, j’ose le dire, le problème qui est toujours présent à notre pensée. C’est à la solution théorique et pratique de ce problème que nous avons donné, sans réserve et sans retour, tout notre effort d’esprit, tout notre effort d’action.
 
-Un moment, dans l’éblouissement de la grande victoire socialiste de 1893, dans le juste orgueil de l’action croissante exercée par notre parti, j’ai cru le triomphe total et final plus voisin de nous qu’il ne l’était. Que de fois alors le citoyen Vaillant m’avertissait de ne point me laisser aller à cette illusion dangereuse ! Que de fois alors nous a-t-il mis en garde contre les prophéties à court terme de Guesde et la mystique attente des catastrophes libératrices ! Mais même dans cette période d’espérance toute prochaine et enflammée, je n’ai jamais négligé l’œuvre de réforme, et toujours je m’efforçais de donner à nos projets de réforme une orientation socialiste. Je n’y voyais pas seulement des palliatifs aux misères présentes, mais un commencement d’organisation socialiste, des germes de communisme semés en terre capitaliste. Lorsque je repris les cahiers des paysans révolutionnaires de 1789 et demandai que l’état préludât, par le monopole d’importation des blés, à l’institution d’un service public d’approvisionnement que les syndicats ouvriers et paysans eussent géré avec la nation elle-même ; lorsque je demandai, dans le grand et long débat sur le sucre, la socialisation des raffineries et des fabriques de sucre, qui eussent été administrées, sous le contrôle de la nation, par la classe ouvrière organisée, contractant, pour l’achat de la betterave, avec des syndicats de producteurs paysans et avec des ouvriers agricoles assurés d’un minimum de salaire ; lorsque je demandai l’expropriation des mines, dont la direction eût été confiée à un conseil du travail comprenant des représentants de l’état, des représentants de toute la classe ouvrière et des ouvriers mineurs, je ne me préoccupais pas seulement de limiter la puissance capitaliste, et d’élever la condition des prolétaires ; je me préoccupais surtout d’introduire jusque dans la société d’aujourd’hui des formes nouvelles de propriété, à la fois nationales et syndicales, communistes et prolétariennes, qui fissent peu à peu éclater les cadres du capitalisme. C’est dans cet esprit que lorsque la verrerie ouvrière fut fondée, je pris délibérément parti contre les amis de Guesde, qui, dans les réunions préparatoires tenues à Paris, voulaient la réduire à n’être qu’une verrerie aux verriers, simple contrefaçon ouvrière de l’usine capitaliste. Je soutins de toutes mes forces ceux qui voulurent en faire et qui en ont fait la propriété commune de toutes les organisations ouvrières, créant ainsi le type de propriété qui se rapproche le plus, dans la société d’aujourd’hui, du communisme prolétarien. J’étais donc toujours dirigé par ce que Marx a nommé magnifiquement *l’évolution révolutionnaire*.
+Un moment, dans l’éblouissement de la grande victoire socialiste de 1893, dans le juste orgueil de l’action croissante exercée par notre parti, j’ai cru le triomphe total et final plus voisin de nous qu’il ne l’était. Que de fois alors le citoyen Vaillant m’avertissait de ne point me laisser aller à cette illusion dangereuse! Que de fois alors nous a-t-il mis en garde contre les prophéties à court terme de Guesde et la mystique attente des catastrophes libératrices! Mais même dans cette période d’espérance toute prochaine et enflammée, je n’ai jamais négligé l’œuvre de réforme, et toujours je m’efforçais de donner à nos projets de réforme une orientation socialiste. Je n’y voyais pas seulement des palliatifs aux misères présentes, mais un commencement d’organisation socialiste, des germes de communisme semés en terre capitaliste. Lorsque je repris les cahiers des paysans révolutionnaires de 1789 et demandai que l’état préludât, par le monopole d’importation des blés, à l’institution d’un service public d’approvisionnement que les syndicats ouvriers et paysans eussent géré avec la nation elle-même; lorsque je demandai, dans le grand et long débat sur le sucre, la socialisation des raffineries et des fabriques de sucre, qui eussent été administrées, sous le contrôle de la nation, par la classe ouvrière organisée, contractant, pour l’achat de la betterave, avec des syndicats de producteurs paysans et avec des ouvriers agricoles assurés d’un minimum de salaire; lorsque je demandai l’expropriation des mines, dont la direction eût été confiée à un conseil du travail comprenant des représentants de l’état, des représentants de toute la classe ouvrière et des ouvriers mineurs, je ne me préoccupais pas seulement de limiter la puissance capitaliste, et d’élever la condition des prolétaires; je me préoccupais surtout d’introduire jusque dans la société d’aujourd’hui des formes nouvelles de propriété, à la fois nationales et syndicales, communistes et prolétariennes, qui fissent peu à peu éclater les cadres du capitalisme. C’est dans cet esprit que lorsque la verrerie ouvrière fut fondée, je pris délibérément parti contre les amis de Guesde, qui, dans les réunions préparatoires tenues à Paris, voulaient la réduire à n’être qu’une verrerie aux verriers, simple contrefaçon ouvrière de l’usine capitaliste. Je soutins de toutes mes forces ceux qui voulurent en faire et qui en ont fait la propriété commune de toutes les organisations ouvrières, créant ainsi le type de propriété qui se rapproche le plus, dans la société d’aujourd’hui, du communisme prolétarien. J’étais donc toujours dirigé par ce que Marx a nommé magnifiquement *l’évolution révolutionnaire*.
 
-Elle consiste, selon moi, à introduire dans la société d’aujourd’hui des formes de propriété qui la démentent et qui la dépassent, qui annoncent et préparent la société nouvelle, et par leur force organique hâtent la dissolution du monde ancien. Les réformes ne sont pas seulement, à mes yeux, des adoucissants : elles sont, elles doivent être des préparations.
+Elle consiste, selon moi, à introduire dans la société d’aujourd’hui des formes de propriété qui la démentent et qui la dépassent, qui annoncent et préparent la société nouvelle, et par leur force organique hâtent la dissolution du monde ancien. Les réformes ne sont pas seulement, à mes yeux, des adoucissants: elles sont, elles doivent être des préparations.
 
 Voilà la pensée qui m’a animé dès le début de la bataille. Voilà la méthode de réalisation socialiste que j’ai pratiquée en cinq années de vie parlementaire qui ne furent qu’un long labeur et un long combat. Et puisqu’enfin on m’oblige à parler de moi, puisqu’on m’oblige à défendre cette part de la confiance du peuple que je n’avais conquise et que je ne veux garder qu’au profit de la Révolution, je dis bien haut qu’à cette méthode et à cette pensée, je suis pleinement resté fidèle.
 
-J’ai vu, il y a quatre ans, par l’odieux soulèvement d’ignorance et de barbarie, par le triste fléchissement des volontés et des consciences, qu’il ne suffisait pas de pousser et de percer vers le socialisme, qu’il fallait encore raffermir la liberté républicaine ébranlée. Quand l’ouvrier mineur, qui enfonce son pic dans la houille et qui la détache bloc à bloc, s’aperçoit soudain que la galerie est ébranlée, que les appuis fléchissent et que le plafond s’abaisse, il dépose un moment le pic, et il raffermit les appuis. Dira-t-on qu’il s’est arrêté dans sa marche et qu’il a quitté le vigoureux outil offensif ? Non, il a au contraire assuré la suite et le progrès de son travail.
+J’ai vu, il y a quatre ans, par l’odieux soulèvement d’ignorance et de barbarie, par le triste fléchissement des volontés et des consciences, qu’il ne suffisait pas de pousser et de percer vers le socialisme, qu’il fallait encore raffermir la liberté républicaine ébranlée. Quand l’ouvrier mineur, qui enfonce son pic dans la houille et qui la détache bloc à bloc, s’aperçoit soudain que la galerie est ébranlée, que les appuis fléchissent et que le plafond s’abaisse, il dépose un moment le pic, et il raffermit les appuis. Dira-t-on qu’il s’est arrêté dans sa marche et qu’il a quitté le vigoureux outil offensif? Non, il a au contraire assuré la suite et le progrès de son travail.
 
-J’ai vu aussi par Lille, Roubaix, Paris, Carmaux, Rive-de-Gier, que la puissance capitaliste était grande encore, plus grande et plus résistante que Guesde ne nous l’avait dit. Et j’ai compris qu’il nous faudrait un long et immense effort, une longue suite d’œuvres, pour désarmer les préjugés les plus violents, et pour pénétrer les consciences. Et il ne m’a pas paru indifférent, pour dissiper une part des préjugés hostiles, que la société bourgeoise fût obligée elle-même, en une heure de crise, d’appeler un socialiste à une part du pouvoir. Je crois que, quoi qu’il advienne et quand même l’expérience ne serait jamais reprise, cet événement, dans un avenir prochain, servira la propagande de tous. J’ai cru, même à travers des circonstances difficiles, qu’il valait la peine de laisser cette combinaison prendre par sa durée une importance historique. Je pense encore qu’il serait funeste d’y mettre fiévreusement un terme.
+J’ai aussi par Lille, Roubaix, Paris, Carmaux, Rive-de-Gier, que la puissance capitaliste était grande encore, plus grande et plus résistante que Guesde ne nous l’avait dit. Et j’ai compris qu’il nous faudrait un long et immense effort, une longue suite d’œuvres, pour désarmer les préjugés les plus violents, et pour pénétrer les consciences. Et il ne m’a pas paru indifférent, pour dissiper une part des préjugés hostiles, que la société bourgeoise fût obligée elle-même, en une heure de crise, d’appeler un socialiste à une part du pouvoir. Je crois que, quoi qu’il advienne et quand même l’expérience ne serait jamais reprise, cet événement, dans un avenir prochain, servira la propagande de tous. J’ai cru, même à travers des circonstances difficiles, qu’il valait la peine de laisser cette combinaison prendre par sa durée une importance historique. Je pense encore qu’il serait funeste d’y mettre fiévreusement un terme.
 
 Mais ce n’est pas seulement pour obéir aux décisions de principe de nos congrès, c’est par l’effet d’une conviction personnelle très réfléchie, que je dis très nettement qu’il me paraîtrait mauvais de faire entrer le Parti socialiste dans les combinaisons gouvernementales qui suivront. Il faut d’abord que le Parti socialiste se donne à lui-même le temps de juger à distance les effets bons et mauvais de la participation. Il faut qu’il puisse situer les événements dans une juste perspective. Et il faut aussi qu’il réserve d’abord tout son effort à déployer devant le Parlement et devant le pays son programme d’action agrandi et renouvelé. Il le fera avec l’autorité plus pressante que lui donne maintenant le rôle décisif joué par lui dans de grandes crises de la liberté et de la nation. Il le fera devant des esprits moins brutalement prévenus, plus ouverts aux libertés nouvelles. Il le fera sans se désintéresser un moment des parcelles de réformes qu’il pourra obtenir du gouvernement républicain, sans stériliser par une opposition systématique le ministère où il ne sera pas représenté, mais avec le souci de donner toujours toute la mesure de sa pensée.
 
@@ -344,9 +344,9 @@ C’est ma juste fierté de m’être, pour ma part de militant, préparé sans 
 
 Le mouvement économique n’a pas à la campagne la même forme qu’à la ville. D’abord, la population rurale diminue, tandis que la population urbaine s’accroît. En second lieu, et ceci est très important, c’est surtout sur le prolétariat rural que porte la diminution. Il est clair que ce sont surtout les non-possédants, les journaliers, les fils de métayers qui sont entraînés vers la ville. Les petits propriétaires sont plus fortement fixés au sol.
 
-Enfin, l’effet de la machine est exactement le contraire, à la campagne, de ce qu’il est à la ville. Dans l’industrie, la machine supprime parfois des bras, mais ce n’est que momentanément ; elle suscite des formes nouvelles d’activité, et c’est ainsi qu’à mesure que se développe le machinisme, s’accroît aussi le chiffre de la population ouvrière. Et les petits artisans étant transformés en prolétaires, l’effet de la machine est d’accroître le prolétariat industriel. Au contraire, dans l’ordre agricole, la machine, semeuse, faucheuse, moissonneuse, lieuse, batteuse, supprime purement et simplement des bras. Et ce sont les prolétaires qu’elle élimine. Les petits propriétaires ne sont pas supprimés par le machinisme comme les artisans. La machine agricole s’adapte en effet de plus en plus à la petite propriété, et bien loin de détruire le petit propriétaire, elle le dispense des frais de main-d’œuvre qu’il avait à supporter par exemple pour la moisson.
+Enfin, l’effet de la machine est exactement le contraire, à la campagne, de ce qu’il est à la ville. Dans l’industrie, la machine supprime parfois des bras, mais ce n’est que momentanément; elle suscite des formes nouvelles d’activité, et c’est ainsi qu’à mesure que se développe le machinisme, s’accroît aussi le chiffre de la population ouvrière. Et les petits artisans étant transformés en prolétaires, l’effet de la machine est d’accroître le prolétariat industriel. Au contraire, dans l’ordre agricole, la machine, semeuse, faucheuse, moissonneuse, lieuse, batteuse, supprime purement et simplement des bras. Et ce sont les prolétaires qu’elle élimine. Les petits propriétaires ne sont pas supprimés par le machinisme comme les artisans. La machine agricole s’adapte en effet de plus en plus à la petite propriété, et bien loin de détruire le petit propriétaire, elle le dispense des frais de main-d’œuvre qu’il avait à supporter par exemple pour la moisson.
 
-Le prolétariat rural devenant de plus en plus rare, la croissance de la grande propriété se trouve naturellement arrêtée. Et par là s’explique l’état à peu près stagnant de la propriété agricole en France.
+Le prolétariat rural devenant de plus en plus rare, la croissance de la grande propriété se trouve naturellement arrêtée. Et par s’explique l’état à peu près stagnant de la propriété agricole en France.
 
 Dans la remarquable étude qu’il a faite de la propriété rurale, Gabriel Deville concluait à un mouvement de concentration, mais lent et peu marqué. Bien des causes sembleraient devoir agir dans le sens de la grande propriété. Il est naturel, par exemple, que les capitalistes urbains soient tentés de consolider en terres une petite partie de leur fortune grandissante. De plus, il y a des branches de la production agricole qui s’industrialisent de plus en plus, comme la culture betteravière, et qui semblent devoir subir la loi de groupement de l’industrie elle-même.
 
@@ -358,63 +358,63 @@ Notons bien que je ne prétends pas que ces traits s’appliquent à toutes les 
 
 Or, voici les conséquences sociales de cet état économique.
 
-D’abord, tout naturellement, il semble malaisé d’instituer un puissant mouvement prolétarien dans les régions où la substance même de ce mouvement, c’est-à-dire le prolétariat lui-même, a une tendance à décroître. Je sais bien que dans le Midi les métayers sont nombreux encore. Et certes, ils commencent à avoir un sentiment de classe. Ils commencent à comprendre qu’une organisation sociale est possible où ils ne seraient pas réduits à percevoir la moitié des fruits du sol. Mais cet instinct de classe est souvent incertain et mêlé. Ils ne sont pas de purs prolétaires : ils possèdent une partie du capital agricole, bestiaux, machines, engrais, fourrages. Ils ont souvent une assez grande liberté dans la conduite de l’exploitation. Enfin, comme ils portent au marché la partie de leurs produits qu’ils ne consomment pas, ils ont, en ce point, le même intérêt que les propriétaires fonciers à ce que les cours du bétail, du blé, du vin, soient suffisamment élevés. Ainsi, leur intérêt *immédiat* n’est pas en opposition avec l’intérêt de la classe foncière possédante, et beaucoup de métayers ont été aisément enveloppés dans le mouvement protectionniste. En tout cas, une région où il n’y a presque pas de journaliers, de salariés agricoles proprement dits, et où presque toute la population rurale est composée ou de métayers ou de petits propriétaires, est peu favorable à un mouvement purement et exclusivement prolétarien. Il en est de même des régions, comme celle de Gaillac, où il y a deux tiers de possédants, et un tiers seulement de non-possédants ; où ce tiers est surtout préoccupé de devenir possédant à son tour et où cette prétention n’est pas absolument chimérique.
+D’abord, tout naturellement, il semble malaisé d’instituer un puissant mouvement prolétarien dans les régions où la substance même de ce mouvement, c’est-à-dire le prolétariat lui-même, a une tendance à décroître. Je sais bien que dans le Midi les métayers sont nombreux encore. Et certes, ils commencent à avoir un sentiment de classe. Ils commencent à comprendre qu’une organisation sociale est possible où ils ne seraient pas réduits à percevoir la moitié des fruits du sol. Mais cet instinct de classe est souvent incertain et mêlé. Ils ne sont pas de purs prolétaires: ils possèdent une partie du capital agricole, bestiaux, machines, engrais, fourrages. Ils ont souvent une assez grande liberté dans la conduite de l’exploitation. Enfin, comme ils portent au marché la partie de leurs produits qu’ils ne consomment pas, ils ont, en ce point, le même intérêt que les propriétaires fonciers à ce que les cours du bétail, du blé, du vin, soient suffisamment élevés. Ainsi, leur intérêt *immédiat* n’est pas en opposition avec l’intérêt de la classe foncière possédante, et beaucoup de métayers ont été aisément enveloppés dans le mouvement protectionniste. En tout cas, une région où il n’y a presque pas de journaliers, de salariés agricoles proprement dits, et où presque toute la population rurale est composée ou de métayers ou de petits propriétaires, est peu favorable à un mouvement purement et exclusivement prolétarien. Il en est de même des régions, comme celle de Gaillac, où il y a deux tiers de possédants, et un tiers seulement de non-possédants; où ce tiers est surtout préoccupé de devenir possédant à son tour et où cette prétention n’est pas absolument chimérique.
 
 Mais si les forts mouvements prolétariens y sont plus malaisés à susciter ou à organiser qu’ailleurs, on peut dire qu’ils y seraient d’une efficacité extraordinaire. Précisément parce que la main-d’œuvre s’y fait rare, elle y pourrait facilement devenir souveraine. Il n’y a pas d’armée de réserve à qui puisse faire appel la propriété bourgeoise. Celle-ci, dans certains vignobles, est à la merci de la coalition d’un nombre assez restreint de salariés. Et si quelques familles de métayers connus, estimés, et qu’il serait impossible de remplacer en bloc, s’entendaient dans telle ou telle région, il serait difficile à la propriété bourgeoise de ne pas accepter certaines clauses de travail plus favorables aux métayers.
 
-Il est vrai que beaucoup de propriétaires bourgeois aimeraient mieux renoncer à la culture et laisser pendant un an leurs domaines en sommeil, que de renoncer à une part de leurs revenus fonciers souvent assez maigres. Mais il y aurait là une crise économique et sociale aiguë, d’où sortirait un long ébranlement. De sorte que la réduction du prolétariat constitue une menace pour la propriété foncière bourgeoise, comme l’accroissement et l’agglomération du prolétariat industriel constituent une menace pour la propriété capitaliste industrielle. Des deux côtés il n’y a d’issue que vers une forme nouvelle de propriété et de société.
+Il est vrai que beaucoup de propriétaires bourgeois aimeraient mieux renoncer à la culture et laisser pendant un an leurs domaines en sommeil, que de renoncer à une part de leurs revenus fonciers souvent assez maigres. Mais il y aurait une crise économique et sociale aiguë, d’où sortirait un long ébranlement. De sorte que la réduction du prolétariat constitue une menace pour la propriété foncière bourgeoise, comme l’accroissement et l’agglomération du prolétariat industriel constituent une menace pour la propriété capitaliste industrielle. Des deux côtés il n’y a d’issue que vers une forme nouvelle de propriété et de société.
 
-Marx a dit que la révolution sociale serait au meilleur marché possible si elle pouvait indemniser les détenteurs actuels du capital. Il voulait dire par là qu’il y avait intérêt pour le socialisme révolutionnaire à éviter l’exaspération suprême de la vieille société expropriée et les longues convulsions destructrices de richesse. Il est encore temps, pour la transformation de la propriété rurale, de recourir à des procédés amiables. L’état, les communes, les coopératives pourraient, soit par des obligations assez rapidement amorties, soit par des assignations sur les produits agricoles concentrés dans les magasins communaux, coopératifs et sociaux, commencer la transformation de la grande propriété foncière en propriété sociale, avec un triple caractère national, communal, syndical.
+Marx a dit que la révolution sociale serait au meilleur marché possible si elle pouvait indemniser les détenteurs actuels du capital. Il voulait dire par qu’il y avait intérêt pour le socialisme révolutionnaire à éviter l’exaspération suprême de la vieille société expropriée et les longues convulsions destructrices de richesse. Il est encore temps, pour la transformation de la propriété rurale, de recourir à des procédés amiables. L’état, les communes, les coopératives pourraient, soit par des obligations assez rapidement amorties, soit par des assignations sur les produits agricoles concentrés dans les magasins communaux, coopératifs et sociaux, commencer la transformation de la grande propriété foncière en propriété sociale, avec un triple caractère national, communal, syndical.
 
-Les petits propriétaires ne seraient nullement effrayés par cette transformation graduelle qui ne les menacerait point et qui aurait des formes juridiques. Et ils se rattacheraient bientôt par des liens volontaires au grand centre d’action formé par la propriété communale ou coopérative. Il se produit en ce moment dans leur esprit des modifications lentes, peu sensibles, mais dont l’effet à la longue sera décisif. D’abord, ils ont beaucoup plus que jadis foi en la science. Les voilà maintenant qui recourent à la chimie agricole et au machinisme. Ils ont le sentiment très net qu’ils ne s’arrêteront plus dans cette voie. Ils ont pu concilier leur antique passion de la terre et de la propriété individuelle avec le souci des progrès techniques, puisque ces progrès sont applicables dans les limites de la petite propriété. Mais il est bien clair qu’engagés dans cette voie ils ne peuvent plus se reprendre, et que si, à l’avenir, l’application parfaite du machinisme exigeait de leur part une certaine renonciation à la rigueur du droit individuel, aux habitudes étroites de la culture parcellaire, ils seraient, si je puis dire, entraînés au delà de leur individualisme fermé par la puissance même du mouvement scientifique auquel ils se sont dès maintenant livrés.
+Les petits propriétaires ne seraient nullement effrayés par cette transformation graduelle qui ne les menacerait point et qui aurait des formes juridiques. Et ils se rattacheraient bientôt par des liens volontaires au grand centre d’action formé par la propriété communale ou coopérative. Il se produit en ce moment dans leur esprit des modifications lentes, peu sensibles, mais dont l’effet à la longue sera décisif. D’abord, ils ont beaucoup plus que jadis foi en la science. Les voilà maintenant qui recourent à la chimie agricole et au machinisme. Ils ont le sentiment très net qu’ils ne s’arrêteront plus dans cette voie. Ils ont concilier leur antique passion de la terre et de la propriété individuelle avec le souci des progrès techniques, puisque ces progrès sont applicables dans les limites de la petite propriété. Mais il est bien clair qu’engagés dans cette voie ils ne peuvent plus se reprendre, et que si, à l’avenir, l’application parfaite du machinisme exigeait de leur part une certaine renonciation à la rigueur du droit individuel, aux habitudes étroites de la culture parcellaire, ils seraient, si je puis dire, entraînés au delà de leur individualisme fermé par la puissance même du mouvement scientifique auquel ils se sont dès maintenant livrés.
 
 Le paysan propriétaire devient, presque à son insu, collectiviste pour la vente. Il est de plus en plus soumis à des crises de prix formidables. C’était, depuis des années, pour le blé. Et voici que l’heureuse et admirable renaissance de la vigne a cet effet terrible et paradoxal de ruiner les vignerons. Évidemment, une grande baisse de prix était rendue nécessaire par la fécondité du plant américain greffé, par l’excellence de deux récoltes successives. Cette baisse de prix, si elle s’était tenue dans de justes limites, aurait été bonne pour tous. Mais notre système économique et social est si déréglé que la baisse, soudain précipitée à un degré incroyable, a accablé les producteurs viticoles, ruinés par l’abondance même du produit. Aussi les producteurs paysans aspirent-ils à être délivrés de ces désordres ruineux du marché. Et si le blé, le vin étaient acquis par des fédérations de coopératives et par des fédérations de communes, si le prix en était déterminé selon l’abondance de la récolte, les frais d’exploitation scientifique et de perfectionnement et le salaire normal des travailleurs employés à la culture, les propriétaires paysans, affranchis de la spéculation, du parasitisme mercantile, de l’anarchie du marché, travailleraient avec la certitude allègre d’une rémunération équitable. Ce collectivisme de l’échange ne les effraie nullement.
 
-Ainsi, le système actuel de la propriété foncière est travaillé par des causes profondes de révolution. Que les socialistes développent les coopératives de consommation ; qu’ils leur proposent comme un de leurs buts les plus importants l’acquisition de vastes domaines ruraux où elles s’approvisionneront en partie ; qu’ils organisent les syndicats de prolétaires ruraux ; qu’ils propagent dans les campagnes l’idée d’un service public d’approvisionnement qui, par les communes et les coopératives, se substituerait à la spéculation des blés, à la grande meunerie, au grand négoce des vins ; qu’ils donnent aux paysans, aux salariés, aux métayers, aux petits propriétaires, la notion exacte du rôle immense que devrait jouer la commune dans la vie économique ; qu’ils rattachent ainsi les besoins des temps nouveaux au souvenir persistant de la propriété communale d’autrefois, primitive et rudimentaire ; qu’ils imprègnent peu à peu d’esprit communal socialiste les municipalités rurales, et la France agricole évoluera d’un mouvement puissant vers un communisme vivant et libre, où le travail sera souverain, où toutes les énergies individuelles se déploieront sans entrave et sans conflit dans l’harmonieuse justice.
+Ainsi, le système actuel de la propriété foncière est travaillé par des causes profondes de révolution. Que les socialistes développent les coopératives de consommation; qu’ils leur proposent comme un de leurs buts les plus importants l’acquisition de vastes domaines ruraux où elles s’approvisionneront en partie; qu’ils organisent les syndicats de prolétaires ruraux; qu’ils propagent dans les campagnes l’idée d’un service public d’approvisionnement qui, par les communes et les coopératives, se substituerait à la spéculation des blés, à la grande meunerie, au grand négoce des vins; qu’ils donnent aux paysans, aux salariés, aux métayers, aux petits propriétaires, la notion exacte du rôle immense que devrait jouer la commune dans la vie économique; qu’ils rattachent ainsi les besoins des temps nouveaux au souvenir persistant de la propriété communale d’autrefois, primitive et rudimentaire; qu’ils imprègnent peu à peu d’esprit communal socialiste les municipalités rurales, et la France agricole évoluera d’un mouvement puissant vers un communisme vivant et libre, où le travail sera souverain, où toutes les énergies individuelles se déploieront sans entrave et sans conflit dans l’harmonieuse justice.
 
-Dans l’immense transformation sociale qui se prépare, le prolétariat sait maintenant avec certitude la direction qu’il doit suivre ; il connaît assez distinctement les grands traits du régime nouveau qu’il veut et doit instituer. Il sait que la puissance du travail organisé se substituera à la puissance du capital, que tout prélèvement du capital sur le travail sera aboli, et que le désordre de la production capitaliste et mercantile fera place à un ordre de production réglé par la science elle-même, d’après les besoins de tous et de chacun. Le prolétariat sait que pour que l’organisation du travail affranchi et souverain devienne possible, il faut que la collectivité sociale, la communauté substitue son droit au droit actuel de la propriété privée. Tant que des particuliers, des classes détiendront les moyens de produire, il est clair que l’autorité sur un grand nombre d’individus sera détenue et exploitée par quelques-uns. L’intervention de la communauté elle-même dans la propriété est donc nécessaire pour que le droit de tous les individus soit respecté. De là la grande idée collectiviste ou communiste de la propriété sociale, qui est la lumière du prolétariat socialiste en son effort multiple et tourmenté.
+Dans l’immense transformation sociale qui se prépare, le prolétariat sait maintenant avec certitude la direction qu’il doit suivre; il connaît assez distinctement les grands traits du régime nouveau qu’il veut et doit instituer. Il sait que la puissance du travail organisé se substituera à la puissance du capital, que tout prélèvement du capital sur le travail sera aboli, et que le désordre de la production capitaliste et mercantile fera place à un ordre de production réglé par la science elle-même, d’après les besoins de tous et de chacun. Le prolétariat sait que pour que l’organisation du travail affranchi et souverain devienne possible, il faut que la collectivité sociale, la communauté substitue son droit au droit actuel de la propriété privée. Tant que des particuliers, des classes détiendront les moyens de produire, il est clair que l’autorité sur un grand nombre d’individus sera détenue et exploitée par quelques-uns. L’intervention de la communauté elle-même dans la propriété est donc nécessaire pour que le droit de tous les individus soit respecté. De la grande idée collectiviste ou communiste de la propriété sociale, qui est la lumière du prolétariat socialiste en son effort multiple et tourmenté.
 
 Mais cette idée générale, si nette et si déterminée qu’elle soit, ne suffit pas à décider les modes d’application, les combinaisons innombrables et variables selon lesquelles le socialisme s’accomplira. Il est certain que c’est le cours même de l’évolution économique qui déterminera les rapports infiniment complexes selon lesquels s’ordonnera la société nouvelle. Il ne suffira pas de quelques formules générales pour transformer la société. Il faudra encore observer constamment le mouvement de la réalité pour saisir les points de contact de la société d’aujourd’hui et de l’idée nouvelle. Notre effort serait stérile, et notre action troublerait la marche des choses au lieu de la seconder, si nous ne démêlions pas la pente des faits et des esprits, les inclinations et les mœurs.
 
 J’en reviens au même exemple précis. J’ai montré la sourde évolution de la propriété paysanne, le changement insensible et secret qui, si je puis dire, peu à peu renouvelle son âme. Il y a dans l’année une période de près d’un mois et demi, et une période particulièrement active, où les propriétaires paysans s’associent par groupes assez étendus et travaillent les uns chez les autres, les uns pour les autres. À peine la moissonneuse — qui n’est pas encore partout complétée par l’appareil de liage — a-t-elle couché les épis, par petits paquets, sur la terre ardente, que les propriétaires voisins accourent pour aider à lier en gerbes ces épis, à former des tas de dix gerbes, puis à charger ces tas sur les grandes charrettes et à bâtir le gerbier. Des métayers aux petits propriétaires paysans, il y a le même échange de services. Et il n’y a pas seulement prêt mutuel du travail des bras, il y a prêt du bétail. La machine à moissonner ayant rapidement abattu le blé, il faut, de peur des orages, le lier vite, et vite l’entasser en gerbier. Pour hâter ce travail urgent, les paysans se prêtent charrettes et bœufs. Et, je le répète, il n’y a pas de compte ouvert. Il serait impossible d’évaluer les services de l’un et ceux de l’autre. C’est un libre et amical échange. Ainsi, une parcelle d’âme communiste pénètre dans le travail paysan, dans la conscience paysanne. Et cela dure jusqu’à ce que la batteuse ait, dans le rayon où se sont formés spontanément ces groupes, dévoré le dernier gerbier.
 
-Certes, jamais les socialistes n’ont prétendu faire entrer de force la propriété paysanne dans le cadre communiste. Nos aînés, nos maîtres ont toujours dit que seul l’exemple de la grande production agricole entraînerait les propriétaires paysans à abandonner la culture parcellaire, la propriété morcelée. Mais cela même est insuffisant, et nous nous représentons l’évolution de la vie rurale d’une manière trop sèche, trop mécanique. Non seulement ce n’est pas par un coup d’autorité, mais ce n’est même pas par l’action tout extérieure de l’exemple, ce n’est ni par compression ni seulement par attraction que la propriété paysanne entrera dans le mouvement communiste : c’est, au moins en partie, par l’évolution interne de sa propre vie.
+Certes, jamais les socialistes n’ont prétendu faire entrer de force la propriété paysanne dans le cadre communiste. Nos aînés, nos maîtres ont toujours dit que seul l’exemple de la grande production agricole entraînerait les propriétaires paysans à abandonner la culture parcellaire, la propriété morcelée. Mais cela même est insuffisant, et nous nous représentons l’évolution de la vie rurale d’une manière trop sèche, trop mécanique. Non seulement ce n’est pas par un coup d’autorité, mais ce n’est même pas par l’action tout extérieure de l’exemple, ce n’est ni par compression ni seulement par attraction que la propriété paysanne entrera dans le mouvement communiste: c’est, au moins en partie, par l’évolution interne de sa propre vie.
 
-Une des tâches essentielles du socialisme sera de donner aux propriétaires paysans le sens vif, la conscience nette du changement qui s’accomplit obscurément en eux. Quand on le leur fait remarquer, ils s’étonnent un moment ; puis ils reconnaissent l’étendue du changement qui se fait peu à peu dans les habitudes et les pensées. Et c’est en prolongeant, en systématisant ces tendances nouvelles que le socialisme prendra contact avec la vie et lui empruntera sa force.
+Une des tâches essentielles du socialisme sera de donner aux propriétaires paysans le sens vif, la conscience nette du changement qui s’accomplit obscurément en eux. Quand on le leur fait remarquer, ils s’étonnent un moment; puis ils reconnaissent l’étendue du changement qui se fait peu à peu dans les habitudes et les pensées. Et c’est en prolongeant, en systématisant ces tendances nouvelles que le socialisme prendra contact avec la vie et lui empruntera sa force.
 
-Cette coopération encore superficielle et limitée devra s’étendre, s’assouplir, s’organiser. En bien des régions, de grands travaux de perfectionnement agricole seraient nécessaires : défoncements, drainages, nivellement ou adoucissement des pentes, charrois d’engrais, apports de terres, aménagement des eaux. Il se peut que la nation soit appelée à encourager, à subventionner ces travaux, car il est prodigieux qu’il y ait des travaux publics de communication et qu’il n’y ait pas des travaux publics de production. Mais il est bien clair qu’il y faudra la collaboration active, intelligente des producteurs eux-mêmes. Or, cette collaboration, cette coopération commence à apparaître comme possible, depuis que des habitudes communistes s’insinuent dans le travail paysan.
+Cette coopération encore superficielle et limitée devra s’étendre, s’assouplir, s’organiser. En bien des régions, de grands travaux de perfectionnement agricole seraient nécessaires: défoncements, drainages, nivellement ou adoucissement des pentes, charrois d’engrais, apports de terres, aménagement des eaux. Il se peut que la nation soit appelée à encourager, à subventionner ces travaux, car il est prodigieux qu’il y ait des travaux publics de communication et qu’il n’y ait pas des travaux publics de production. Mais il est bien clair qu’il y faudra la collaboration active, intelligente des producteurs eux-mêmes. Or, cette collaboration, cette coopération commence à apparaître comme possible, depuis que des habitudes communistes s’insinuent dans le travail paysan.
 
-Je pourrais citer ainsi bien des traits encore légers, mais qui dessinent les formes futures de la vie. Je parlais plus haut du vignoble autour de Gaillac. Or, là, depuis quelques années, depuis que les simples salariés agricoles ont retrouvé l’espoir d’acquérir quelques lambeaux des vignes reconstituées, ils ont peu à peu imposé un curieux usage. La journée de travail, qui commence, il est vrai, de très bonne heure, presque à la pointe du jour, finit le soir à quatre heures. C’est que beaucoup de ces prolétaires, de ces salariés, possèdent un tout petit morceau de vigne, et que voulant le travailler après la journée de travail faite chez le propriétaire bourgeois, il faut qu’ils soient libres à quatre heures. Ainsi, ces hommes ont l’habitude de deux formes de travail : du travail collectif qu’ils accomplissent sur un grand domaine en compagnie de nombreux salariés, et du travail individuel qu’ils accomplissent sur leur minuscule propriété.
+Je pourrais citer ainsi bien des traits encore légers, mais qui dessinent les formes futures de la vie. Je parlais plus haut du vignoble autour de Gaillac. Or, là, depuis quelques années, depuis que les simples salariés agricoles ont retrouvé l’espoir d’acquérir quelques lambeaux des vignes reconstituées, ils ont peu à peu imposé un curieux usage. La journée de travail, qui commence, il est vrai, de très bonne heure, presque à la pointe du jour, finit le soir à quatre heures. C’est que beaucoup de ces prolétaires, de ces salariés, possèdent un tout petit morceau de vigne, et que voulant le travailler après la journée de travail faite chez le propriétaire bourgeois, il faut qu’ils soient libres à quatre heures. Ainsi, ces hommes ont l’habitude de deux formes de travail: du travail collectif qu’ils accomplissent sur un grand domaine en compagnie de nombreux salariés, et du travail individuel qu’ils accomplissent sur leur minuscule propriété.
 
-J’ai à peine besoin de dire que ce travail qu’ils accomplissent pour eux-mêmes est, même après la fatigue du travail salarié, une douceur et une joie. Mais je suis convaincu que cette dualité d’âme se continuera en eux-mêmes après de grandes transformations sociales. Je suppose que les grands domaines du vignoble soient devenus la propriété de la commune. Je suppose que les travailleurs, qui, hier, étaient les salariés du propriétaire noble ou bourgeois, soient formés en association et reçoivent de la commune les grands domaines à exploiter. Évidemment ils jouiront d’une condition beaucoup plus heureuse qu’aujourd’hui. Quelle que soit la part de produits retenue pour de grandes œuvres d’intérêt social et de solidarité par la commune et la nation, la rémunération des travailleurs associés, qui n’auront plus à subir le prélèvement du propriétaire, sera plus large que maintenant. Et ils auront des garanties qui aujourd’hui leur manquent. Sans être des propriétaires au sens étroit et jaloux du mot, ils ne seront pas des salariés. Ils choisiront leurs chefs de travail ; ils interviendront dans la conduite de l’exploitation ; ils auront un droit défini par des contrats précis ; ils seront protégés par ces formes élevées de contrat qui, dans la société communiste, garantiront tous les droits individuels, même contre l’arbitraire de l’association dont ils feront partie. Ils seront donc rattachés au grand vignoble cultivé de leurs mains par un lien plus vivant et plus fort, par une sensation plus joyeuse et plus pleine que ne l’est aujourd’hui le salarié. Et pourtant, il est fort probable qu’ils éprouveraient comme un manque et une diminution vitale s’ils ne retrouvaient plus, à voir se dorer les grappes sur quelques ceps à eux, rien qu’à eux, cette joie close où il y a plus d’intimité que d’égoïsme.
+J’ai à peine besoin de dire que ce travail qu’ils accomplissent pour eux-mêmes est, même après la fatigue du travail salarié, une douceur et une joie. Mais je suis convaincu que cette dualité d’âme se continuera en eux-mêmes après de grandes transformations sociales. Je suppose que les grands domaines du vignoble soient devenus la propriété de la commune. Je suppose que les travailleurs, qui, hier, étaient les salariés du propriétaire noble ou bourgeois, soient formés en association et reçoivent de la commune les grands domaines à exploiter. Évidemment ils jouiront d’une condition beaucoup plus heureuse qu’aujourd’hui. Quelle que soit la part de produits retenue pour de grandes œuvres d’intérêt social et de solidarité par la commune et la nation, la rémunération des travailleurs associés, qui n’auront plus à subir le prélèvement du propriétaire, sera plus large que maintenant. Et ils auront des garanties qui aujourd’hui leur manquent. Sans être des propriétaires au sens étroit et jaloux du mot, ils ne seront pas des salariés. Ils choisiront leurs chefs de travail; ils interviendront dans la conduite de l’exploitation; ils auront un droit défini par des contrats précis; ils seront protégés par ces formes élevées de contrat qui, dans la société communiste, garantiront tous les droits individuels, même contre l’arbitraire de l’association dont ils feront partie. Ils seront donc rattachés au grand vignoble cultivé de leurs mains par un lien plus vivant et plus fort, par une sensation plus joyeuse et plus pleine que ne l’est aujourd’hui le salarié. Et pourtant, il est fort probable qu’ils éprouveraient comme un manque et une diminution vitale s’ils ne retrouvaient plus, à voir se dorer les grappes sur quelques ceps à eux, rien qu’à eux, cette joie close où il y a plus d’intimité que d’égoïsme.
 
-Et pourquoi la société communiste, habile à cultiver toutes la variété des joies, abolirait-elle celle-là ? Que notre effort conscient dirige de plus en plus dans le sens du communisme le vaste mouvement social qui y incline par tant de pentes ; mais une fois engagées dans cette direction, ce sont les forces variées de la vie qui détermineront elles-mêmes, librement, souverainement, leur mouvant équilibre.
+Et pourquoi la société communiste, habile à cultiver toutes la variété des joies, abolirait-elle celle-là? Que notre effort conscient dirige de plus en plus dans le sens du communisme le vaste mouvement social qui y incline par tant de pentes; mais une fois engagées dans cette direction, ce sont les forces variées de la vie qui détermineront elles-mêmes, librement, souverainement, leur mouvant équilibre.
 
-Je ne sais pas quelle conclusion la classe ouvrière du nord tirera des dernières élections, en particulier des élections de Lille. Elle a fait assurément un grand effort de propagande et de combat, et elle a témoigné, dans tout le département, d’une énergie qui se retrouvera aux prochaines batailles. Assurément aussi, les radicaux de Lille sont inexcusables, malgré les attaques violentes dirigées contre eux au premier tour, d’avoir favorisé ou d’avoir permis au second tour la victoire de la réaction cléricale. Enfin, partout la lutte est difficile aux socialistes. Partout ils se heurtent aux traditions persistantes du passé, aux forces égoïstes du présent. Pour toutes les fractions du parti socialiste, pour toutes ses *méthodes*, il y a eu des victoires et des échecs.
+Je ne sais pas quelle conclusion la classe ouvrière du nord tirera des dernières élections, en particulier des élections de Lille. Elle a fait assurément un grand effort de propagande et de combat, et elle a témoigné, dans tout le département, d’une énergie qui se retrouvera aux prochaines batailles. Assurément aussi, les radicaux de Lille sont inexcusables, malgré les attaques violentes dirigées contre eux au premier tour, d’avoir favorisé ou d’avoir permis au second tour la victoire de la réaction cléricale. Enfin, partout la lutte est difficile aux socialistes. Partout ils se heurtent aux traditions persistantes du passé, aux forces égoïstes du présent. Pour toutes les fractions du parti socialiste, pour toutes ses *méthodes*, il y a des victoires et des échecs.
 
-Mais il reste vrai qu’à Lille et dans la région du Nord a éclaté d’une façon déplorable la contradiction de pensée qui perdra le Parti ouvrier français. Il a deux conceptions rigoureusement opposées du mouvement social. De ces deux conceptions opposées dérivent deux tactiques contraires. Le Parti ouvrier français de Lille recourt successivement, et dans un très faible espace de temps, à ces deux tactiques : et comme elles sont inconciliables, il est clair qu’elles se paralysent et qu’elles le paralysent.
+Mais il reste vrai qu’à Lille et dans la région du Nord a éclaté d’une façon déplorable la contradiction de pensée qui perdra le Parti ouvrier français. Il a deux conceptions rigoureusement opposées du mouvement social. De ces deux conceptions opposées dérivent deux tactiques contraires. Le Parti ouvrier français de Lille recourt successivement, et dans un très faible espace de temps, à ces deux tactiques: et comme elles sont inconciliables, il est clair qu’elles se paralysent et qu’elles le paralysent.
 
 D’un côté, le Parti ouvrier français interprète la lutte de classe dans le sens le plus étroit, si nettement répudié par Marx. Il déclare volontiers qu’en dehors du prolétariat proprement dit, toutes les forces sociales ne forment qu’un bloc réactionnaire. Il affecte de ne pas distinguer entre les diverses catégories des classes possédantes et entre les divers partis. Il met sur le même plan, il coud dans le même sac les réactionnaires, les modérés, les radicaux socialistes. Il affirme qu’entre les cléricaux et les démocrates même d’extrême gauche, le peuple ouvrier n’a aucune différence à faire. Et même, comme les radicaux démocrates pourraient surprendre plus aisément, par quelques formules de progrès social, la confiance populaire, c’est eux que l’on dénonce avec le plus de virulence. Voilà un des aspects de la pensée du parti ouvrier français, voilà une de ses tactiques. C’est celle qui a joué à Lille au premier tour de scrutin.
 
-Mais il y a un autre aspect, et il y a une autre tactique. Foncièrement, malgré l’affectation d’intransigeance de classe, les ouvriers socialistes du nord, adhérents au parti ouvrier français, sont républicains, démocrates et anticléricaux. Ils savent que la république est, au moins en France, une force populaire, une condition du progrès ; et ils sentent aussi qu’elle est un commencement de socialisme, et la forme politique du collectivisme. Ils sont démocrates : ils tiennent passionnément à l’égalité des droits politiques, au suffrage universel, à la portion de souveraineté que le peuple peut conquérir dans les municipalités, dans les conseils généraux, au parlement. Enfin, ils veulent arracher à l’Église sa puissance politique, ses privilèges sociaux, sa dotation budgétaire. Ils veulent l’exclure de tous les services publics, de l’enseignement, de l’assistance, et la réduire à être une association privée, jusqu’à ce que le progrès des lumières, l’influence de l’éducation publique laïque et le relèvement social des opprimés aient séché peu à peu des habitudes et des croyances qui ont encore des racines tenaces dans le prolétariat comme dans la bourgeoisie.
+Mais il y a un autre aspect, et il y a une autre tactique. Foncièrement, malgré l’affectation d’intransigeance de classe, les ouvriers socialistes du nord, adhérents au parti ouvrier français, sont républicains, démocrates et anticléricaux. Ils savent que la république est, au moins en France, une force populaire, une condition du progrès; et ils sentent aussi qu’elle est un commencement de socialisme, et la forme politique du collectivisme. Ils sont démocrates: ils tiennent passionnément à l’égalité des droits politiques, au suffrage universel, à la portion de souveraineté que le peuple peut conquérir dans les municipalités, dans les conseils généraux, au parlement. Enfin, ils veulent arracher à l’Église sa puissance politique, ses privilèges sociaux, sa dotation budgétaire. Ils veulent l’exclure de tous les services publics, de l’enseignement, de l’assistance, et la réduire à être une association privée, jusqu’à ce que le progrès des lumières, l’influence de l’éducation publique laïque et le relèvement social des opprimés aient séché peu à peu des habitudes et des croyances qui ont encore des racines tenaces dans le prolétariat comme dans la bourgeoisie.
 
-Parce qu’ils sont républicains, démocrates, anticléricaux, ils ont de grands intérêts communs avec les partis non socialistes qui veulent maintenir la République, développer la démocratie, combattre le privilège de l’Église. Ils font donc nécessairement une différence entre les partis qui soutiennent et les partis qui combattent la République, la démocratie, le libre examen. Et voilà la seconde conception sociale du Parti ouvrier. Cette conception, il l’a affirmée par ses actes, lorsqu’il a conquis la municipalité de Lille avec le concours des radicaux. Il l’affirmait encore au second tour de scrutin lorsqu’il faisait appel, au nom de la République, aux suffrages des radicaux mis en minorité au premier tour. À Bordeaux, le Parti ouvrier français parle de « solidarité républicaine ». À Lille, il fait appel au second tour aux vrais républicains. Mais que signifie cette solidarité ? Et en vertu de quel droit fait-on cet appel ?
+Parce qu’ils sont républicains, démocrates, anticléricaux, ils ont de grands intérêts communs avec les partis non socialistes qui veulent maintenir la République, développer la démocratie, combattre le privilège de l’Église. Ils font donc nécessairement une différence entre les partis qui soutiennent et les partis qui combattent la République, la démocratie, le libre examen. Et voilà la seconde conception sociale du Parti ouvrier. Cette conception, il l’a affirmée par ses actes, lorsqu’il a conquis la municipalité de Lille avec le concours des radicaux. Il l’affirmait encore au second tour de scrutin lorsqu’il faisait appel, au nom de la République, aux suffrages des radicaux mis en minorité au premier tour. À Bordeaux, le Parti ouvrier français parle de « solidarité républicaine ». À Lille, il fait appel au second tour aux vrais républicains. Mais que signifie cette solidarité? Et en vertu de quel droit fait-on cet appel?
 
-Si la lutte de classe a le sens que lui donne parfois le Parti ouvrier français, s’il est vrai qu’en dehors du prolétariat socialiste, tout est *au même degré* réaction et ténèbres, quel lien peut subsister entre les socialistes et les républicains démocrates bourgeois ? Vous disiez tout à l’heure qu’entre la classe prolétarienne et tous les autres partis indistinctement, il y a une opposition absolue et uniforme. Que signifie donc dès lors la « solidarité » brusquement affirmée ? La solidarité suppose qu’il y a des intérêts communs à défendre. La « solidarité républicaine » suppose que la République vaut d’être défendue par les démocrates des deux classes, de la classe ouvrière et de la classe bourgeoise. Ainsi, tantôt vous creusez un abîme infranchissable et vertigineux ; tantôt, vous jetez un pont sur cet abîme. En ces manœuvres contradictoires se perd peu à peu toute la force vive d’un parti.
+Si la lutte de classe a le sens que lui donne parfois le Parti ouvrier français, s’il est vrai qu’en dehors du prolétariat socialiste, tout est *au même degré* réaction et ténèbres, quel lien peut subsister entre les socialistes et les républicains démocrates bourgeois? Vous disiez tout à l’heure qu’entre la classe prolétarienne et tous les autres partis indistinctement, il y a une opposition absolue et uniforme. Que signifie donc dès lors la « solidarité » brusquement affirmée? La solidarité suppose qu’il y a des intérêts communs à défendre. La « solidarité républicaine » suppose que la République vaut d’être défendue par les démocrates des deux classes, de la classe ouvrière et de la classe bourgeoise. Ainsi, tantôt vous creusez un abîme infranchissable et vertigineux; tantôt, vous jetez un pont sur cet abîme. En ces manœuvres contradictoires se perd peu à peu toute la force vive d’un parti.
 
-J’ai demandé en vertu de quel principe le Parti ouvrier français faisait appel, au second tour, aux républicains radicaux. Comment les discerne-t-il tout à coup dans la mêlée, après avoir déclaré qu’ils sont indiscernables, confondus dans la même armée ennemie ? Et quel titre peut-il invoquer auprès d’eux pour les appeler à lui ? Il leur dit : « Vous êtes républicains et démocrates ; nous sommes républicains et démocrates : vous devez voter pour nous. » Mais les radicaux et républicains bourgeois ne peuvent voter pour des socialistes qu’en faisant abstraction des antagonismes de classe. Ils ne le peuvent qu’en se détachant du bloc réactionnaire. Ils ne le peuvent qu’en proclamant qu’il y a plus d’intérêt pour eux, républicains bourgeois, à voter pour des républicains, même socialistes, que pour des non-républicains, même bourgeois. Les socialistes qui les appellent supposent donc que la masse bourgeoise peut se dissocier. Ils supposent donc que chez une partie au moins des républicains bourgeois l’antagonisme de classe, si puissant qu’il soit, peut être vaincu par des forces d’union, par la solidarité républicaine et démocratique. Ou l’appel du second tour lancé par le Parti ouvrier français n’a pas de sens, ou il a celui-là. Et il est absolument contraire aux formules intransigeantes du premier tour.
+J’ai demandé en vertu de quel principe le Parti ouvrier français faisait appel, au second tour, aux républicains radicaux. Comment les discerne-t-il tout à coup dans la mêlée, après avoir déclaré qu’ils sont indiscernables, confondus dans la même armée ennemie? Et quel titre peut-il invoquer auprès d’eux pour les appeler à lui? Il leur dit: « Vous êtes républicains et démocrates; nous sommes républicains et démocrates: vous devez voter pour nous. » Mais les radicaux et républicains bourgeois ne peuvent voter pour des socialistes qu’en faisant abstraction des antagonismes de classe. Ils ne le peuvent qu’en se détachant du bloc réactionnaire. Ils ne le peuvent qu’en proclamant qu’il y a plus d’intérêt pour eux, républicains bourgeois, à voter pour des républicains, même socialistes, que pour des non-républicains, même bourgeois. Les socialistes qui les appellent supposent donc que la masse bourgeoise peut se dissocier. Ils supposent donc que chez une partie au moins des républicains bourgeois l’antagonisme de classe, si puissant qu’il soit, peut être vaincu par des forces d’union, par la solidarité républicaine et démocratique. Ou l’appel du second tour lancé par le Parti ouvrier français n’a pas de sens, ou il a celui-là. Et il est absolument contraire aux formules intransigeantes du premier tour.
 
-Encore une fois, ces contradictions n’excusent pas l’attitude des radicaux lillois, qui, eux, ont commis la contradiction suprême : celle d’affirmer la République, et de la livrer ensuite, en ressentiment de quelques outrages électoraux, les plus vains de tous.
+Encore une fois, ces contradictions n’excusent pas l’attitude des radicaux lillois, qui, eux, ont commis la contradiction suprême: celle d’affirmer la République, et de la livrer ensuite, en ressentiment de quelques outrages électoraux, les plus vains de tous.
 
 Mais je dis que les effets déconcertants de ces conceptions contradictoires du Parti ouvrier français iront s’aggravant. Je dis que la classe ouvrière ira de défaite en défaite si elle ne met pas plus d’unité dans sa tactique, si dans l’espace d’une quinzaine et en vertu de théories absolument inconciliables, elle proclame qu’entre les démocrates bourgeois et les cléricaux il n’y a aucune différence, pour faire aussitôt appel aux démocrates contre les cléricaux, et si tantôt elle resserre la lutte de classe jusqu’à l’intransigeance la plus sectaire, et tantôt l’assouplit et l’élargit jusqu’au concept bienveillant et accueillant de solidarité républicaine.
 
 Mais il y a une autre contradiction de méthode qui arrêterait toute croissance, toute action du prolétariat.
 
-La classe ouvrière veut des réformes, j’entends des réformes prochaines, immédiates. Elle en a besoin pour vivre, pour ne pas fléchir sous le fardeau, pour aller d’un pas plus ferme vers l’avenir. Elle a besoin de lois d’assistance ; elle a besoin que sa force de travail soit protégée ; elle a besoin que la loi ramène à des proportions humaines la durée quotidienne du labeur. Elle a besoin que l’âge d’admission des enfants dans les usines soit élevé, pour qu’ils puissent recevoir une assez haute culture. Elle a besoin que l’inspection du travail soit plus sérieusement soumise à l’action du prolétariat lui-même. Elle a besoin que la puissance sociale et légale des syndicats soit renforcée, qu’ils deviennent de plus en plus les représentants de droit de la classe ouvrière. Elle a besoin que des institutions sociales d’assurance contre la maladie, la vieillesse, l’invalidité, le chômage, soient établies. Elle a besoin d’être introduite peu à peu, *comme classe* dans la puissance économique, dans la propriété. Et elle aura un grand intérêt si les services capitalistes, mines, chemins de fer, sont nationalisés, à obtenir que les syndicats ouvriers de ces grandes corporations soient associés à l’état dans la gestion et le contrôle des nouveaux services publics. Elle aura un grand intérêt à être représentée de droit, par ses syndicats, dans les conseils d’administration des six mille sociétés anonymes, civiles ou commerciales qui détiennent le grand commerce et la grande industrie. Elle aura intérêt à exiger, à obtenir qu’une part des actions soit réservée de droit, en toute entreprise, aux organisations ouvrières, afin qu’ainsi, peu à peu, le prolétariat pénètre au centre même de la puissance capitaliste, et que la société nouvelle sorte de l’ancienne avec cette force irrésistible « d’évolution révolutionnaire » dont a parlé Marx.
+La classe ouvrière veut des réformes, j’entends des réformes prochaines, immédiates. Elle en a besoin pour vivre, pour ne pas fléchir sous le fardeau, pour aller d’un pas plus ferme vers l’avenir. Elle a besoin de lois d’assistance; elle a besoin que sa force de travail soit protégée; elle a besoin que la loi ramène à des proportions humaines la durée quotidienne du labeur. Elle a besoin que l’âge d’admission des enfants dans les usines soit élevé, pour qu’ils puissent recevoir une assez haute culture. Elle a besoin que l’inspection du travail soit plus sérieusement soumise à l’action du prolétariat lui-même. Elle a besoin que la puissance sociale et légale des syndicats soit renforcée, qu’ils deviennent de plus en plus les représentants de droit de la classe ouvrière. Elle a besoin que des institutions sociales d’assurance contre la maladie, la vieillesse, l’invalidité, le chômage, soient établies. Elle a besoin d’être introduite peu à peu, *comme classe* dans la puissance économique, dans la propriété. Et elle aura un grand intérêt si les services capitalistes, mines, chemins de fer, sont nationalisés, à obtenir que les syndicats ouvriers de ces grandes corporations soient associés à l’état dans la gestion et le contrôle des nouveaux services publics. Elle aura un grand intérêt à être représentée de droit, par ses syndicats, dans les conseils d’administration des six mille sociétés anonymes, civiles ou commerciales qui détiennent le grand commerce et la grande industrie. Elle aura intérêt à exiger, à obtenir qu’une part des actions soit réservée de droit, en toute entreprise, aux organisations ouvrières, afin qu’ainsi, peu à peu, le prolétariat pénètre au centre même de la puissance capitaliste, et que la société nouvelle sorte de l’ancienne avec cette force irrésistible « d’évolution révolutionnaire » dont a parlé Marx.
 
-En tous sens s’ouvrent des réformes que la classe ouvrière peut et doit conquérir, des voies où elle doit et peut marcher. Et cela, le Parti ouvrier français ne le méconnaît pas. Il le méconnaît si peu qu’il a accepté, dans l’intérêt immédiat du prolétariat, d’administrer les intérêts municipaux, c’est-à-dire une parcelle de la société d’aujourd’hui. Dans la récente campagne électorale, quand les élus du Parti rappelaient leur activité qui, en effet, fut admirable, à la fois minutieuse et enthousiaste, que de titres ils invoquaient où la « lutte de classe » s’effaçait devant les nécessités administratives ! C’étaient des rues percées, c’est-à-dire tout à la fois plus d’air et de santé pour tous les citoyens, bourgeois et propriétaires, — et une plus-value pour les propriétaires d’immeubles. C’étaient des contrats avec les propriétaires de rues privées transformées en voies municipales, contrats utiles à la ville dont ils agrandissaient le domaine, et utiles aussi aux propriétaires déchargés des soins d’éclairage, d’entretien et de propreté. C’étaient aussi des paroles émues sur « notre chère cité », non plus la cité dolente et âpre du travail se heurtant, dans l’enceinte des mêmes murailles, à la cité jouisseuse et superbe du capital, mais la cité totale, enveloppant dans sa croissance solidaire les classes antagonistes. Donc, le Parti ouvrier français a le souci des réformes : il veut que le prolétariat agisse, que le socialisme crée, même dans la société d’aujourd’hui, même au prix de toutes les solidarités confuses, de toutes les responsabilités indéterminables qu’entraîne aujourd’hui l’action.
+En tous sens s’ouvrent des réformes que la classe ouvrière peut et doit conquérir, des voies où elle doit et peut marcher. Et cela, le Parti ouvrier français ne le méconnaît pas. Il le méconnaît si peu qu’il a accepté, dans l’intérêt immédiat du prolétariat, d’administrer les intérêts municipaux, c’est-à-dire une parcelle de la société d’aujourd’hui. Dans la récente campagne électorale, quand les élus du Parti rappelaient leur activité qui, en effet, fut admirable, à la fois minutieuse et enthousiaste, que de titres ils invoquaient où la « lutte de classe » s’effaçait devant les nécessités administratives! C’étaient des rues percées, c’est-à-dire tout à la fois plus d’air et de santé pour tous les citoyens, bourgeois et propriétaires, — et une plus-value pour les propriétaires d’immeubles. C’étaient des contrats avec les propriétaires de rues privées transformées en voies municipales, contrats utiles à la ville dont ils agrandissaient le domaine, et utiles aussi aux propriétaires déchargés des soins d’éclairage, d’entretien et de propreté. C’étaient aussi des paroles émues sur « notre chère cité  non plus la cité dolente et âpre du travail se heurtant, dans l’enceinte des mêmes murailles, à la cité jouisseuse et superbe du capital, mais la cité totale, enveloppant dans sa croissance solidaire les classes antagonistes. Donc, le Parti ouvrier français a le souci des réformes: il veut que le prolétariat agisse, que le socialisme crée, même dans la société d’aujourd’hui, même au prix de toutes les solidarités confuses, de toutes les responsabilités indéterminables qu’entraîne aujourd’hui l’action.
 
-Mais tout ce programme de réformes, comment se réalisera-t-il ? Il ne peut se réaliser que par l’influence grandissante du Parti socialiste et de la classe ouvrière sur l’ensemble de la nation. Et cette influence, comment se marquera-t-elle ? Par l’adhésion plus ou moins spontanée de la majorité de la nation aux réformes successivement proposées par la minorité socialiste. Mais déclarer d’avance qu’en dehors du socialisme toute la nation ne sera qu’un bloc réfractaire et hostile, rejeter de la même façon et condamner au même degré les catégories bourgeoises qui toujours résistent aux réformes, et celles qui sont susceptibles peu à peu de les adopter, c’est tuer en germe toute réforme, c’est proclamer qu’avant l’heure de la révolution totale, les semences utiles ne seront point recueillies par la terre, mais dévorées toutes par les oiseaux pillards ; c’est briser l’espoir du prolétariat ; c’est appesantir sur lui, jusqu’au problématique sursaut des soudaines délivrances, la charge des jours présents. C’est proclamer soi-même l’impossibilité des réformes qu’on annonce et qu’on demande.
+Mais tout ce programme de réformes, comment se réalisera-t-il? Il ne peut se réaliser que par l’influence grandissante du Parti socialiste et de la classe ouvrière sur l’ensemble de la nation. Et cette influence, comment se marquera-t-elle? Par l’adhésion plus ou moins spontanée de la majorité de la nation aux réformes successivement proposées par la minorité socialiste. Mais déclarer d’avance qu’en dehors du socialisme toute la nation ne sera qu’un bloc réfractaire et hostile, rejeter de la même façon et condamner au même degré les catégories bourgeoises qui toujours résistent aux réformes, et celles qui sont susceptibles peu à peu de les adopter, c’est tuer en germe toute réforme, c’est proclamer qu’avant l’heure de la révolution totale, les semences utiles ne seront point recueillies par la terre, mais dévorées toutes par les oiseaux pillards; c’est briser l’espoir du prolétariat; c’est appesantir sur lui, jusqu’au problématique sursaut des soudaines délivrances, la charge des jours présents. C’est proclamer soi-même l’impossibilité des réformes qu’on annonce et qu’on demande.
 
 Et voilà encore une terrible contradiction.
 
@@ -445,30 +445,30 @@ Mais un jour vint où il dut rompre. Et le
 septembre 1850 il se retira du comité central de
 Londres. Il tint à justifier cette scission par une
 déclaration écrite, insérée au procès-verbal du
-comité, et qui disait ceci :
+comité, et qui disait ceci:
 
 minorité en met une dogmatique, à la place de
 l’interprétation matérialiste, l’idéaliste. Au
 lieu que ce soient les rapports véritables, c’est
 la *simple volonté* qui devient le moteur de la
-révolution. Tandis que nous disons aux ouvriers :
+révolution. Tandis que nous disons aux ouvriers:
 il vous faut traverser quinze, vingt et cinquante
 ans de guerres civiles et de guerres entre
 peuples non seulement pour changer les rapports
 existants, mais pour vous changer vous-mêmes
 et vous rendre capables du pouvoir politique,
-vous dites au contraire : nous devons arriver de
+vous dites au contraire: nous devons arriver de
 suite au pouvoir, ou alors aller nous
 coucher. Alors que nous attirons l'attention des ouvriers allemands sur l'état informe du prolétariat d'Allemagne, vous flattez de la façon la plus lourde le sentiment national et le préjugé corporatif des artisans allemands, ce qui, sans nul doute, est plus populaire. De même que les démocrates avaient fait du mot *peuple* un être sacré, vous en faites autant du mot *prolétariat*. Comme les démocrates, vous substituez à l'évolution révolutionnaire la phrase révolutionnaire.
 
-Je le répète : c’est Marx qui parle. Cinquante
-ans ! Le délai que Marx assignait aux ouvriers non
+Je le répète: c’est Marx qui parle. Cinquante
+ans! Le délai que Marx assignait aux ouvriers non
 pour instaurer le communisme, mais pour se rendre
 capables eux-mêmes du pouvoir politique, vient
 d’expirer. à quelles guerres extérieures et civiles
-pensait Marx en 1850 ? Par quelles épreuves
+pensait Marx en 1850? Par quelles épreuves
 pensait-il que devaient passer le prolétariat et l’Europe pour que la classe ouvrière arrivât à la
-maturité politique ? Il comptait sans doute parmi
+maturité politique? Il comptait sans doute parmi
 les guerres extérieures nécessaires la lutte de
 l’Europe occidentale contre la Russie. C’était la
 Russie qui venait d’être en Europe le grand
@@ -476,7 +476,7 @@ instrument de la réaction, et il paraissait à Marx
 que toute révolution serait impossible dans
 l’Europe occidentale tant que le tsarisme ne serait
 pas brisé. Aussi, dès que la guerre de Crimée
-éclata, il la salua avec joie : dans ses lettres
+éclata, il la salua avec joie: dans ses lettres
 sur la question d’Orient, il gourmande, il presse
 le ministère libéral anglais, trop lent, selon lui,
 à engager la bataille. La Russie ne fut pas
@@ -506,7 +506,7 @@ déploya il y a un demi-siècle. En tout cas, tout ce
 que le tsarisme a voulu empêcher en 1848 s’est
 accompli, ou du moins est bien près de s’accomplir.
 La Russie avait voulu maintenir l’Italie morcelée
-sous le joug de l’étranger : elle est libérée de
+sous le joug de l’étranger: elle est libérée de
 l’Autriche et libérée du pape. Et la classe
 ouvrière devient une des principales forces de vie
 de la nation ressuscitée. — la Russie avait voulu
@@ -526,8 +526,8 @@ du suffrage universel et du socialisme. Parce que
 Bismarck unifiait l’Allemagne au profit de la
 Prusse monarchiste et absolutiste, le tsarisme a
 secondé deux fois les desseins de Bismarck par
-une neutralité complaisante : une fois en 1866,
-contre l’Autriche ; une fois en 1870, contre la
+une neutralité complaisante: une fois en 1866,
+contre l’Autriche; une fois en 1870, contre la
 France. Or, Bismarck, malgré tout, ne pouvait
 lier l’Allemagne que par le lien du suffrage
 universel, et il dut en faire comme l’anneau d’or
@@ -551,11 +551,11 @@ profondes que des révolutions, et pourtant, hors
 des érudits, nul n’en connaît la date précise. C’est comme une floraison silencieuse. — le rôle nouveau des classes ouvrière
 et paysanne dans la vie nationale et gouvernementale
 italienne est aussi l’équivalent paisible d’une
-révolution : c’est un autre *risorgimento*. — et
+révolution: c’est un autre *risorgimento*. — et
 de même la poussée multiple du prolétariat français.
 Le tsarisme peut contrarier et amortir tous ces
 mouvements. Il peut, par sa diplomatie à la fois
-subtile et pesante, envelopper les gouvernements ;
+subtile et pesante, envelopper les gouvernements;
 mais il ne peut plus arrêter l’irrésistible
 mouvement des nations vers l’entière démocratie, et
 l’irrésistible croissance de la classe ouvrière
@@ -580,10 +580,10 @@ même de la croissance démocratique et socialiste qui partout en Europe
 s’affirme sans crise de guerre.
 
 A quelles autres guerres extérieures ou civiles
-pensait Marx ? Sans doute aux guerres qui
+pensait Marx? Sans doute aux guerres qui
 affranchiraient l’Italie, et qui unifieraient
 l’Allemagne, que la débile bourgeoisie libérale
-du parlement de Francfort n’avait pas su lier par
+du parlement de Francfort n’avait pas lier par
 la liberté. Peut-être aussi avait-il accueilli la
 pensée de Engels, qui, voyageant en France après
 les journées de juin 1848, écrivait dans ses notes
@@ -594,7 +594,7 @@ il n’en sera pas ainsi. La commune de 1871 a été
 une héroïque lutte des ouvriers républicains et en
 partie socialistes de Paris contre les *ruraux*.
 mais ces ruraux, ce n’étaient pas les petits
-propriétaires paysans ; c’étaient les hobereaux
+propriétaires paysans; c’étaient les hobereaux
 sortis de leurs gentilhommières. La démocratie des
 petits propriétaires paysans n’a pas tardé à
 accepter, à acclamer la république. Ce n’est pas
@@ -632,7 +632,7 @@ faut le concours, l’adhésion de la majorité, de
 l’immense majorité.
 
 Il se peut — c’est un difficile problème d’histoire
-à résoudre — qu’il y ait eu des périodes et des
+à résoudre — qu’il y ait des périodes et des
 pays où la multitude humaine était si passive, si
 inconsistante, que les volontés fortes de quelques
 individus ou de quelques groupes la façonnaient.
@@ -656,14 +656,14 @@ n’a éclaté, elle n’a abouti que parce que l’immense
 majorité, on peut dire la presque totalité du
 pays, la voulait. Qu’étaient les privilégiés, haut
 clergé et noblesse, en face du Tiers-État des
-villes et des campagnes ? Un atome : deux cent
-mille contre vingt-quatre millions ; un centième.
+villes et des campagnes? Un atome: deux cent
+mille contre vingt-quatre millions; un centième.
 Et encore le clergé et la noblesse étaient
 divisés, incertains. Il y a des privilèges que les
 privilégiés renoncent à défendre. Eux-mêmes
 doutaient de leurs droits, de leurs forces, et
 semblaient se livrer au courant. La royauté même,
-acculée, avait dû convoquer les États-Généraux,
+acculée, avait convoquer les États-Généraux,
 tout en les redoutant.
 
 Quant au Tiers-État, au peuple immense des
@@ -676,7 +676,7 @@ fallait mettre un terme. Les cahiers s’accordent à
 proclamer que l’homme et le citoyen ont des droits,
 et qu’aucune prescription ne peut être invoquée contre ces titres
 immortels. Et ils précisent les garanties
-nécessaires : le roi continuera à être le chef du
+nécessaires: le roi continuera à être le chef du
 pouvoir exécutif, mais c’est la volonté nationale
 qui fera la loi. Cette volonté souveraine de la
 nation sera exprimée par des assemblées nationales
@@ -701,7 +701,7 @@ entreprendre tel ou tel métier, créer telle ou
 telle industrie, ouvrir telle ou telle boutique, il
 ne sera plus besoin ni d’une permission
 corporative, ni d’une autorisation gouvernementale.
-Les corporations elles-mêmes cesseront d’exister ;
+Les corporations elles-mêmes cesseront d’exister;
 et par conséquent l’Église, maintenue comme service
 public, cessera d’avoir une existence corporative.
 Elle cessera par conséquent d’avoir une propriété
@@ -713,16 +713,16 @@ sous réserve par celle-ci d’assurer le culte,
 l’enseignement et l’assistance.
 
 Il est bien vrai que la révolution dut recourir à
-la force : 14 juillet, 10 août : prise de la
+la force: 14 juillet, 10 août: prise de la
 Bastille, prise des Tuileries. Mais, qu’on le note
 bien, la force n’était pas employée à imposer à la
 nation la volonté d’une minorité. La force était
 employée au contraire à assurer contre les
 tentatives factieuses d’une minorité la volonté
 presque unanime de la nation. Au 14 juillet, c’est
-contre le coup d’état royal ; au 10 août, c’est
+contre le coup d’état royal; au 10 août, c’est
 contre la trahison royale que marche le peuple de
-Paris ; et il portait en lui le droit, la volonté
+Paris; et il portait en lui le droit, la volonté
 de la nation. Ce n’était pas par soumission
 stupide au fait accompli que toute la France
 acclamait le 14 juillet, que presque toute la
@@ -796,7 +796,7 @@ le souvenir des états-généraux de 1614, malgré ce
 long intervalle de deux siècles de despotisme,
 était pour les hommes de 1789 une lumière et une
 force. La nation n’allait pas tout à fait vers
-l’inconnu ; elle renouait, en l’agrandissant, en
+l’inconnu; elle renouait, en l’agrandissant, en
 l’adaptant aux conditions modernes, une tradition
 
 Et au point de vue économique, agricole et
@@ -829,7 +829,7 @@ après avoir été des institutions féodales, étaient
 devenues, pour une large part, des institutions
 d’État. Pourquoi l’Église n’aurait-elle pas cessé
 d’être une caste corporative pour devenir une
-institution d’état ? De plus, dès l’ancien
+institution d’état? De plus, dès l’ancien
 régime, la propriété d’Église était considérée
 comme une propriété d’un ordre spécial et soumise
 à l’État. La révolution a invoqué souverainement
@@ -857,7 +857,7 @@ s’accomplira la Révolution socialiste. Qui compterait
 sur la faveur des événements ou les hasards de la
 force, et renoncerait à amener à nos idées
 l’immense majorité des citoyens, renoncerait par
-là même à transformer l’ordre social.
+même à transformer l’ordre social.
 
 le 7 août, premier anniversaire de la mort de
 Liebknecht, le *vorwaerts* a publié de lui
@@ -870,7 +870,7 @@ comme beaucoup d’entre eux, il avait l’ambition de
 fixer dans une oeuvre méditée et durable l’essentiel
 de sa pensée. Ses amis ont trouvé dans ses papiers
 un manuscrit incomplet, où il avait commencé, en
-1881, à répondre à la grande question : *comment se réalisera le socialisme.* cette œuvre
+1881, à répondre à la grande question: *comment se réalisera le socialisme.* cette œuvre
 atteste une admirable vaillance, car c’est au
 moment même où la loi d’état de siège et la
 puissance encore intacte de Bismarck pesaient le
@@ -880,16 +880,16 @@ triompherait, mais comment il triompherait. Et
 cette oeuvre atteste en même temps un sens vif et
 net des difficultés, des transitions et des
 
-Voici un fragment de première importance :
+Voici un fragment de première importance:
 
-*Réalisation du socialisme ; quelles mesures devra* *prendre le parti socialiste si, dans un avenir prochain, il conquiert une influence suffisante sur la législation ?*
+*Réalisation du socialisme; quelles mesures devra* *prendre le parti socialiste si, dans un avenir prochain, il conquiert une influence suffisante sur la législation
 
 C’est, écrit Liebknecht, une question qui est
 posée et à laquelle je veux répondre. Mais pour
 bien répondre à une question, il faut d’abord la
 bien poser. Or, la question précédente n’est pas
 bien posée, elle n’est pas du moins assez
-précise. Il va de soi, en effet, que les mesures
+précise. Il de soi, en effet, que les mesures
 à prendre dépendent essentiellement des
 circonstances dans lesquelles le parti socialiste
 conquiert une influence appréciable sur la
@@ -920,24 +920,24 @@ guère y compter, que dans les hautes sphères on
 comprendra le danger et qu’on essaiera, par
 l’entrée en scène de réformes intelligentes, de
 prévenir une catastrophe autrement inévitable. *Dans ce cas notre parti serait nécessairement appelé à participer au gouvernement et particulièrement chargé d’améliorer les conditions du travail.* Nous n’entrerons pas plus
-avant dans les possibilités ; celles que nous
+avant dans les possibilités; celles que nous
 avons pressenties suffisent à montrer que le
 mode de notre action dépendrait des circonstances
 dans lesquelles nous aurions conquis « une
 
 Mais qu’entend-on par influence appréciable ou
-suffisante ? S’agit-il d’une influence exclusive ?
+suffisante? S’agit-il d’une influence exclusive?
 de la possibilité pour nous d’appliquer nos
 principes sans autres limitations que celles que
-nous imposerait l’état économique lui-même ?
+nous imposerait l’état économique lui-même?
 cela signifie-t-il en d’autres termes que nous
-aurons en main le pouvoir gouvernemental ?
+aurons en main le pouvoir gouvernemental?
 
 ou cela signifie-t-il simplement que nous aurons
 de l’influence sur un gouvernement formé en
 entier *ou pour une très grande part* par les
 
-En ce dernier cas nous devrions, cela va de soi,
+En ce dernier cas nous devrions, cela de soi,
 agir autrement que dans le premier.
 
 Et à l’intérieur de chacune des possibilités
@@ -980,9 +980,9 @@ français. Mais Liebknecht n’assure point qu’il
 aura tout le pouvoir, tout le gouvernement. Il est
 possible qu’il soit tenu d’en réserver une part à
 la démocratie bourgeoise. Que devient alors le
-gouvernement *de classe ?*
+gouvernement *de classe
 
-Mais il y a une seconde hypothèse : c’est celle où
+Mais il y a une seconde hypothèse: c’est celle où
 les pouvoirs dirigeants d’Allemagne, sentant le danger, préviendront la catastrophe par une
 politique de réformes.
 
@@ -1003,15 +1003,15 @@ lendemain même de la chute violente de l’empire, il
 ne pourra saisir tout entier. Non, c’est seulement
 une part du pouvoir, une part du gouvernement que
 les *hautes régions* confieront au parti
-socialiste. Et aux yeux de Liebknecht il y a là
+socialiste. Et aux yeux de Liebknecht il y a
 une nécessité absolue. Pour que la politique de
 réformes soit possible, pour qu’elle soit efficace,
 pour qu’elle inspire confiance au peuple allemand,
 il faudra que le Parti socialiste contribue à la
 diriger. Il faudra qu’il soit représenté au
-gouvernement et qu’il y agisse. Liebknecht va
+gouvernement et qu’il y agisse. Liebknecht
 jusqu’à désigner, ou à peu près, le ministère qu’il
-devra occuper : et cela ressemble fort au ministère
+devra occuper: et cela ressemble fort au ministère
 du travail proposé par le citoyen Vaillant ou au
 ministère du commerce occupé par le citoyen Millerand. Et Liebknecht dit avec raison qu’il y
 aura des degrés, des nuances, des modalités sans
@@ -1027,7 +1027,7 @@ sera plus ou moins décisive et les réformes
 elles-mêmes auront une portée socialiste plus ou
 moins grande, un caractère prolétarien plus ou
 
-Jamais vue plus large ne fut jetée sur l’avenir ;
+Jamais vue plus large ne fut jetée sur l’avenir;
 et je considère la publication de ces pages
 posthumes de Liebknecht comme un événement
 capital dans la vie politique et sociale de
@@ -1041,7 +1041,7 @@ coalition de presque tous les partis acharnés
 contre le socialisme, Liebknecht, en sa pensée
 hardie et sereine, pressent que les socialistes seront appelés au
 pouvoir, que les empereurs mêmes seront contraints
-de les y appeler : et les socialistes ne se
+de les y appeler: et les socialistes ne se
 refuseront pas à cette revanche partielle, ils ne
 se refuseront pas à cette oeuvre partielle. Prêts
 à tirer le plus large parti de la révolution si
@@ -1066,10 +1066,10 @@ pour les événements qui en étaient la suite.
 Presque seul dans la démocratie socialiste
 allemande, il avait mal jugé le fond même de
 l’affaire, et il en avait méconnu le sens politique
-et social : dès qu’il était engagé dans une pensée,
+et social: dès qu’il était engagé dans une pensée,
 dans une voie, il y persévérait avec une
 inflexibilité que son isolement même aggravait. Plus il était seul, plus
-il s’obstinait à avoir raison ; c’était l’envers
+il s’obstinait à avoir raison; c’était l’envers
 inévitable de ses qualités souveraines de fermeté,
 d’élan et de confiance. Donc tout ce qui se
 rattachait par un lien historique à une agitation
@@ -1080,7 +1080,7 @@ qui l’irritaient, il ne reconnut pas, dans la
 marche des choses, sa propre pensée.
 
 Essaiera-t-on d’en diminuer la valeur en disant
-qu’il n’avait point publié son oeuvre ? Pris par le
+qu’il n’avait point publié son oeuvre? Pris par le
 tourbillon de l’action, surchargé des tâches
 quotidiennes, il ne l’avait point achevée. Mais il
 ne l’a ni détruite ni désavouée. Peut-être avait-il
@@ -1108,7 +1108,7 @@ demeura à l’état d’opposition violente et
 irréductible. A quoi bon alors tracer ce programme
 d’action, de réalisation, en un temps qui restait
 un temps de combat à outrance, défensif et
-offensif ? Par là s’explique sans doute que
+offensif? Par s’explique sans doute que
 Liebknecht n’ait pas produit à la lumière cette
 oeuvre si importante, qui révèle tout un grand
 aspect de sa pensée. Je l’avoue, en lisant ces
@@ -1116,8 +1116,8 @@ lignes si nettes, si fortes, je me prenais à
 regretter qu’elles n’eussent pas été connues du
 congrès international de Paris de 1900. Il a
 acclamé avec une sorte de piété la grande mémoire
-de Liebknecht ; peut-être quelques âpres paroles
-auraient été adoucies si l’on avait su qu’elles
+de Liebknecht; peut-être quelques âpres paroles
+auraient été adoucies si l’on avait qu’elles
 frappaient Liebknecht lui-même.
 
 Au demeurant, c’est toute la tactique du parti que
@@ -1125,20 +1125,20 @@ Liebknecht considère comme nécessairement
 contingente et variable. Jamais ce qu’on appelle
 depuis quelque temps, avec une intention blessante,
 *l’opportunisme socialiste*, n’a été plus
-énergiquement formulé. Je traduis :
+énergiquement formulé. Je traduis:
 
 Nous sommes arrivés maintenant à la fin des
 considérations générales. Avant d’entrer dans
 les points de détail, résumons brièvement ce qui
 a été dit.
 
-Nous avons vu qu’il est impossible de tracer
+Nous avons qu’il est impossible de tracer
 d’avance à notre parti une tactique valable pour
 tous les cas. La tactique se détermine d’après
 les circonstances. L’intérêt du parti forme
 l’unique loi, l’unique règle.
 
-Nous avons vu que les buts du Parti doivent être
+Nous avons que les buts du Parti doivent être
 entièrement distingués des moyens qui devront
 être employés pour atteindre ces buts.
 
@@ -1149,7 +1149,7 @@ d’un perfectionnement du programme. Au contraire,
 les moyens de combat et l’usage qui en est fait
 peuvent changer et doivent changer.
 
-Nous avons vu que le parti, pour être capable du
+Nous avons que le parti, pour être capable du
 plus haut degré possible d’organisation efficace
 et d’action, doit avoir avant toutes choses une
 claire notion de l’essence de notre mouvement, et
@@ -1168,7 +1168,7 @@ de tactique sont des questions pratiques, et
 elles doivent être absolument distinguées des
 questions de principes.
 
-Nous avons vu en particulier qu’il est
+Nous avons en particulier qu’il est
 absolument injustifié de tenir la tactique de la
 force pour la seule tactique révolutionnaire, et
 de déclarer mauvais révolutionnaire celui qui
@@ -1186,7 +1186,7 @@ cachent seulement le défaut de clarté et de
 Voilà de grands enseignements. Mais si les
 questions de tactique sont à ce point secondaires,
 quel obstacle s’oppose à la large unité du
-socialisme ? Sur le but, sur la réalisation du
+socialisme? Sur le but, sur la réalisation du
 socialisme, sur la nécessité d’une organisation
 sociale de la propriété en vue de supprimer tout
 prélèvement sur le travail, et d’assurer le plein
@@ -1239,7 +1239,7 @@ risque d’être contre-révolutionnaire, si nous
 pouvons et devons l’emporter par la propagande,
 l’organisation, la pensée claire et le maniement
 vigoureux de la légalité, il ne suffit pas de
-répéter le propos de Liebknecht : il faut
+répéter le propos de Liebknecht: il faut
 l’appliquer avec méthode, avec constance. Ceux qui
 parlent alternativement du bulletin de vote et du
 fusil, ceux qui, selon la faveur ou la défaveur
@@ -1255,7 +1255,7 @@ appels à la légalité républicaine, par notre pratique constante du suffrage 
 l’instinct de révolte et la tradition du coup de
 main du révolutionnarisme classique. Par nos appels
 intermittents et de pure rhétorique à la force,
-« au fusil », nous affaiblissons nos prises sur le
+« au fusil  nous affaiblissons nos prises sur le
 suffrage universel. Il faudra sans doute prendre un
 parti et nous demander s’il est utile de marquer de
 quelques grains de poudre, qui d’ailleurs ne
@@ -1263,12 +1263,12 @@ s’enflamment pas, les bulletins que, légalement,
 nous mettons et nous appelons dans l’urne.
 
 Avons-nous besoin de la majorité, et pouvons-nous
-la conquérir ? Voilà le problème. Si oui, l’appel
+la conquérir? Voilà le problème. Si oui, l’appel
 à la force devient, en effet, comme dit Liebknecht,
 
-Or, Liebknecht dit : oui.
+Or, Liebknecht dit: oui.
 
-Je traduis encore :
+Je traduis encore:
 
 Nous avons fait remarquer enfin que le parti,
 pour pouvoir réaliser les idées socialistes, doit
@@ -1286,7 +1286,7 @@ que nous devons employer toute notre énergie à
 éclairer cette majorité et à la gagner à nous.
 
 Ainsi, Liebknecht a posé le problème exactement,
-littéralement, comme je le pose : des moyens de conquérir à l’entier idéal socialiste l’immense
+littéralement, comme je le pose: des moyens de conquérir à l’entier idéal socialiste l’immense
 majorité de la nation par la propagande et l’action
 
 Liebknecht est si préoccupé de trouver un large
@@ -1315,7 +1315,7 @@ plus superficielle, la plus extérieure au travail.
 Mais combien cela est plus vrai encore de la loi
 d’assurance sur les pensions de vieillesse et
 d’invalidité qui crée un droit nouveau de la classe
-ouvrière, qui constitue au prolétariat un patrimoine à la fois collectif et individuel ; comme surtout
+ouvrière, qui constitue au prolétariat un patrimoine à la fois collectif et individuel; comme surtout
 cela sera vrai de l’assurance contre le chômage,
 qui est nécessaire et possible, et qui introduira
 la classe ouvrière organisée au cœur même de la
@@ -1331,19 +1331,19 @@ veulent dissoudre l’état en atomes et livrer la
 société à la *libre* exploitation des classes
 possédantes, rivalisent entre eux de sollicitude
 pour *le pauvre homme* et pour la classe
-ouvrière ; et il est hors de doute que le prince
+ouvrière; et il est hors de doute que le prince
 de Bismarck, s’il le veut, peut trouver dans le
 présent reichstag une majorité pour son
-socialisme d’État. Que le clergé protestant et catholique, que les hobereaux et grands propriétaires fonciers s'accommodent du socialisme d'État — les prêtres l'appellent socialisme chrétien, — il n'y a point là de quoi s'étonner.
+socialisme d’État. Que le clergé protestant et catholique, que les hobereaux et grands propriétaires fonciers s'accommodent du socialisme d'État — les prêtres l'appellent socialisme chrétien, — il n'y a point de quoi s'étonner.
 
 Mais c'est un phénomène saisissant et sans analogue dans l'histoire des temps nouveaux, que de voir le parti national libéral, qui, si cassé et chétif soit-il, est toujours partie essentielle de la bourgeoisie allemande, et qui est même la bourgeoisie par excellence, réconcilié avec le socialisme d'État.
 
-Qu’est-ce à dire ? Et puisque la force des choses,
+Qu’est-ce à dire? Et puisque la force des choses,
 l’organisation croissante du parti socialiste et du
 prolétariat amènent les classes mêmes et les partis qui y répugnaient le plus à accepter enfin des
 projets de législation sociale « qui conduisent tout
-droit au socialisme », puisque l’immense majorité de
-la nation a pu ainsi être engagée dans les voies
+droit au socialisme  puisque l’immense majorité de
+la nation a ainsi être engagée dans les voies
 socialistes et comme soulevée à un premier degré
 d’organisation sociale, c’est donc que l’immense
 majorité de la nation peut être haussée, de degré
@@ -1389,8 +1389,8 @@ garda pourtant quelque souvenir de son intransigeance
 première. Il rappelle, dans les fragments cités
 par le *Vorwaerts*, qu’il s’opposa à ce que le
 groupe socialiste fût représenté par un délégué
-dans la « commission des doyens », qui règle le travail parlementaire. Ses collègues ne
-l’écoutèrent point, et ils eurent bien raison ; car
+dans la « commission des doyens  qui règle le travail parlementaire. Ses collègues ne
+l’écoutèrent point, et ils eurent bien raison; car
 à quoi bon entrer au Parlement, si sous prétexte
 de ne pas se compromettre, on se refuse, dans le
 détail, à tout ce qui peut rendre l’action
@@ -1402,7 +1402,7 @@ d’être au parlement comme s’il y était pas. Quand
 il réfléchissait aux conditions de réalisation du
 socialisme, quand dans la sincérité de sa pensée il
 interrogeait l’avenir, il aboutissait à une
-conception tout à fait large : il voyait le
+conception tout à fait large: il voyait le
 socialisme pénétrant peu à peu la démocratie et
 s’imposant, par des conquêtes partielles et
 successives du pouvoir, même au gouvernement de la
@@ -1419,7 +1419,7 @@ par une contradiction de cette sorte que
 Liebknecht, dans le manuscrit même où il prévoit
 la collaboration gouvernementale du socialisme avec d’autres
 fractions de la démocratie, répète pourtant et semble
-prendre à son compte la phrase simpliste si vigoureusement condamnée par Marx : « Tous les partis
+prendre à son compte la phrase simpliste si vigoureusement condamnée par Marx: « Tous les partis
 ne forment, vis-à-vis du socialisme, qu’une seule
 masse réactionnaire. » C’est absolument contraire à
 la pratique même des socialistes allemands, qui ne
@@ -1446,45 +1446,45 @@ des salariés est la seule classe vraiment révolutionnaire et
 qu’il forme seul l’armée du socialisme — que tout ce qui
 vient des autres états ou des autres classes doit être considéré avec méfiance. Par bonheur, des conceptions aussi dépourvues de sens n’ont jamais été accueillies par la démocratie socialiste allemande.
 
-La classe des salariés est celle qui est le plus directement soumise à l’exploitation ; elle fait directement face aux exploiteurs, et elle a surtout cet avantage que par sa concentration dans les fabriques et chantiers, elle est excitée à une pensée active et tout naturellement organisée en « bataillons de travailleurs ». Cela lui communique un caractère révolutionnaire qu’aucune partie de la société n’a au même degré. Il faut le reconnaître sans réserve.
+La classe des salariés est celle qui est le plus directement soumise à l’exploitation; elle fait directement face aux exploiteurs, et elle a surtout cet avantage que par sa concentration dans les fabriques et chantiers, elle est excitée à une pensée active et tout naturellement organisée en « bataillons de travailleurs ». Cela lui communique un caractère révolutionnaire qu’aucune partie de la société n’a au même degré. Il faut le reconnaître sans réserve.
 
-Chaque salarié est ou socialiste, ou en voie de le devenir. Les salariés des ateliers nationaux de France, que le gouvernement bourgeois de la République de février voulait utiliser contre le prolétariat socialiste, furent au moment décisif des protagonistes du prolétariat ; et semblablement, nous voyons comment les unions de métiers, qui avaient été fondées par des agents de la bourgeoisie allemande pour combattre les travailleurs socialistes, ou bien n’ont qu’un semblant d’existence, ou bien entrent dans le courant des idées socialistes. Le salarié est conduit au socialisme j)ar tout son milieu, par toutes les conditions où il se trouve. Les conditions mêmes de son existence l’obligent à penser et des qu’il pense, il est socialiste.
+Chaque salarié est ou socialiste, ou en voie de le devenir. Les salariés des ateliers nationaux de France, que le gouvernement bourgeois de la République de février voulait utiliser contre le prolétariat socialiste, furent au moment décisif des protagonistes du prolétariat; et semblablement, nous voyons comment les unions de métiers, qui avaient été fondées par des agents de la bourgeoisie allemande pour combattre les travailleurs socialistes, ou bien n’ont qu’un semblant d’existence, ou bien entrent dans le courant des idées socialistes. Le salarié est conduit au socialisme j)ar tout son milieu, par toutes les conditions où il se trouve. Les conditions mêmes de son existence l’obligent à penser et des qu’il pense, il est socialiste.
 
 Mais si c’est le salarié qui souffre le plus directement et le i)lus visiblement du système d’exploitation capitaliste, les petits bourgeois et les paysans n’en sont pas moins gravement atteints xjar celui-ci, quoique de manière moins directe et moins visible.
 
-La triste situation des petits cultivateurs dans presque toute l’Allemagne est aussi connue que le mouvement de l’artisanerie... Les petits bourgeois et les petits propriétaires i)aysans, parce qu’ils ne connaissent pas bien les causes profondes de leur triste situation, sont encore dans le camp de nos adversaires ; mais il est pour notre parti de la plus haute importance de les éclairer et de les amener à nous. C'EST UNE QUESTION VITALE POUR NOTRE PARTI, PARCE QUE CES DEUX CLASSES FORMENT LA MAJORITÉ DE LA NATION.
+La triste situation des petits cultivateurs dans presque toute l’Allemagne est aussi connue que le mouvement de l’artisanerie... Les petits bourgeois et les petits propriétaires i)aysans, parce qu’ils ne connaissent pas bien les causes profondes de leur triste situation, sont encore dans le camp de nos adversaires; mais il est pour notre parti de la plus haute importance de les éclairer et de les amener à nous. C'EST UNE QUESTION VITALE POUR NOTRE PARTI, PARCE QUE CES DEUX CLASSES FORMENT LA MAJORITÉ DE LA NATION.
 
 Il serait sans doute naïf et même fou d’exiger que, pour réaliser pratiquement nos principes, nous ayons en poche une majorité toute prête et toute cachetée. MAIS IL SERAIT
 
 C’est une erreur funeste que les socialistes français ont payée chèrement.
 
-Peut-on combattre plus héroïquement que les ouvriers de Paris et de Lyon ? Et chaque combat ne se terminait-il point par une sanglante défaite, par les plus horribles représailles des vainqueurs et par le long épuisement du prolétariat ? Le prolétariat français n’a pas encore suffisamment reconnu la nécessité de l’organisation et de la propagande, et c’est pour cela que jusqu’ici il a été régulièrement vaincu.
+Peut-on combattre plus héroïquement que les ouvriers de Paris et de Lyon? Et chaque combat ne se terminait-il point par une sanglante défaite, par les plus horribles représailles des vainqueurs et par le long épuisement du prolétariat? Le prolétariat français n’a pas encore suffisamment reconnu la nécessité de l’organisation et de la propagande, et c’est pour cela que jusqu’ici il a été régulièrement vaincu.
 
 La leçon de la Commune semble heureusement avoir servi à l’éducation du prolétariat. Nos camarades français travaillent avec zèle à l’organisation, et s’appliquent à la propagande, particulièrement dans la campagne.
 
 Les socialistes allemands ont compris dès longtemps l’importance de la propagande et la nécessité de gagner à nous la petite bourgeoisie et les petits propriétaires paysans.
 
-*Seule une minorité infinie a demandé que le mouvement socialiste fût limité à la classe des salariés ...*
+*Seule une minorité infinie a demandé que le mouvement socialiste fût limité à la classe des salariés...*
 
 *Les phrases écumantes et théâtrales de ces fanatiques « de la lutte de classe » recouvraient un fond de machiavélisme féodal et policier.*
 
-Le socialisme de parade hyperrévolutionnaire, qui ne fait appel « qu’aux mains calleuses », a deux avantages pour la réaction : d’abord il limite le mouvement socialiste à une classe qui en Allemagne est trop peu nombreuse pour accomplir une révolution ; et en second lieu, il fournit un excellent moyen pour effrayer la grande masse du peuple, à demi indifférente, surtout les paysans et la petite bourgeoisie, qui ne sont pas encore arrivés à une activité politique autonome.
+Le socialisme de parade hyperrévolutionnaire, qui ne fait appel « qu’aux mains calleuses  a deux avantages pour la réaction: d’abord il limite le mouvement socialiste à une classe qui en Allemagne est trop peu nombreuse pour accomplir une révolution; et en second lieu, il fournit un excellent moyen pour effrayer la grande masse du peuple, à demi indifférente, surtout les paysans et la petite bourgeoisie, qui ne sont pas encore arrivés à une activité politique autonome.
 
-Et Liebknecht conclut tout cet ordre de pensées par ces fortes paroles :
+Et Liebknecht conclut tout cet ordre de pensées par ces fortes paroles:
 
-Il ne faut pas demander : Es-tu salarié ? mais : es-tu socialiste ?
+Il ne faut pas demander: Es-tu salarié? mais: es-tu socialiste?
 
 Réduit aux salariés, le socialisme est incapable de vaincre. Compris par l’ensemble du peuple qui travaille et par l’élite morale et intellectuelle de la nation, sa victoire est certaine.
 
-Pourquoi devons-nous maintenant subir la persécution infligée à nos amis ? Pourquoi sommes-nous soumis aux plus indécentes brutalités ?
+Pourquoi devons-nous maintenant subir la persécution infligée à nos amis? Pourquoi sommes-nous soumis aux plus indécentes brutalités?
 
 Parce que nous sommes encore faibles.
 
-Et pourquoi sommes-nous faibles ?
+Et pourquoi sommes-nous faibles?
 
 Parce que seule une petite partie du peuple connaît la doctrine socialiste.
 
-Et nous devrions, nous qui sommes faibles, accroître encore notre faiblesse en écartant de nous des milliers d’hommes, sous prétexte que le hasard n’a pas fait d’eux les membres d’un groupe social déterminé ? La sottise serait ici trahison envers le Parti.
+Et nous devrions, nous qui sommes faibles, accroître encore notre faiblesse en écartant de nous des milliers d’hommes, sous prétexte que le hasard n’a pas fait d’eux les membres d’un groupe social déterminé? La sottise serait ici trahison envers le Parti.
 
 Ne pas resserrer — étendre, voilà quelle doit être notre devise. De plus en plus le cercle du socialisme doit s’élargir, *jusqu’à ce que nous ayons converti la majorité de nos adversaires à être nos amis, ou que tout au moins nous les ayons désarmés.*
 
@@ -1494,7 +1494,7 @@ Toutes les mesures législatives, que, si l’occasion nous en est offerte, nous
 
 Ainsi Liebknecht conçoit toute une période d’action législative, où le socialisme fera, si je puis dire, ses preuves de large compréhension, où il apparaîtra aux plus aveugles comme un parti d’intérêt général, et où il habituera ainsi tous les hauts esprits, toutes les nobles consciences, toute la petite bourgeoisie et les paysans, à le suivre jusqu’au bout de sa doctrine et de son idéal, sans répugnance et sans peur. Ce sera comme une propagande en action complétant la propagande de la parole.
 
-Certes, le Parti socialiste ne doit pas être l’écho confus des intérêts discordants ; il ne doit pas livrer sa pensée au désordre du monde présent. Il doit soumettre à l'ensemble du peuple un plan défini, des moyens précis d’évolution vers un but bien clair. Mais dans ce plan, dans ce programme, il doit tenir le plus grand compte de la diversité des éléments, des passions, des intérêts, des préjugés. Voici les paroles textuelles de Liebknecht :
+Certes, le Parti socialiste ne doit pas être l’écho confus des intérêts discordants; il ne doit pas livrer sa pensée au désordre du monde présent. Il doit soumettre à l'ensemble du peuple un plan défini, des moyens précis d’évolution vers un but bien clair. Mais dans ce plan, dans ce programme, il doit tenir le plus grand compte de la diversité des éléments, des passions, des intérêts, des préjugés. Voici les paroles textuelles de Liebknecht:
 
 Si nécessaire qu’il soit de laisser à tous les groupes d’intérêts le plus de jeu possible pour qu’ils manifestent leurs vues et leurs besoins, et d’admettre le peuple dans la plus large mesure possible à collaborer à la législation, il y aurait folie pour le gouvernement et pour le socialisme, — à abandonner à l’initiative du peuple toute la législation.
 
@@ -1526,13 +1526,13 @@ Je ne cite point ces magnifiques paroles pour couvrir d’une autorité révolut
 
 Non, nous n’avons pas besoin de l’autorité de personne, de la protection de personne, pour chercher tout haut, avec le prolétariat lui-même, quelle est la route qui convient le mieux, quel est le chemin le plus large, le plus lumineux, le plus doux et le plus rapide.
 
-Et à vrai dire, je crois que dans l’esprit même de Liebknecht, ces grandes idées si nobles et si pratiques tout ensemble étaient contrecarrées et obscurcies par trop d’idées différentes ou même opposées pour qu’elles aient pu agir utilement et profondément. Je crois que l’heure est venue de les méditer et d’en faire non plus l’heureux et brillant accessoire, mais le fond même et la substance de notre politique et de notre pensée. Je crois que si le parti socialiste ne laissait pas ces grandes pensées à l’état de formule générale, s’il les réalisait en un programme précis d’évolution équitable et large vers un communisme bien défini, s’il donnait l’impression qu’il est à la fois généreux et pratique, ardent au combat et ami de la paix, très ferme contre les institutions iniques et décidé à les abattre méthodiquement, très conciliant aussi envers les personnes, il avancerait d’un demi-siècle la vraie Révolution sociale, celle qui serait dans les choses, dans les lois et dans les cœurs, non dans les formules et dans’les mots, et il épargnerait à la grande œuvre de la Révolution prolétarienne l’écœurante et cruelle odeur de sang, de meurtre et de haine qui est restée attachée à la Révolution bourgeoise.
+Et à vrai dire, je crois que dans l’esprit même de Liebknecht, ces grandes idées si nobles et si pratiques tout ensemble étaient contrecarrées et obscurcies par trop d’idées différentes ou même opposées pour qu’elles aient agir utilement et profondément. Je crois que l’heure est venue de les méditer et d’en faire non plus l’heureux et brillant accessoire, mais le fond même et la substance de notre politique et de notre pensée. Je crois que si le parti socialiste ne laissait pas ces grandes pensées à l’état de formule générale, s’il les réalisait en un programme précis d’évolution équitable et large vers un communisme bien défini, s’il donnait l’impression qu’il est à la fois généreux et pratique, ardent au combat et ami de la paix, très ferme contre les institutions iniques et décidé à les abattre méthodiquement, très conciliant aussi envers les personnes, il avancerait d’un demi-siècle la vraie Révolution sociale, celle qui serait dans les choses, dans les lois et dans les cœurs, non dans les formules et dans’les mots, et il épargnerait à la grande œuvre de la Révolution prolétarienne l’écœurante et cruelle odeur de sang, de meurtre et de haine qui est restée attachée à la Révolution bourgeoise.
 
-Mais je veux citer encore, avant de prendre congé de Liebknecht, quelques fragments où éclate le même souci de noble culture, de large humanité, d’équitable et paisible évolution :
+Mais je veux citer encore, avant de prendre congé de Liebknecht, quelques fragments où éclate le même souci de noble culture, de large humanité, d’équitable et paisible évolution:
 
 Pour la propagande, comme pour l’action législative, nous devons ne jamais perdre de vue l’universalité de la conception socialiste...
 
-L’un saisit surtout le côté économique du socialisme ; un autre, son côté moral et humain ; un troisième, son côté politique.
+L’un saisit surtout le côté économique du socialisme; un autre, son côté moral et humain; un troisième, son côté politique.
 
 Dans la propagande et dans la législation, ces trois côtés doivent également valoir.
 
@@ -1546,15 +1546,15 @@ Sans le côté humain, le but économique manquerait de consécration morale.
 
 Les deux sont liés.
 
-Il y a eu de tout temps des rêveurs qui se sont échauffés pour le bonheur de tout le genre humain. C’étaient ou des songes, ou des duperies, parce que le moyen substantiel et matériel de réalisation faisait défaut. La réglementation des rapports économiques, que le socialisme veut réaliser, et qui doit assurer avec l’accroissement de la production une répartition plus juste, crée le fondement économique d’une existence vraiment humaine, d’un développement harmonique de l’individu.
+Il y a de tout temps des rêveurs qui se sont échauffés pour le bonheur de tout le genre humain. C’étaient ou des songes, ou des duperies, parce que le moyen substantiel et matériel de réalisation faisait défaut. La réglementation des rapports économiques, que le socialisme veut réaliser, et qui doit assurer avec l’accroissement de la production une répartition plus juste, crée le fondement économique d’une existence vraiment humaine, d’un développement harmonique de l’individu.
 
-Même les bienfaits de la propriété commune et du travail associé ont été compris dans des époques antérieures, et le principe même de la communauté, du communisme y a été réalisé ; mais il y manquait l’idéal humain qui caractérise le socialisme, et ce communisme est tenu avec raison pour un degré de civilisation inférieur à notre société bourgeoise d’aujourd’hui.
+Même les bienfaits de la propriété commune et du travail associé ont été compris dans des époques antérieures, et le principe même de la communauté, du communisme y a été réalisé; mais il y manquait l’idéal humain qui caractérise le socialisme, et ce communisme est tenu avec raison pour un degré de civilisation inférieur à notre société bourgeoise d’aujourd’hui.
 
 Le socialisme présuppose notre civilisation moderne. Sur aucun point, il n’est en contradiction avec la civilisation moderne. Bien loin de lui être ennemi, il veut l’étendre à l’humanité tout entière, alors qu’elle est aujourd’hui le monopole d’une minorité privilégiée.
 
-Ainsi, le socialisme, enveloppant dans son domaine toute la vie, tous les sentiments, toutes les pensées de l’homme, s’assure contre l’étroitesse et l’exclusivité ; il a en outre par là cet immense avantage de pouvoir exercer dans toute l’étendue de la vie civile et politique une action aussi salutaire qu’harmonique.
+Ainsi, le socialisme, enveloppant dans son domaine toute la vie, tous les sentiments, toutes les pensées de l’homme, s’assure contre l’étroitesse et l’exclusivité; il a en outre par cet immense avantage de pouvoir exercer dans toute l’étendue de la vie civile et politique une action aussi salutaire qu’harmonique.
 
-Une citation dernière, où se marque le souci Je l’action pratique. Liebknecht, ayant consacré à l’étude des réformes d’impôt plusieurs pages, ajoute :
+Une citation dernière, où se marque le souci Je l’action pratique. Liebknecht, ayant consacré à l’étude des réformes d’impôt plusieurs pages, ajoute:
 
 Peut-être trouvera-t-on surprenant que nous attachions une telle importance aux questions d’impôt, puisque dans l’État organisé en socialisme il ne sera plus question d’impôts.
 
@@ -1578,7 +1578,7 @@ qu’il dépend de nous d’aller au but d’une marche
 certaine et victorieuse. Mais je dis que l’effort
 véhément d’une minorité socialiste ne suffirait
 pas et que nous devons rallier à nous la presque
-unanimité des citoyens. Voici pourquoi :
+unanimité des citoyens. Voici pourquoi:
 
 d’abord, ce n’est pas en face d’une masse inerte et
 passive que se trouverait la minorité socialiste
@@ -1592,7 +1592,7 @@ d’effort. La classe ouvrière est sortie du
 demi-sommeil et de la passivité. Mais la petite
 bourgeoisie aussi est agissante. Malgré le poids du
 système économique qui si souvent l’écrase, elle
-n’a point tout à fait fléchi : elle tente de se
+n’a point tout à fait fléchi: elle tente de se
 redresser. Et si bien souvent elle demande son
 salut aux conceptions les plus rétrogrades, à la
 politique la plus détestable et au plus stérile et
@@ -1614,7 +1614,7 @@ succès du coup d’état et de l’empire. Depuis, ils
 ont été peu à peu conquis par la république et ils
 en sont une des forces vives. Ils ont le sentiment
 très net de leur puissance politique. Ils sont
-entrés dans les municipalités ; ils savent qu’ils font les députés, les conseillers
+entrés dans les municipalités; ils savent qu’ils font les députés, les conseillers
 généraux et les sénateurs, et ils ne toléreraient
 nullement un grand mouvement social qui se ferait
 sans eux.
@@ -1647,12 +1647,12 @@ vivante. Elle suit les lois du progrès scientifique.
 Elle adopte sans cesse de nouvelles méthodes de
 production, elle renouvelle son outillage. Et même
 au point de vue de la lutte sociale, de la lutte
-des classes, elle renouvelle sa méthode de combat :
+des classes, elle renouvelle sa méthode de combat:
 l’invention des *syndicats jaunes* atteste qu’elle
 a des ressources de souplesse et d’audace. Quelle
 différence d’activité entre un grand prélat
 d’ancien régime et un grand capitaliste
-d’aujourd’hui ! Il en est, comme certains
+d’aujourd’hui! Il en est, comme certains
 milliardaires américains, qui ont hérité de
 l’activité de Napoléon. Et en France même, dans
 des proportions plus modestes, la classe
@@ -1661,7 +1661,7 @@ des classes nonchalantes et assoupies, c’est à des
 classes agissantes, prévoyantes, hardies que le
 prolétariat doit arracher leur privilège. Comment
 le pourrait-il s’il n’a pas avec lui l’ensemble
-de la nation ? Si la masse de la nation lui est
+de la nation? Si la masse de la nation lui est
 hostile, il sera écrasé. Et si elle est simplement
 défiante, les manoeuvres de la classe capitaliste
 ne tarderont pas à changer cette défiance en
@@ -1690,7 +1690,7 @@ régulier ou séculier, aucun citoyen, aucun
 possédant ne pouvait craindre que la mesure
 d’expropriation décrétée contre l’Église rejaillît
 sur lui. L’abbé Maury essaya en vain de semer la
-panique : les propriétaires bourgeois et paysans
+panique: les propriétaires bourgeois et paysans
 savaient trop que la propriété d’Église était bien
 définie et que l’expropriation ne pouvait pas
 s’étendre au delà de ses limites.
@@ -1732,9 +1732,9 @@ propriétaires ne seront pas pleinement rassurés.
 
 L’adhésion des paysans propriétaires est d’autant
 plus nécessaire que par rapport à leur nombre le
-nombre des propriétaires ruraux va diminuant.
+nombre des propriétaires ruraux diminuant.
 Mais cette adhésion, ils ne la donneront pas à un
-mouvement soudain, dont ils n’auront pu calculer
+mouvement soudain, dont ils n’auront calculer
 les effets. Ils ne la donneront qu’à un mouvement
 délibéré avec eux, et qui en accroissant tous les
 jours leur force de production et leur bien-être,
@@ -1744,7 +1744,7 @@ l’action socialiste.
 Ce n’est pas tout. En 1789, la révolution n’avait
 à accomplir, dans l’ordre de la propriété, qu’une
 œuvre négative. Elle supprimait, elle ne créait
-pas. Elle abolissait la propriété d’Église ; mais,
+pas. Elle abolissait la propriété d’Église; mais,
 ce domaine d’église, elle le mettait en vente. Elle
 le convertissait immédiatement en propriétés
 particulières d’un type déjà connu. De même, quand
@@ -1757,13 +1757,13 @@ révolution Révolution ne suscitait aucune forme nouvelle de
 propriété. Elle n’imaginait aucun type social
 nouveau. Son œuvre libératrice revenait à briser
 des entraves. Elle n’avait pas à créer, elle n’avait
-pas à organiser : la société ne lui demandait que
-des destructions ; une fois ces destructions
+pas à organiser: la société ne lui demandait que
+des destructions; une fois ces destructions
 accomplies, c’est la société qui d’elle-même
 continuait, allègrement, la marche commencée.
 
 Au contraire, il ne suffit pas à la Révolution
-socialiste d’abolir le capitalisme : il faut qu’elle
+socialiste d’abolir le capitalisme: il faut qu’elle
 crée le type nouveau selon lequel s’accomplira la
 production et se régleront les rapports de propriété.
 Supposez que demain tout le système capitaliste
@@ -1775,7 +1775,7 @@ fermages, que les métayers ne remettent plus au
 propriétaire bourgeois la moitié des fruits de la
 terre, que toute rente du sol, tout bénéfice
 commercial, tout dividende et profit industriel
-soient abolis ; si à cette destruction du
+soient abolis; si à cette destruction du
 capitalisme ne s’ajoutait pas immédiatement une
 organisation socialiste, si la société ne savait
 pas d’emblée comment, par qui, sera conduit le
@@ -1810,13 +1810,13 @@ substitution d’une classe à une autre, mais la
 destruction des classes, l’avènement de la
 
 Dans l’ordre socialiste, ce n’est pas l’autorité d’une classe sur une autre qui maintiendra la
-discipline, la coordination des efforts : c’est la
+discipline, la coordination des efforts: c’est la
 libre volonté des protecteurs associés.
 
 Comment un système qui suppose la libre
 collaboration de tous pourrait-il être institué
 contre la volonté, ou même sans la volonté du plus
-grand nombre ? Toutes ces forces ou réfractaires ou
+grand nombre? Toutes ces forces ou réfractaires ou
 inertes alourdiraient tellement la production
 socialiste, useraient en d’innombrables chocs ou
 frottements tant d’énergies et de ressorts, que le
@@ -1824,7 +1824,7 @@ système ferait faillite. Il ne peut réussir que par
 la volonté générale et presque unanime.
 
 Destiné à tous, il doit être préparé, accepté
-presque par tous, et même, pratiquement, par tous ;
+presque par tous, et même, pratiquement, par tous;
 car il vient une heure où la force d’une majorité
 immense décourage les dernières résistances. Ce
 qui fait la noblesse du socialisme, c’est qu’il ne
@@ -1899,7 +1899,7 @@ en grève pour obtenir la journée de huit heures,
 une pension de retraite plus élevée et un
 minimum de salaires, c’est une grève très
 importante, et on peut l’appeler la grève générale
-des ouvriers mineurs. Mais ce n’est point là ce
+des ouvriers mineurs. Mais ce n’est point ce
 qu’entendent, par *la grève générale*, ceux qui
 y voient l’instrument décisif d’émancipation. Il ne
 s’agit point, dans leur pensée, d’un mouvement
@@ -1943,10 +1943,10 @@ exercer sur les classes dirigeantes un effet
 profond. Ce n’est plus une corporation, si puissante
 qu’elle soit, qui refuse le travail, c’est tout un ensemble de
 corporations. Ce n’est donc plus un mouvement
-corporatif : c’est un mouvement de classe. Et
+corporatif: c’est un mouvement de classe. Et
 comment un mouvement général de la classe
 essentiellement productive, de celle que rien ne
-supplée, pourrait-il être sans action ?
+supplée, pourrait-il être sans action?
 
 Mais, ici, il ne faut pas d’équivoque. Il ne faut
 pas s’imaginer que le mot de grève générale a une
@@ -1956,8 +1956,8 @@ grève générale est pratique ou chimérique, utile ou
 funeste, suivant les conditions où elle se produit,
 la méthode qu’elle emploie et le but qu’elle se
 
-Il y a, à mon sens, trois conditions indispensables
-pour qu’une grève générale puisse être utile :
+Il y à mon sens, trois conditions indispensables
+pour qu’une grève générale puisse être utile:
 — 1° il faut que l’objet en vue duquel elle est
 déclarée passionne réellement, profondément, la
 classe ouvrière. — 2° il faut qu’une grande partie
@@ -1998,7 +1998,7 @@ pour déclarer une grande et persévérante grève. Alors, c’est pour des obje
 vastes et précis, c’est pour des réformes
 étendues, claires et immédiatement réalisables
 qu’elle lutte. Alors, le signal donné par les
-organisations ouvrières sera suivi ; sinon, non.
+organisations ouvrières sera suivi; sinon, non.
 
 Mais il ne suffit pas que le prolétariat soit
 réellement animé et passionné. Il ne suffit pas
@@ -2008,7 +2008,7 @@ qu’il ait démontré à une fraction notable de
 l’opinion que ses revendications sont légitimes et
 réalisables immédiatement. Toute grève générale
 apportera nécessairement un trouble dans les
-relations économiques ; elle contrariera bien des
+relations économiques; elle contrariera bien des
 habitudes ou même atteindra bien des intérêts.
 L’opinion de l’ensemble du pays — et même de cette
 partie très importante des salariés de tout ordre
@@ -2048,22 +2048,22 @@ déterminer la révolution sociale, c’est-à-dire la
 chute de tout le système capitaliste et
 l’avènement du communisme démocratique et
 prolétarien. La vie économique du pays sera
-suspendue ; les voies ferrées seront désertes ;
-la houille nécessaire à l’industrie restera ensevelie sous terre : les navires ne
+suspendue; les voies ferrées seront désertes;
+la houille nécessaire à l’industrie restera ensevelie sous terre: les navires ne
 pourront même plus aborder les quais où nul ouvrier
 ne déchargera les marchandises. Partout, arrêt de
 la circulation, de la production. Naturellement, il
 y aura un grand malaise. Les masses ouvrières, en
 arrêtant la production et les échanges, se seront
-affamées elles-mêmes ; elles seront ainsi acculées
+affamées elles-mêmes; elles seront ainsi acculées
 à la violence, pour se nourrir, pour saisir vivres
-et denrées là où ils se trouvent. Elles seront
+et denrées où ils se trouvent. Elles seront
 acculées aussi à frapper d’épouvante les
 privilégiés, menacés dans leurs personnes et dans
 leurs biens par l’inévitable colère du prolétariat
 dont les souffrances séculaires seront comme
 exaspérées par la crise de misère et par la faim.
-De là d’inévitables conflits entre la classe
+De d’inévitables conflits entre la classe
 ouvrière et les gardiens affolés du système
 capitaliste. De là, par conséquent, au bout de
 quelques jours, le caractère révolutionnaire de
@@ -2099,7 +2099,7 @@ grande partie de la masse se donnera carrière en
 une longue suite d’années de réaction. Et le
 prolétariat sera pour longtemps désarmé, écrasé,
 
-Mais y a-t-il ainsi des chances de succès ? Je ne
+Mais y a-t-il ainsi des chances de succès? Je ne
 le crois pas. D’abord, la classe ouvrière ne se
 soulèvera pas pour une formule générale, comme
 serait l’avènement du communisme. L’idée de
@@ -2116,9 +2116,9 @@ Pour décider la classe ouvrière à quitter en masse
 les grandes usines et à entreprendre contre toutes
 les forces du système social une lutte à fond,
 pleine d’inconnu et de péril, il ne suffit pas de
-dire : communisme ! Car immédiatement les
-prolétaires demandent : « lequel ? Et quelle forme
-aura-t-il demain si nous sommes vainqueurs ? » et ce
+dire: communisme! Car immédiatement les
+prolétaires demandent: « lequel? Et quelle forme
+aura-t-il demain si nous sommes vainqueurs? » et ce
 n’est pas pour un objet trop général et d’un
 contour trop incertain que se produisent les grands
 mouvements. Il leur faut un point d’appui solide,
@@ -2132,7 +2132,7 @@ ouvrière en mouvement. Et ils espèrent que ce
 mouvement, devenant forcément révolutionnaire,
 s’élargira de lui-même en communisme complet.
 
-Mais là est précisément le vice essentiel de la
+Mais est précisément le vice essentiel de la
 Elle se propose de l’entraîner, comme par l’effet irrésistible d’un mécanisme, au delà du
 point qu’on lui aura indiqué tout d’abord. C’est
 par l’attrait de quelques réformes concrètes,
@@ -2151,11 +2151,11 @@ du vrai mouvement révolutionnaire.
 
 Si la classe ouvrière n’est pas nettement avertie,
 dès l’origine, que c’est pour l’entière Révolution
-communiste qu’elle se met en grève ; si elle ne
+communiste qu’elle se met en grève; si elle ne
 sait pas, en quittant les mines, les gares, les
 usines, les chantiers, qu’elle n’y doit rentrer
 qu’après avoir accompli toute la révolution
-sociale ; si elle n’y est pas dès la première
+sociale; si elle n’y est pas dès la première
 heure, et jusqu’au fond de sa conscience, préparée
 et résolue, elle sera déconcertée dans la suite du
 mouvement par la révélation tardive d’un plan qu’on
@@ -2183,7 +2183,7 @@ creuse, comme on recule devant le vide.
 
 Il y a encore un autre artifice dans la tactique
 révolutionnaire de la grève générale. Quelques-uns
-de ces théoriciens disent :
+de ces théoriciens disent:
 
 « Il serait peut-être malaisé d’entraîner le
 prolétariat dans une action de force délibérée.
@@ -2192,7 +2192,7 @@ s’y jetterait peut-être pas d’emblée, au seul
 signal des organisations militantes. Au contraire,
 la grève est entrée dans la pratique de la classe
 ouvrière, et les grèves sont de plus en plus
-étendues. Il ne sera donc pas malaisé d'obtenir de la classe ouvrière qu'elle entre dans un mouvement de grève générale. Ce sera, à l'origine, un simple agrandissement de ses habitudes de combat. Et de plus, chose tout à fait importante, ce sera un mouvement légal. La loi permet la grève ; elle ne lui assigne pas et ne peut pas lui assigner de limite. Par conséquent, le prolétariat, en ouvrant la grève générale, sait qu'il exerce un droit légal ; c'est donc avec toute la puissance de la légalité qu'il entre dans le mouvement, et bien des travailleurs qui auraient répugné à l'emploi prémédité de la force et à l'action délibérément révolutionnaire, n'hésiteront pas à manifester leur irritation contre les injustices sociales par une démarche menaçante, mais qui ne les jette pas dès la première heure et de sang-froid hors de la légalité.
+étendues. Il ne sera donc pas malaisé d'obtenir de la classe ouvrière qu'elle entre dans un mouvement de grève générale. Ce sera, à l'origine, un simple agrandissement de ses habitudes de combat. Et de plus, chose tout à fait importante, ce sera un mouvement légal. La loi permet la grève; elle ne lui assigne pas et ne peut pas lui assigner de limite. Par conséquent, le prolétariat, en ouvrant la grève générale, sait qu'il exerce un droit légal; c'est donc avec toute la puissance de la légalité qu'il entre dans le mouvement, et bien des travailleurs qui auraient répugné à l'emploi prémédité de la force et à l'action délibérément révolutionnaire, n'hésiteront pas à manifester leur irritation contre les injustices sociales par une démarche menaçante, mais qui ne les jette pas dès la première heure et de sang-froid hors de la légalité.
 
 « De plus, ce qu’on pourrait appeler la répression
 préventive du pouvoir capitaliste est empêché
@@ -2201,7 +2201,7 @@ peu à peu, cette grève générale, cette grève de
 classe s’affirmera nécessairement en grande
 bataille sociale, en combat révolutionnaire. Par le souffrance, par la misère, par les inévitables conflits qui mettront aux prises, en bien des points, la force ouvrière et la force capitaliste, les esprits s'animeront, les justes colères s'enflammeront, et même cette partie du prolétariat qui aurait reculé avant l'ouverture de la grève devant l'emploi systématique de la force, sera peu à peu, au feu des événements, de la lutte et de la souffrance, portée à la température révolutionnaire. Dès lors, le vieux monde fera explosion. »
 
-Voilà bien, si l’on va au fond, la conception et
+Voilà bien, si l’on au fond, la conception et
 l’espoir d’un certain nombre de ceux qui voient
 dans la grève générale un moyen de révolution. Elle
 est dans leur pensée une méthode d’entraînement
@@ -2209,7 +2209,7 @@ révolutionnaire, appliquée à un prolétariat dont
 trop de forces resteraient inertes sans l’excitation
 brutale des événements.
 
-On ne dit plus aux prolétaires : prenez votre
+On ne dit plus aux prolétaires: prenez votre
 fusil. Mais on croit que la grève générale, d’abord
 légale, sera conduite bientôt à s’armer du fusil ou
 de tout autre appareil de force. Ainsi, on compte
@@ -2217,7 +2217,7 @@ sur la force révolutionnaire des événements pour
 suppléer ou pour compléter l’insuffisante force
 révolutionnaire des hommes.
 
-artifice de révolution. Et comme tout mécanisme qu’on n’a pu
+artifice de révolution. Et comme tout mécanisme qu’on n’a
 éprouver par des expériences répétées avant d’en
 faire un emploi décisif, celui-ci expose à bien des
 mécomptes les hommes de bonne foi qui attendent
@@ -2239,9 +2239,9 @@ s’ils ont besoin, à l’origine, pour entrer dans la
 grande action, d’un prétexte et même d’une
 illusion de légalité, reculent devant l’emploi de
 la force au moment où se dérobera ce prétexte et
-où se dissipera cette illusion. Le dé qui aura été
+où se dissipera cette illusion. Le qui aura été
 jeté en l’air pourra bien retomber sur une face
-de violence ; il pourra retomber aussi sur une face
+de violence; il pourra retomber aussi sur une face
 d’inertie. Or, on ne pourra pas garder longtemps
 en main le cornet et recommencer indéfiniment le
 jeu. Il se peut, en tout cas, que dans ce mouvement
@@ -2250,7 +2250,7 @@ et obscure des choses plus que sur la force
 délibérée des consciences, il y ait beaucoup de
 flottement, de mélange et d’incohérence. Sur tel
 point, le conflit aboutira en effet à l’action
-révolutionnaire ; sur tel autre, il gardera sa
+révolutionnaire; sur tel autre, il gardera sa
 forme légale et s’éteindra dans l’immobilité. Le
 mouvement révolutionnaire, n’ayant pas son principe
 et son point d’appui dans la volonté réfléchie des
@@ -2266,7 +2266,7 @@ procédé, fût-il celui de la grève générale, qui,
 d’un premier mouvement de légalité puisse avec
 certitude faire sortir la révolution.
 
-D’ailleurs, et c’est là surtout qu’est l’illusion
+D’ailleurs, et c’est surtout qu’est l’illusion
 d’un grand nombre de militants, il n’est pas
 démontré du tout que la grève générale, même si
 elle prend en effet un caractère révolutionnaire,
@@ -2297,7 +2297,7 @@ sièges, les ravages, les incendies, les perpétuels
 combats, les famines, la vie sociale se maintint.
 Mais dans les sociétés plus modernes, dans la
 société bourgeoise elle-même, que de prodigieuses
-secousses ! Dès la seconde moitié de 1793, la
+secousses! Dès la seconde moitié de 1793, la
 société issue de la révolution subit ou même
 s’inflige à elle-même, pour se défendre, des
 épreuves auxquelles sans doute nulle grève générale n’équivaudra. Une
@@ -2313,8 +2313,8 @@ les moissons. Le blé circule malaisément, chaque
 département, chaque district voulant se réserver
 le plus de grain possible. Bien que Paris ne soit
 pas investi, il est soumis à un véritable régime
-d’état de siège : il y faut faire queue à la porte
-des boulangers ; le rationnement est établi ; le
+d’état de siège: il y faut faire queue à la porte
+des boulangers; le rationnement est établi; le
 pain est rare. La baisse des assignats jette un
 trouble extrême dans toutes les transactions. Et à
 travers toutes ces difficultés, la France garde
@@ -2322,11 +2322,11 @@ assez de puissance vitale, la société
 révolutionnaire garde assez de ressort pour se
 défendre d’abord et bientôt reprendre l’offensive.
 On peut prendre par la famine et par la force une
-cité ; on ne prend pas ainsi une société tout
+cité; on ne prend pas ainsi une société tout
 entière. Il faut qu’elle se livre elle-même. En
 1870-1871, un tiers de la France est occupé,
-Paris est assiégé ; la guerre civile succède à la
-guerre étrangère ; une rançon formidable est
+Paris est assiégé; la guerre civile succède à la
+guerre étrangère; une rançon formidable est
 imposée à la nation, et malgré tout, les sources
 profondes de la vie ne sont pas atteintes, et elles jaillissent de nouveau avec une
 merveilleuse abondance dès les premiers jours de
@@ -2368,7 +2368,7 @@ assemblées, en qui résiderait, par la volonté même
 des majorités, la force légale. Au besoin, s’il ne
 pouvait d’abord suffire à tout, il abandonnerait à
 la grève les voies ferrées et les régions où la
-révolution serait le plus fortement organisée ; il
+révolution serait le plus fortement organisée; il
 se préoccuperait, au contraire, de concentrer ses
 forces, et avec la puissance énorme que lui
 donnerait la volonté des représentants légaux de
@@ -2396,16 +2396,16 @@ les bourgeois, les capitalistes petits et grands,
 les boutiquiers exaspérés seraient capables même
 d’une action physique très vigoureuse.
 
-Et pendant ce temps, que ferait la révolution ?
+Et pendant ce temps, que ferait la révolution?
 Dans les régions où elle aurait paru d’abord
 victorieuse, elle ne pourrait que se dévorer sur
 place, et s’épuiser en d’inutiles violences. Les
 révolutions libérales ou démocratiques de 1830 et
-de 1848 avaient un but très précis : renverser le
+de 1848 avaient un but très précis: renverser le
 pouvoir central et le remplacer. Les coups
 révolutionnaires de Blanqui étaient toujours
 calculés pour frapper à la tête et au cœur. Il ne
-disséminait pas ses forces ; il les concentrait au
+disséminait pas ses forces; il les concentrait au
 contraire pour les porter en quelques points
 vitaux du système politique gouvernemental.
 
@@ -2417,13 +2417,13 @@ sur place, aux abords du puits de mine déserté, au
 seuil des usines abandonnées. Ou si les prolétaires
 prennent possession de la mine, de l’usine, ce
 sera une prise de possession toute fictive.
-C’est un cadavre qu’étreindront les ouvriers ; car
+C’est un cadavre qu’étreindront les ouvriers; car
 la mine, l’usine ne sont que des corps morts quand
 la circulation économique est suspendue, quand la
 production est arrêtée. Tant que l’ensemble de
 l’appareil social n’est pas possédé et gouverné par
 une classe, elle a beau s’emparer matériellement de
-quelques usines et chantiers, elle ne possède rien :
+quelques usines et chantiers, elle ne possède rien:
 ce n’est pas être maître de la circulation que de
 tenir dans ses mains quelques cailloux de la route
 
@@ -2432,7 +2432,7 @@ Il ne resterait donc plus aux forces ouvrières,
 victoire, que la ressource de détruire. Mais à quoi
 serviraient ces actes de destruction, sinon à
 marquer d’un caractère de sauvagerie le soulèvement
-du prolétariat ? Qu’on observe bien que la tactique
+du prolétariat? Qu’on observe bien que la tactique
 révolutionnaire de la grève générale a pour objet
 et pour effet de décomposer la vie économique et
 sociale, de la morceler. Arrêter les locomotives,
@@ -2455,7 +2455,7 @@ les groupes isolés, retombés par l’arrêt de la
 circulation à une civilisation inférieure, ce sont
 les oligarchies possédantes qui, disposant de
 moyens de subsistance accumulés et s’attachant
-par là toute une clientèle passive, deviendront
+par toute une clientèle passive, deviendront
 souveraines. Ce sont les riches qui seront en bien
 des cantons et des communes les rois momentanés,
 les chefs sociaux, les maîtres du fief. Et peu à
@@ -2475,35 +2475,35 @@ propagande et la loi la majorité de la nation.
 
 Est-ce à dire que l’idée de grève générale est
 vaine, qu’elle est un élément négligeable dans le
-vaste mouvement social ? Pas le moins du monde.
+vaste mouvement social? Pas le moins du monde.
 D’abord, j’ai montré comment, à quelles conditions
 et sous quelle forme elle pouvait accélérer
 l’évolution sociale et le progrès ouvrier. En
 second lieu, c’est déjà pour une société un signe
 terrible et un avertissement décisif qu’une
 pareille idée puisse apparaître à une classe comme
-un moyen de libération. Quoi ! C’est la classe
-ouvrière qui porte l’ordre social ; c’est elle qui
+un moyen de libération. Quoi! C’est la classe
+ouvrière qui porte l’ordre social; c’est elle qui
 produit et qui crée. Si elle s’arrête, tout
 s’arrête. Et on peut dire d’elle le mot
 magnifique que Mirabeau, le premier annonciateur
 de la grève générale, disait de l’ensemble du
-tiers-état, encore uni, ouvriers et bourgeois :
+tiers-état, encore uni, ouvriers et bourgeois:
 
-« Prenez garde ! criait-il aux privilégiés, n’irritez
+« Prenez garde! criait-il aux privilégiés, n’irritez
 pas ce peuple qui produit tout, *et qui pour être formidable n’aurait qu’à être immobile.* »
 
 Or, à ce prolétariat qui a cette formidable
 puissance négative, et qui peut tout au moins être
 tenté d’en user, les classes possédantes et
-dirigeantes n’ont su accorder jusqu’ici qu’une trop
+dirigeantes n’ont accorder jusqu’ici qu’une trop
 faible part de puissance positive. Elles ont donné
 ou elles ont laissé à la classe ouvrière si peu de
 confiance en l’efficacité de l’évolution légale,
 qu’elle est comme fascinée de plus en plus par
 l’idée de refuser tout le travail. Le travail
 songeant à se refuser, le cœur méditant de
-s’arrêter : voilà à quelle crise intérieure
+s’arrêter: voilà à quelle crise intérieure
 profonde nous ont conduits les égoïsmes et
 l’aveuglement des privilégiés, l’absence de tout
 plan d’action. C’est vers l’abîme de la grève
@@ -2542,11 +2542,11 @@ des sursauts convulsifs qui échappent à toute
 prévision et à toute règle, et qui sont parfois la
 ressource suprême de l’histoire aux abois, il n’y a
 aujourd’hui pour le socialisme qu’une méthode
-souveraine : conquérir légalement la majorité.
+souveraine: conquérir légalement la majorité.
 
 La première condition du succès pour le
 socialisme, c’est d’expliquer à tous clairement
-son but et son essence ; c’est de dissiper beaucoup
+son but et son essence; c’est de dissiper beaucoup
 de malentendus créés par nos adversaires, et
 quelques malentendus créés par nous-mêmes.
 
@@ -2557,7 +2557,7 @@ classes, et que l’une de ces classes, celle des
 prolétaires, est obligée pour vivre, pour exercer
 en quelque mesure ses facultés, de payer une sorte
 de dîme à la classe capitaliste. Voici une
-multitude d’êtres humains, de citoyens : ils ne
+multitude d’êtres humains, de citoyens: ils ne
 possèdent pas. Ils ne peuvent vivre que de leur
 travail, et comme, pour travailler, ils auraient
 besoin d’un coûteux outillage qu’ils n’ont pas, de
@@ -2572,7 +2572,7 @@ et propriétaire, usant de sa puissance, fait payer
 ne se borne pas à récupérer les avances faites par
 elle et à amortir l’outillage. Sur le produit du
 travail ouvrier et paysan, elle prélève tous les
-ans et indéfiniment une part notable : fermage,
+ans et indéfiniment une part notable: fermage,
 rente du sol, loyer des immeubles urbains,
 arrérages de la rente d’État, revenus des actions
 et obligations, bénéfice industriel, bénéfice
@@ -2603,11 +2603,11 @@ pour assurer l’écrasant service de la rente au
 profit de la même classe capitaliste, ou pour
 entretenir de formidables et inutiles armées. Enfin,
 quand avec le résidu du salaire ainsi entamé, le
-prolétaire va acheter les denrées nécessaires à la
+prolétaire acheter les denrées nécessaires à la
 vie de chaque jour, ou bien, faute de suffisantes
 avances et de temps, il s’adresse au détaillant, et
 il subit ainsi la charge de toute une organisation
-surabondante d’intermédiaires ; ou bien il s’adresse
+surabondante d’intermédiaires; ou bien il s’adresse
 au grand magasin, au grand bazar, et il doit
 assurer, en sus des frais directs de manutention et
 dix ou douze pour cent du grand capital commercial.
@@ -2641,7 +2641,7 @@ les prolétaires les accomplissent. Ainsi, les
 travailleurs ne concourent ni à déterminer le but
 du travail, ni à régler le mécanisme d’autorité
 sous lequel le travail s’exécute. C’est dire que
-le travail est doublement serf, puisqu’il va à des
+le travail est doublement serf, puisqu’il à des
 fins qu’il n’a point voulues, par des moyens qu’il
 n’a point choisis. Ainsi, le même système
 capitaliste qui exploite la force de travail de
@@ -2665,9 +2665,9 @@ et être responsable, n’être même pas consulté et
 prolétariat dans le désordre capitaliste. Et si le
 capitalisme s’organisait, s’il parvenait par de
 vastes trusts à régler la production, il ne pourrait
-la régler qu’à son profit ; il abuserait de cette
+la régler qu’à son profit; il abuserait de cette
 puissance d’unité pour imposer à la communauté des
-acheteurs des prix d’usure ; et les travailleurs
+acheteurs des prix d’usure; et les travailleurs
 n’échapperaient aux conséquences du désordre
 économique que pour tomber sous le coup du
 
@@ -2736,7 +2736,7 @@ individus, aujourd’hui, demain et toujours, trouve
 sa garantie. Et si nous transférons à la communauté
 nationale ce qui fut la propriété de classe des
 capitalistes, ce n’est pas pour faire de la nation
-une idole ; ce n’est pas pour lui sacrifier la
+une idole; ce n’est pas pour lui sacrifier la
 liberté des individus. C’est, au contraire, pour
 qu’elle puisse fournir une base commune à toutes
 les activités individuelles et à tous les droits
@@ -2765,10 +2765,10 @@ plus précis et vaste. Il signifie qu’en tout
 homme, en tout individu l’humanité doit être
 pleinement respectée et portée au plus haut. Or, il
 indépendance, volonté active, libre et joyeuse
-adaptation de l’individu à l’ensemble. Là où des
+adaptation de l’individu à l’ensemble. où des
 hommes sont sous la dépendance et à la merci
-d’autres hommes, là où les volontés ne coopèrent
-pas librement à l’œuvre sociale, là où l’individu
+d’autres hommes, où les volontés ne coopèrent
+pas librement à l’œuvre sociale, où l’individu
 est soumis à la loi de l’ensemble par la force et par l’habitude, et non point par la seule
 raison, l’humanité est basse et mutilée. C’est donc
 seulement par l’abolition du capitalisme et
@@ -2804,7 +2804,7 @@ le droit humain proclamé par la révolution avait
 un sens plus profond et plus vaste que celui que
 lui donnait la bourgeoisie révolutionnaire. Celle-ci, de son droit encore oligarchique et
 étriqué, ne suffisait pas à remplir toute l’étendue
-du droit humain ; le lit du fleuve était plus vaste
+du droit humain; le lit du fleuve était plus vaste
 que le fleuve, et il faudra un flot nouveau, le
 grand flot prolétarien et humain, pour que l’idée
 de justice enfin soit remplie.
@@ -2813,7 +2813,7 @@ C’est le socialisme seul qui donnera à la
 Déclaration des Droits de l’Homme tout son sens et
 qui réalisera tout le droit humain. Le droit
 révolutionnaire bourgeois a affranchi la
-personnalité humaine de bien des entraves ; mais en
+personnalité humaine de bien des entraves; mais en
 obligeant les générations nouvelles à payer une
 redevance au capital accumulé par les générations
 antérieures, et en laissant à une minorité le
@@ -2845,7 +2845,7 @@ souverain de propriété.
 
 Marx et Engels, dans le *Manifeste communiste*,
 ont marqué magnifiquement le respect de la vie, qui
-est l’essence même du communisme :
+est l’essence même du communisme:
 
 Dans la société bourgeoise, le travail vivant
 n’est qu’un moyen d’augmenter le travail
@@ -2874,7 +2874,7 @@ même les grandes forces de production accumulées
 par la bourgeoisie deviendront, contre le privilège
 capitaliste, l’instrument décisif de libération
 
-La vie n’abolit point le passé : elle se le soumet.
+La vie n’abolit point le passé: elle se le soumet.
 La révolution n’est pas une rupture, c’est une
 conquête. Et quand le prolétariat aura fait cette conquête, quand le communisme aura été institué, tout
 l’effort humain accumulé pendant des siècles
@@ -2891,12 +2891,12 @@ dormante sans la vigoureuse action extérieure du
 prolétariat. Dès les premiers jours de la
 révolution, il intervient. Il n’écoute pas les
 absurdes conseils *de classe* de ceux qui, comme
-Marat, lui disent : « Que fais-tu ? Et pourquoi
+Marat, lui disent: « Que fais-tu? Et pourquoi
 vas-tu prendre la Bastille, qui n’a jamais
-enfermé dans ses murs de prolétaires ? » Il marche ;
-il livre l’assaut ; il décide du succès des grandes
-journées ; il court aux frontières ; il sauve la
-révolution au dehors et au dedans ; il devient une
+enfermé dans ses murs de prolétaires? » Il marche;
+il livre l’assaut; il décide du succès des grandes
+journées; il court aux frontières; il sauve la
+révolution au dehors et au dedans; il devient une
 force nécessaire et il recueille en chemin le prix
 de son incessante action. D’un régime
 semi-démocratique et semi-bourgeois, il fait en
@@ -2911,7 +2911,7 @@ Ainsi, par l’action des prolétaires, le communisme
 cesse d’être une vague spéculation philosophique
 pour devenir un parti, une force vivante. Ainsi, le
 socialisme surgit de la révolution française sous
-l’action combinée de deux forces : la force de
+l’action combinée de deux forces: la force de
 l’idée du droit, la force de l’action prolétarienne
 naissante. Il n’est donc pas une utopie abstraite.
 Il jaillit au point le plus bouillonnant, le plus
@@ -2924,18 +2924,18 @@ bourgeois créé par la révolution se développe.
 Voici que sous l’empire, sous la restauration, le
 système économique de la bourgeoisie, fondé sur la
 concurrence illimitée, commence à produire ses
-effets : accroissement incontestable de richesse,
+effets: accroissement incontestable de richesse,
 mais immoralité, ruse, perpétuel combat, désordre
 et oppression. — Le trait de génie de Fourier fut
 de concevoir qu’il était possible de remédier au
 désordre, d’épurer et d’ordonner le système social
 sans gêner la production des richesses, mais, au
-contraire, en l’accroissant. Pas d’idéal ascétique : libre essor de toutes les
+contraire, en l’accroissant. Pas d’idéal ascétique: libre essor de toutes les
 facultés, de tous les instincts. La même
 association qui supprimera les crises multipliera
 les richesses en ordonnant, en combinant les
 efforts. Ainsi la nuance d’ascétisme dont la
-Révolution avait pu assombrir le socialisme
+Révolution avait assombrir le socialisme
 s’évanouit. Ainsi le socialisme, après avoir
 participé, avec les prolétaires de la révolution,
 et avec Babeuf, à toute la vie révolutionnaire,
@@ -2971,15 +2971,15 @@ dividendes et de primes. Il eût été au moins naïf
 d’opposer plus longtemps à cette audacieuse
 exploitation des rêves idylliques. C’est par
 l’âpre critique de la propriété, de la rente, du
-fermage, du profit, que répliqua Proudhon : et
+fermage, du profit, que répliqua Proudhon: et
 ici encore la parole qui devait être dite fut dite
 sous la dictée même et l’âpre inspiration de la
 
 Mais comment compléter l’œuvre de critique par
-une œuvre d’organisation ? Comment grouper en
+une œuvre d’organisation? Comment grouper en
 une vaste unité de combat tous les éléments sociaux
 que menaçait ou qu’opprimait la puissance de la
-banque, du monopole et du capital ? Proudhon
+banque, du monopole et du capital? Proudhon
 démêla très vite que l’armée de la démocratie
 sociale était disparate, qu’elle était mêlée d’un
 prolétariat de fabriques encore insuffisant en
@@ -2988,7 +2988,7 @@ industrielle et marchande, d’une artisanerie que
 la concentration et l’absorption capitaliste
 guettaient mais n’avaient pas abolie encore. De là,
 dans la partie positive de l’œuvre de Proudhon,
-des flottements et des contradictions ; de là un
+des flottements et des contradictions; de un
 singulier mélange de réaction et de révolution selon qu’il s’applique à sauver par
 des combinaisons factices de crédit la petite
 bourgeoisie industrielle ou qu’il pressent
@@ -3001,7 +3001,7 @@ orienter les esprits. Mais, ici encore, d’où
 viennent ces hésitations, ces scrupules ou même
 ces efforts contradictoires, sinon du contact de la
 sincère pensée socialiste avec la réalité complexe
-et encore incertaine ? C’est la vie du siècle qui
+et encore incertaine? C’est la vie du siècle qui
 sans cesse retentit en elle.
 
 Et voici que depuis 1848 la grande force décisive
@@ -3011,7 +3011,7 @@ prolétariat ouvrier, toujours plus nombreux,
 toujours plus cohérent, toujours plus conscient.
 Ceux qui avec Marx ont salué l’avènement de cette
 puissance décisive, ceux qui ont compris que par
-elle le monde serait transformé ont pu s’exagérer
+elle le monde serait transformé ont s’exagérer
 la rapidité du mouvement économique. Ils ont pu,
 moins prudents que Proudhon, moins avertis que
 lui des forces de résistance et des ressources de
@@ -3025,7 +3025,7 @@ compliquée et multiple, il reste vrai que la classe
 purement prolétarienne grandit en nombre, qu’elle
 représente une fraction toujours croissante des
 sociétés humaines, qu’elle est groupée en des
-centres de production toujours plus vastes ; il
+centres de production toujours plus vastes; il
 reste vrai qu’elle est toute préparée à concevoir,
 par la production en grand, la propriété en grand,
 dont la limite est la propriété sociale.
@@ -3046,8 +3046,8 @@ maintenant l’expression la plus haute, l’équilibre
 du monde social.
 
 Non, le socialisme n’est pas une conception
-arbitraire et utopique ; il se meut et se développe
-en pleine réalité ; il est une grande force de vie,
+arbitraire et utopique; il se meut et se développe
+en pleine réalité; il est une grande force de vie,
 mêlée à toute la vie et capable bientôt d’en
 prendre la direction. A l’application incomplète de la justice
 et du droit humain que faisait la révolution
@@ -3088,7 +3088,7 @@ sont les coopératives de tout ordre, coopératives
 de consommation et coopératives de production, qui
 se multiplient. Ce sont les organisations
 syndicales et professionnelles qui s’étendent,
-s’assouplissent, se diversifient : syndicats,
+s’assouplissent, se diversifient: syndicats,
 fédérations de syndicats, bourses du travail,
 fédérations de métiers, fédérations d’industrie.
 
@@ -3115,7 +3115,7 @@ régime des classes.
 Ce sera la honte intellectuelle du parti radical de
 n’avoir répondu à l’immense problème qui nous
 presse tous que par une équivoque formule
-électorale : « Maintien de la propriété individuelle. »
+électorale: « Maintien de la propriété individuelle. »
 La formule pourra sans doute servir
 quelque temps à exciter contre le socialisme les
 ignorances, les frayeurs et les égoïsmes. Mais elle
@@ -3145,9 +3145,9 @@ Tout d’abord, c’est une véritable déchéance
 intellectuelle, pour un parti de démocratie, que de
 souscrire à de pareilles formules. Comment des
 hommes aussi cultivés que M. Léon Bourgeois et
-M. Camille Pelletan ont-ils pu croire que la
+M. Camille Pelletan ont-ils croire que la
 déclaration du parti radical affirmant le maintien
-de la propriété individuelle avait un sens ? Ainsi
+de la propriété individuelle avait un sens? Ainsi
 employé d’une façon générale et abstraite, le mot
 de propriété individuelle ne signifie rien. Dans
 l’évolution humaine la propriété individuelle a
@@ -3162,7 +3162,7 @@ Mais la plupart des esclaves faisaient partie du
 patrimoine individuel des citoyens. La propriété
 des esclaves était une partie de la propriété
 individuelle. Ou bien ils travaillaient le domaine
-foncier du maître grec ou romain ; ou bien ils
+foncier du maître grec ou romain; ou bien ils
 travaillaient à son profit dans des ateliers
 urbains. Ce sont des individus qui les possédaient,
 qui en disposaient, qui les soumettaient au labeur
@@ -3186,8 +3186,8 @@ dispose du travail des serfs. Serfs agricoles,
 disséminés sur l’immense domaine, serfs industriels,
 boulangers, charrons, orfèvres, fileurs, tisseurs,
 réunis dans les annexes de la maison seigneuriale,
-tous ils sont sous la loi d’un individu : ils sont
-compris dans sa propriété ; ils sont vendus par
+tous ils sont sous la loi d’un individu: ils sont
+compris dans sa propriété; ils sont vendus par
 lui avec le domaine. Ils sont, comme la terre
 même, comme la prairie, comme la vigne, comme les
 bœufs, un des objets sur lesquels la propriété
@@ -3196,10 +3196,10 @@ J’entends bien que l’esclavage et le servage ont
 été éliminés de la propriété individuelle. Mais les
 radicaux peuvent-ils avoir l’assurance que tout
 élément de servitude, d’oppression, d’injustice, en
-a disparu ? Et de quel droit prononcent-ils de
+a disparu? Et de quel droit prononcent-ils de
 façon générale et abstraite le mot de propriété
 individuelle, alors que le sens de ce mot varie
-avec le mouvement même de l’histoire ? De pareilles formules
+avec le mouvement même de l’histoire? De pareilles formules
 sont la négation même de l’évolution historique.
 Elles condamnent le parti qui en fait usage à
 ne rien comprendre et à ne rien voir. Elles le
@@ -3228,17 +3228,17 @@ maintenir la propriété capitaliste.
 
 Quiconque, en Grèce et à Rome, aurait déclaré
 tout simplement qu’il entendait maintenir la
-propriété privée, eût déclaré par là même qu’il
+propriété privée, eût déclaré par même qu’il
 maintenait l’esclavage. Quiconque, au Moyen-Age,
 eût déclaré tout simplement qu’il entendait maintenir
 la propriété individuelle ou personnelle, aurait
-maintenu par là même le servage et la féodalité. Et
+maintenu par même le servage et la féodalité. Et
 aujourd’hui, quand les radicaux, en une formule
 toute générale, annoncent au monde qu’ils veulent
-maintenir contre nous la *propriété individuelle*, ils se constituent par là même
+maintenir contre nous la *propriété individuelle*, ils se constituent par même
 les gardiens de la propriété capitaliste.
 
-Et quelle pauvreté dans ces formules abstraites !
+Et quelle pauvreté dans ces formules abstraites!
 Elles ne se bornent pas à immobiliser le sens de la
 propriété individuelle, qui est toujours en
 mouvement. Elles le simplifient arbitrairement. Or,
@@ -3246,9 +3246,9 @@ non seulement, d’époque en époque, la propriété
 individuelle change de signification, mais elle a
 un degré de complication tout à fait variable.
 Tantôt elle s’applique à des rapports sociaux très
-complexes ; tantôt elle paraît se simplifier. Et il
+complexes; tantôt elle paraît se simplifier. Et il
 y a des heures où le progrès de l’humanité exige
-que la notion de propriété se complique ; il y a
+que la notion de propriété se complique; il y a
 des heures où il exige qu’elle se simplifie.
 
 Quand l’esclavage fut amendé en servage, il y
@@ -3260,7 +3260,7 @@ le serf est moins aisée à définir, moins simple que
 la propriété individuelle du maître sur l’esclave.
 La personnalité humaine, qui était souvent nulle
 chez l’esclave, et qui se manifeste mieux chez le
-serf, complique les rapports de propriété ; elle
+serf, complique les rapports de propriété; elle
 introduit dans la notion de propriété individuelle
 des éléments multiples et flottants. Et ici, cette
 complication de la propriété est un progrès certain.
@@ -3283,21 +3283,21 @@ humain, comme douze siècles plus tôt, dans le
 passage de l’esclavage au servage, la complication
 de la propriété avait été un progrès humain.
 
-J’ai lu avec passion le beau livre, tout récemment paru chez Giard et Brière, où M. Henri Sée trace l’histoire des classes rurales et du régime domanial en France et au Moyen-Age. Il a marqué avec force la complication changeante et la transformation perpétuelle de la propriété.
+J’ai avec passion le beau livre, tout récemment paru chez Giard et Brière, où M. Henri Sée trace l’histoire des classes rurales et du régime domanial en France et au Moyen-Age. Il a marqué avec force la complication changeante et la transformation perpétuelle de la propriété.
 
-« Il apparaît clairement aussi, dit-il dans sa conclusion, qu’au Moyen-Age l’on a de la propriété une conception sensiblement différente de celle qui nous est familière. Ne voit-on pas, à la fois, le suzerain, le vassal et le tenancier exercer, à des titres différents, des droits sur la terre ? Le paysan, usufruitier héréditaire de sa tenure, peut être, en un sens, considéré comme propriétaire ; que les droits domaniaux disparaissent, et la terre qu’il cultive lui appartiendra sans restriction. Les droits d’usage, dont jouissent collectivement les habitants d’un même domaine, constituent aussi, à certains égards, une véritable propriété. C’est dire que la propriété, au Moyen-Age, a un caractère plus complexe, beaucoup moins abstrait et tranché que de nos jours. *Loin d’être immuable, le concept de propriété s’est donc modifié au cours des siècles ; nul doute qu’il ne se modifie encore à l’avenir, qu’il ne suive dans leurs évolutions les phénomènes économiques et sociaux.* »
+« Il apparaît clairement aussi, dit-il dans sa conclusion, qu’au Moyen-Age l’on a de la propriété une conception sensiblement différente de celle qui nous est familière. Ne voit-on pas, à la fois, le suzerain, le vassal et le tenancier exercer, à des titres différents, des droits sur la terre? Le paysan, usufruitier héréditaire de sa tenure, peut être, en un sens, considéré comme propriétaire; que les droits domaniaux disparaissent, et la terre qu’il cultive lui appartiendra sans restriction. Les droits d’usage, dont jouissent collectivement les habitants d’un même domaine, constituent aussi, à certains égards, une véritable propriété. C’est dire que la propriété, au Moyen-Age, a un caractère plus complexe, beaucoup moins abstrait et tranché que de nos jours. *Loin d’être immuable, le concept de propriété s’est donc modifié au cours des siècles; nul doute qu’il ne se modifie encore à l’avenir, qu’il ne suive dans leurs évolutions les phénomènes économiques et sociaux.* »
 
 Voilà la grande et large conclusion à laquelle
 aboutit de plus en plus l’école historique
 française. Que signifie, en face de ces
 constatations souveraines de l’histoire, et de cette
 évolution vivante du concept de propriété, la
-formule scolastique et enfantine des radicaux ? De
+formule scolastique et enfantine des radicaux? De
 même qu’il s’est déjà modifié, le concept de
-propriété se modifiera encore : et il est certain
+propriété se modifiera encore: et il est certain
 que maintenant c’est dans le sens d’une complication
-plus grande, d’une complexité plus riche qu’il va
-évoluer. Une force nouvelle est apparue, qui va
+plus grande, d’une complexité plus riche qu’il
+évoluer. Une force nouvelle est apparue, qui
 compliquer et transformer tous les rapports sociaux,
 tout le système de propriété. Cette force nouvelle,
 c’est l’individu humain.
@@ -3316,7 +3316,7 @@ de la grande industrie, qui a donné aux prolétaires
 groupés la conscience de leur force, que le
 travailleur devient une personne et veut être,
 partout et toujours, traité comme telle. Or, la société ne peut lui
-assurer le droit au travail, le droit à la vie ;
+assurer le droit au travail, le droit à la vie;
 elle ne peut l’élever, du salariat passif, à la
 coopération autonome, sans pénétrer elle-même dans
 la propriété. La propriété sociale doit se créer,
@@ -3325,7 +3325,7 @@ propriété que l’individu humain a et doit avoir de
 lui-même.
 
 Ainsi un droit social de propriété se constitue
-nécessairement au profit des travailleurs ; et ce
+nécessairement au profit des travailleurs; et ce
 droit social se communique aux associations
 diverses, communes, coopératives, syndicats, qui
 peuvent de plus près que la nation, et avec plus de
@@ -3337,14 +3337,14 @@ le droit social de la nation servira à assurer, par
 l’intermédiaire de groupements multiples, locaux
 ou professionnels, le droit essentiel de toute
 personne humaine, l’essor libre de toute activité.
-Tout élément capitaliste aura disparu ; aucun
+Tout élément capitaliste aura disparu; aucun
 homme ne pourra se servir d’autres hommes pour
 se créer des dividendes, des bénéfices, des rentes,
 des loyers, des fermages.
 
 Mais la propriété nouvelle en sa complexité
 vaste, nationale, communale, corporative,
-coopérative, sera en même temps individuelle : car
+coopérative, sera en même temps individuelle: car
 aucun individu ne sera livré ou à l’exploitation
 d’autres individus, ou à la tyrannie des groupes,
 chacun sera garanti par des contrats précis et
@@ -3356,7 +3356,7 @@ que le concept de propriété doit se modifier encore.
 Et en ce sens, il n’est pas un chercheur, il n’est
 pas un érudit, qui ne travaille à démontrer le
 ridicule, la puérilité de la formule radicale. Je
-voyais, dans le volume de M Sée, la longue liste
+voyais, dans le volume de Sée, la longue liste
 des hommes de science, chartistes, archivistes,
 historiens, qui ont ou recueilli ou ordonné ou
 déjà interprété les documents dont il se sert. Et
@@ -3395,10 +3395,10 @@ effort continu, ceux qui veulent l’avènement de la
 démocratie dans l’ordre économique comme dans l’ordre
 
 Mais que les radicaux veuillent bien y prendre
-garde. Si leur formule sociale : maintien de la
+garde. Si leur formule sociale: maintien de la
 propriété individuelle, est réduite à rien, si elle
 est destituée de tout sens, ce n’est pas seulement
-par l’exemple du passé ; ce n’est pas seulement
+par l’exemple du passé; ce n’est pas seulement
 par la tendance invincible des forces nouvelles à
 briser le cadre capitaliste. Dans la société
 bourgeoise elle-même, dans le code bourgeois, la
@@ -3418,8 +3418,8 @@ bourgeoise, d’appliquer grandement quelques
 articles de son code, et d’accélérer, dans les
 voies où elle est engagée déjà, la marche de notre
 législation. Ceux qui s’instituent les gardiens
-de la *propriété individuelle * ne se bornent pas
-à nier la société de demain ; ils méconnaissent
+de la *propriété individuelle ne se bornent pas
+à nier la société de demain; ils méconnaissent
 la société présente.
 
 C’est de trois façons que la propriété individuelle
@@ -3428,7 +3428,7 @@ au code bourgeois de régler les rapports des divers
 propriétaires individuels sans consacrer des formes
 restreintes, incomplètes de la propriété
 individuelle. En second lieu, l’impôt, dont le rôle
-va croissant dans l’économie sociale, les lois
+croissant dans l’économie sociale, les lois
 françaises sur les successions et la loi sur
 l’expropriation pour cause d’utilité publique sont
 autant de forces qui investissent, limitent,
@@ -3442,10 +3442,10 @@ une seule loi de protection ouvrière et de
 solidarité sociale qui ne restreigne le droit des
 détenteurs du capital, c’est-à-dire la propriété
 
-L’article 537 du code civil dit : « les particuliers
+L’article 537 du code civil dit: « les particuliers
 ont la libre disposition des biens qui leur
 appartiennent, sous les modifications établies par
-les lois. » L’article 544 du même code civil dit : « La propriété est le droit de jouir et disposer des choses de la
+les lois. » L’article 544 du même code civil dit: « La propriété est le droit de jouir et disposer des choses de la
 manière la plus absolue, pourvu qu’on n’en fasse
 pas un usage prohibé par les lois ou par les
 règlements. » Il est clair que tout le système
@@ -3465,20 +3465,20 @@ de disposer des choses, ou selon qu'il multiplie les modifications, les restrict
 Or, même dans le fonctionnement de la propriété bourgeoise, même dans les rapports qu'ont entre eux les individus possédants, nombreuses sont les formes de propriété où l'individu n'a pas la libre disposition des biens, le droit entier de jouir et de disposer des choses.
 
 Qu’est-ce que l’usufruit sinon un démembrement
-de la propriété individuelle ? L’usufruit, tel que
+de la propriété individuelle? L’usufruit, tel que
 le définit l’article 578 du code, « est le droit de
 jouir des choses dont un autre a la propriété
 comme le propriétaire lui-même, mais à la charge
-d’en conserver la substance » . Ainsi l’usufruitier
+d’en conserver la substance ». Ainsi l’usufruitier
 d’un domaine recueille, pendant toute la durée de
 l’usufruit, les fruits naturels ou industriels de
 la terre, ceux qu’elle produit spontanément et
-ceux qu’en obtient la culture ; mais il ne peut ni aliéner ni
+ceux qu’en obtient la culture; mais il ne peut ni aliéner ni
 morceler ce domaine, ni en entamer les valeurs
 permanentes, comme les arbres de haute futaie.
 Ainsi, pendant toute la durée de l’usufruit, il n’y
 a aucun individu qui exerce sur le domaine qui y
-est soumis le droit plein de propriété ; ni
+est soumis le droit plein de propriété; ni
 l’usufruitier ne peut disposer du fonds, ni celui
 qui a la nue propriété ne peut disposer des fruits.
 
@@ -3516,11 +3516,11 @@ plus complexes et les plus instables.
 a établis, et reçoivent, d’après ses dispositions,
 plus ou moins d’étendue. »
 
-Et les articles suivants (629-635) précisent :
+Et les articles suivants (629-635) précisent:
 
 « Si le titre ne s’explique pas sur l’étendue de
 ces droits, ils sont réglés ainsi qu’il
-suit : — Celui qui a l’usage des fruits d’un
+suit: — Celui qui a l’usage des fruits d’un
 fonds, ne peut en exiger qu’autant qu’il lui en
 faut pour ses besoins et ceux de sa famille. Il
 peut en exiger pour les besoins même des enfants
@@ -3533,12 +3533,12 @@ marié à l’époque où ce droit lui a été
 donné. — Le droit d'habitation se restreint à ce qui est nécessaire pour l'habitation de celui à qui ce droit est concédé, et de sa famille. — Le droit d'habitation ne peut être ni cédé ni loué. Si l'usager absorbe tous les fruits du fonds, ou s'il occupe la totalité de la maison, il est assujetti aux frais de culture, aux réparations d'entretien, et au paiement des contributions comme l'usufruitier. — S'il ne prend qu'une partie des fruits, ou s'il n'occupe qu'une partie de la maison, il contribue au prorata de ce dont il jouit. »
 
 Qu’est donc devenue, en ces combinaisons, la
-rigueur du droit individuel de propriété ? De la
+rigueur du droit individuel de propriété? De la
 chose sur laquelle est exercé un droit d’usage, de
 l’immeuble sur lequel est exercé un droit
-d’habitation, nul ne peut disposer pleinement ; ni
+d’habitation, nul ne peut disposer pleinement; ni
 l’usager, ni le propriétaire. Et quels rapports
-compliqués et mouvants ! Ce droit d’usage et
+compliqués et mouvants! Ce droit d’usage et
 d’habitation grandit avec la famille même de celui
 qui en a reçu titre. Et il se peut que ce droit
 d’usage ou d’habitation, n’étant que partiel,
@@ -3546,7 +3546,7 @@ laisse coexister, pour un même immeuble, le droit
 d’usage qui restreint la propriété et le droit
 plein de propriété. Quelles combinaisons, quel
 enchevêtrement des droits, et quelle dispersion
-du droit de propriété !
+du droit de propriété!
 
 Certes, lorsque les grands juristes de la
 révolution sociale, lorsque les grands organisateurs
@@ -3584,9 +3584,9 @@ Ces servitudes sont très diverses. Tantôt elles ont
 pour objet de rendre possible à un individu
 l’exercice de son droit, qui serait supprimé par
 l’exercice entier du droit de propriété de ceux qui
-l’entourent. Ainsi le droit de passage :
+l’entourent. Ainsi le droit de passage:
 
-Article 682 : « Le propriétaire dont les fonds
+Article 682: « Le propriétaire dont les fonds
 sont enclavés et qui n’a sur la voie publique aucune
 issue, ou qu’une issue insuffisante pour
 l’exploitation, soit agricole, soit industrielle de
@@ -3600,11 +3600,11 @@ force naturelle qui doit être commune à plusieurs.
 « Celui dont une eau courante traverse l’héritage
 peut en user dans l’intervalle qu’elle y parcourt,
 mais à la charge de la rendre, à la sortie de son
-fonds, à son cours ordinaire ; — S’il s’élève une
+fonds, à son cours ordinaire; — S’il s’élève une
 contestation entre les propriétaires auxquels ces
 eaux peuvent être utiles, les tribunaux, en
 prononçant, doivent concilier l’intérêt de
-l’agriculture avec le respect dû à la propriété. »
+l’agriculture avec le respect à la propriété. »
 
 Tantôt elle a pour objet d’assurer, par le concours
 forcé de divers propriétaires, ce qui est la
@@ -3613,7 +3613,7 @@ vertu de l’article 664, « lorsque les différents étages d’une
 maison appartiennent à divers propriétaires, si les
 titres de propriété ne règlent pas le mode de
 réparations et reconstructions, elles doivent être
-faites ainsi qu’il suit :
+faites ainsi qu’il suit:
 
 « Les gros murs et le toit sont à la charge de tous
 les propriétaires, chacun en proportion de la
@@ -3623,14 +3623,14 @@ valeur de l’étage qui lui appartient.
 sur lequel il marche.
 
 « Le propriétaire du premier étage fait l’escalier
-qui y conduit ; le propriétaire du second étage
+qui y conduit; le propriétaire du second étage
 fait, à partir du premier, l’escalier qui conduit
-chez lui ; et ainsi de suite. »
+chez lui; et ainsi de suite. »
 
 Voilà certes des rapports de propriété assez
 compliqués. Il y a dans cette maison des parts de
-propriété individuelle : c’est chaque étage. Puis
-une sorte d’organisme commun : le toit, les gros
+propriété individuelle: c’est chaque étage. Puis
+une sorte d’organisme commun: le toit, les gros
 murs, qui doivent être entretenus par tous selon
 des règles spéciales tracées par la loi.
 
@@ -3640,7 +3640,7 @@ mécanisme supposé de la propriété sociale dans une
 catégorie déterminée d’objets, nous imaginions un
 enchevêtrement des obligations et des droits
 analogue à celui que l’article 664 crée pour la
-propriété bourgeoise d’une maison !
+propriété bourgeoise d’une maison!
 
 De même, lorsque peu à peu les petits propriétaires
 paysans, sans renoncer encore à l’individualité
@@ -3675,7 +3675,7 @@ Mais au moment où tous les partis se dressent
 contre nous comme les gardiens de la *propriété individuelle*, il n’est point inutile, pour
 constater le néant de la formule et l’équivoque
 de leurs pensées, de constater que la société
-bourgeoise elle-même n’a pu assurer son propre
+bourgeoise elle-même n’a assurer son propre
 fonctionnement sans soumettre la *propriété individuelle* à des démembrements, à des
 restrictions, à des règles qui semblent annoncer
 un droit social nouveau.
@@ -3684,7 +3684,7 @@ Ce que j’ai dit de l’usufruit, des droits d’usage
 et d’habitation, des servitudes, s’applique aussi à
 l’hypothèque. Par celle-ci, la dette d’un individu
 envers un autre individu s’incorpore à un domaine.
-Elle ne fait plus qu’un avec le domaine ; elle le
+Elle ne fait plus qu’un avec le domaine; elle le
 suit et pèse sur lui, quel que soit l’acquéreur.
 C’est vraiment encore un démembrement de la
 
@@ -3715,7 +3715,7 @@ individuels bourgeois se rencontrent dans une même
 propriété, et n’y coexistent qu’en la démembrant.
 
 La propriété individuelle bourgeoise n’est donc
-pas un bloc homogène : elle-même, bien des fois,
+pas un bloc homogène: elle-même, bien des fois,
 fêlures dans le code bourgeois. Et, même au point
 de vue du code civil, les partis qui se donnent, en
 une formule générale, comme les défenseurs de la
@@ -3732,7 +3732,7 @@ prélèvements de tout ordre exercés par le seigneur
 ont pour but d’assurer le pouvoir du seigneur.
 Quand la puissance royale commence à grandir,
 c’est par les rois qu’est levée une partie de
-l’impôt ; c’est à assurer et à développer leur
+l’impôt; c’est à assurer et à développer leur
 pouvoir que l’impôt est consacré. De même, dans
 une société comme la nôtre, où la puissance de la
 classe possédante, bourgeoise et capitaliste, est
@@ -3783,7 +3783,7 @@ recettes des départements et des communes dépassent
 s’élève à plus de 4 milliards par année. Or,
 d’après les statistiques les plus sérieuses, le
 capital de la France s’élève à 200 ou
-milliards ; et le revenu total annuel de la France,
+milliards; et le revenu total annuel de la France,
 revenus des capitaux, revenus du travail, s’élève
 
 *C’est dire que l’impôt prélève tous les ans un*
@@ -3825,7 +3825,7 @@ grandit en nombre, en organisation, en conscience.
 
 Or, à mesure que la démocratie et le prolétariat
 accroîtront leur influence sur l’État moderne, ils
-accroîtront par là même leur influence et leurs
+accroîtront par même leur influence et leurs
 prises sur le budget de l’État moderne transformé. Ils en réduiront le plus possible les dépenses de
 classe, pour développer les dépenses d’intérêt
 commun, et pour tourner à l’émancipation de la
@@ -3849,11 +3849,11 @@ collective d’État, une substance collective de
 propriété, que la démocratie sociale pourra peu à
 peu assimiler en propriété communiste.
 
-Si la formule des radicaux : *maintien de la propriété individuelle*, a un sens pour leur
+Si la formule des radicaux: *maintien de la propriété individuelle*, a un sens pour leur
 esprit, ils doivent désirer que la propriété
 collective d’État constituée par l’impôt reste le plus près possible
 de la propriété individuelle, le plus éloignée
-possible de la propriété sociale et commune. Or je
+possible de la propriété sociale et commune. je
 prends, à titre d’exemple, la combinaison proposée
 par le ministre des finances pour les retraites
 
@@ -3861,7 +3861,7 @@ Aujourd’hui, dans le budget de l’État, la partie la
 plus bourgeoise assurément et la plus imprégnée de
 propriété individuelle, c’est la partie qui est
 consacrée au service de la dette, au payement des
-rentes ; car d’abord, c’est là une des forces les
+rentes; car d’abord, c’est une des forces les
 plus constantes, les plus certaines de la
 bourgeoisie, et en second lieu, les porteurs de
 rentes ont des titres individuels, des créances
@@ -3869,9 +3869,9 @@ individuelles sur l’État.
 
 Supposez au contraire que la loi institue un
 régime obligatoire de retraite pour tous les
-salariés ; que par un versement obligatoire des
+salariés; que par un versement obligatoire des
 salariés et des employeurs et par une contribution
-de l’État, elle constitue une caisse de retraites ;
+de l’État, elle constitue une caisse de retraites;
 que les fonds de cette caisse soient capitalisés,
 et que les capitaux ainsi accumulés soient
 employés à acheter de la rente française. Supposez
@@ -3879,17 +3879,17 @@ qu’ainsi la totalité ou la presque totalité, ou, si
 l’on veut, une très grande partie de la rente
 française soit devenue la propriété de la caisse
 générale des retraites, et par elle de l’ensemble
-des travailleurs. Que sera-t-il advenu ? En
-apparence le budget n’aura point été modifié ;
+des travailleurs. Que sera-t-il advenu? En
+apparence le budget n’aura point été modifié;
 cette partie du budget, arrérages des rentes diverses, n’aura pas changé de physionomie. Mais, en réalité,
 la partie du budget consacrée au service de la rente
 se sera-t-elle rapprochée ou se sera-t-elle
-éloignée de la propriété individuelle ?
+éloignée de la propriété individuelle?
 
 Je le demande aux radicaux, qui ne peuvent
 trouver ma supposition vaine, puisqu’elle répond
 au projet que soutiennent la plupart d’entre eux.
-Je le demande à l’éminent rapporteur M Guieysse,
+Je le demande à l’éminent rapporteur Guieysse,
 qui est certainement un des plus vigoureux esprits
 du parti radical. Et je les défie de contester que
 par la loi qu’ils soutiennent, et que c’est leur
@@ -3908,14 +3908,14 @@ caractère beaucoup plus marqué de propriété
 
 D’abord, c’est selon les modes bourgeois
 d’acquisition que le rentier avait réalisé les
-fonds placés par lui en titres d’état ; puis, c’est
+fonds placés par lui en titres d’état; puis, c’est
 par un acte de sa volonté individuelle qu’il avait
 précisément employé en rentes d’État les fonds
 acquis et possédés par lui. Enfin, il pouvait vendre à son gré, au moment
 choisi par lui, et donner à ses fonds la
 destination nouvelle qui lui plaisait.
 
-Donc, pas un moment il n’a cessé de « disposer »,
+Donc, pas un moment il n’a cessé de « disposer
 et jamais ce qu’on appelle la propriété individuelle
 ne s’est affaibli en ses mains. Au contraire, c’est
 un acte social, c’est une volonté sociale qui crée
@@ -3938,11 +3938,11 @@ propriété individuelle définie par le code civil.
 Et à peine est-elle constituée au nom et au compte
 du salarié, mais par un acte social, qu’elle
 
-Il pourra, par ses camarades délégués dans les conseils de gestion, gérer les fonds de la caisse ;
+Il pourra, par ses camarades délégués dans les conseils de gestion, gérer les fonds de la caisse;
 mais que sera cette participation de l’individu à
 l’immense gestion collective à côté de l’incessante
 faculté de disposer qu’avait tout à l’heure le
-rentier bourgeois ? Et si les conseils de gestion
+rentier bourgeois? Et si les conseils de gestion
 de la caisse emploient les fonds à acheter la rente
 de l’État, qui ne voit que celle-ci, devenue la
 propriété collective et relativement immobile de
@@ -3958,7 +3958,7 @@ héritage, ni par le gain du commerce que les
 salariés recueillent les ressources versées pour
 eux à la caisse. C’est leur qualité de travailleurs,
 c’est leur seul titre d’hommes qui est reconnu par
-la société comme générateur du droit à la retraite ;
+la société comme générateur du droit à la retraite;
 c’est en vertu d’un droit humain, d’un droit social,
 commun à tout homme en tant qu’homme, c’est en
 vertu d’un droit personnel et universel tout
@@ -3968,7 +3968,7 @@ droit à la retraite de tout salarié et la vaste
 propriété qui sert de garantie à ce droit sont institués.
 
 C’est là, avec un inévitable mélange d’éléments
-hétérogènes, une ébauche du droit communiste ;
+hétérogènes, une ébauche du droit communiste;
 c’est un premier fragment du droit à la vie, dont
 l’entière réalisation, dans le sens plein et noble
 du mot vie, serait l’entier communisme.
@@ -3978,13 +3978,13 @@ rentiers bourgeois, sert à assurer le service de
 cette première propriété humaine, j’ai le droit de
 dire que cette partie du budget, sous l’impulsion
 combinée des radicaux et des socialistes, s’éloigne
-aussi de demander aux radicaux : que signifie cette
+aussi de demander aux radicaux: que signifie cette
 formule contre laquelle vous-mêmes vous
 
 Mais encore une fois, et quoi qu’il advienne d’une
 combinaison que je n’ai citée qu’à titre d’exemple,
 il me paraît certain que l’impôt constitue une
-propriété d’État collective ; il est certain que
+propriété d’État collective; il est certain que
 cette propriété d’état, marquée encore aujourd’hui
 de l’empreinte décisive de la propriété bourgeoise
 et d’un profond caractère de classe, évoluera
@@ -3993,7 +3993,7 @@ des prolétaires, vers la propriété sociale et
 
 sous des formes diverses, ce qu’on appelle l'impôt, et que si l’impôt pouvait être considéré comme une
 sorte de propriété collective, ou même comme un
-germe de cette propriété, il y aurait eu de tout
+germe de cette propriété, il y aurait de tout
 temps des germes de communisme.
 
 Ce qui est nouveau, c’est que cette propriété
@@ -4011,7 +4011,7 @@ en opposition avec la forme individuelle de la
 propriété. Ce qui est nouveau et important, c’est
 que cette propriété collective d’état s’accroisse
 et évolue dans une société démocratique où le
-prolétariat grandit en nombre et en force ; c’est,
+prolétariat grandit en nombre et en force; c’est,
 par conséquent, qu’une démocratie toute pénétrée
 de pensée prolétarienne puisse peu à peu aménager
 pour le bien du prolétariat et selon le droit
@@ -4038,11 +4038,11 @@ puissance, un autre droit limite son droit.
 Or, les citoyens français ne peuvent pas disposer
 librement de leurs biens. Ils ne peuvent pas les
 transférer par dons ou legs absolument à qui leur
-plaît : la loi de l’état intervient pour leur dire
+plaît: la loi de l’état intervient pour leur dire
 en partie à qui les transmettre, et selon quelle proportion. Les individus sont tenus de réserver leurs biens
 aux héritiers que la loi désigne, dans l’ordre où
 elle les leur désigne. L’article 731 du code civil
-dit : « les successions sont déférées aux enfants et
+dit: « les successions sont déférées aux enfants et
 descendants du défunt, à ses ascendants et à ses
 parents collatéraux, dans l’ordre et suivant les
 règles ci-après déterminées. »
@@ -4055,7 +4055,7 @@ définit, aux termes mêmes du Code civil, par la
 faculté de disposer, l’État même a une sorte de
 propriété sur tous les biens des citoyens, puisqu’il
 se substitue à eux dans la disposition même de
-leurs biens. Il ne les retient pas pour lui ; il
+leurs biens. Il ne les retient pas pour lui; il
 les transmet à des individus. Mais c’est l’État, et
 non le possédant, qui règle cette transmission.
 C’est donc l’État qui fait, en cet ordre, acte de
@@ -4083,20 +4083,20 @@ Ou du moins, il ne peut en abandonner librement
 qu’une assez faible portion, étroitement limitée
 par la loi.
 
-L’article 913 du code civil dit : « Les libéralités,
+L’article 913 du code civil dit: « Les libéralités,
 soit par actes entre vifs, soit par testament, ne
 pourront excéder la moitié des biens du disposant,
-s’il ne laisse à son décès qu’un enfant légitime ;
-le tiers, s’il laisse deux enfants ; le quart, s’il
+s’il ne laisse à son décès qu’un enfant légitime;
+le tiers, s’il laisse deux enfants; le quart, s’il
 en laisse trois ou un plus grand nombre. »
 
 Ainsi le droit individuel du citoyen français
 sur sa propriété est limité étroitement. En vain
 le paysan propriétaire alléguera-t-il qu’il a peiné
-prodigieusement pour acquérir un petit domaine ;
+prodigieusement pour acquérir un petit domaine;
 que ce domaine ne peut pas sans périr, sans
 perdre beaucoup de sa valeur, se décomposer et
-s’émietter ; qu’il voudrait le réserver à un seul héritier, le plus économe, le plus vaillant, le
+s’émietter; qu’il voudrait le réserver à un seul héritier, le plus économe, le plus vaillant, le
 plus avisé de tous. — La loi, par des raisons
 supérieures d’équilibre social et d’égalité,
 l’oblige à répartir à peu près également entre
@@ -4105,7 +4105,7 @@ par lui seul. En vain les propriétaires paysans de
 Normandie représentèrent-ils à la Constituante, à
 la Législative, à la Convention que d’habitude ils
 mariaient leurs filles, avec une petite dot, hors
-du domaine familial ; qu’ils gardaient auprès
+du domaine familial; qu’ils gardaient auprès
 d’eux leurs fils pour le cultiver, que souvent, par
 le long effort de ces fils, la valeur du domaine
 était accrue, et qu’il était injuste d’admettre
@@ -4119,19 +4119,19 @@ audacieux qui par son initiative aura créé une
 grande industrie voudra-t-il la laisser tout
 entière ou presque tout entière au seul héritier
 capable, selon lui, de la soutenir et de
-l’étendre. Ce n’est pas lui qui décide ; ce n’est
-pas sa volonté qui fait loi ; ce n’est pas lui,
+l’étendre. Ce n’est pas lui qui décide; ce n’est
+pas sa volonté qui fait loi; ce n’est pas lui,
 créateur de cette richesse, qui en dispose à son
 gré. L’État intervient et répartit cette propriété
 dite individuelle selon les règles souveraines
 qu’il a tracées.
 
-Que de fois on nous dit, à nous socialistes :
+Que de fois on nous dit, à nous socialistes:
 « Vous voulez donc par votre système d’égalité
-traiter de même le paresseux et le laborieux ? Votre
+traiter de même le paresseux et le laborieux? Votre
 socialisme n’est qu’une prime à la paresse. »
 
-C’est absurde ; car en appelant tous les citoyens,
+C’est absurde; car en appelant tous les citoyens,
 tous les travailleurs à la propriété collective des
 instruments de travail, nous affranchissons les
 travailleurs de la dîme des parasites, du tribut
@@ -4169,7 +4169,7 @@ mêmes règles de dévolution et de succession.
 On pourrait comprendre, à la rigueur, *au point de vue de la propriété individuelle*, que la loi
 de l’État obligeât le père à transmettre à tous ses
 enfants la part de ses biens que lui-même a reçue
-de ses ascendants. Ce serait là comme une sorte de
+de ses ascendants. Ce serait comme une sorte de
 réserve héréditaire, de patrimoine familial que le
 père transmettrait comme il l’a reçu. Mais pour
 cette part des biens que le père lui-même a acquise,
@@ -4178,7 +4178,7 @@ personnel, peut-être la rançon de sa vie épuisée
 par le souci et le labeur, comment est-il possible,
 sans violer à fond *la propriété individuelle*,
 de ne pas lui en laisser, à lui et à lui seul,
-l’entière disposition ?
+l’entière disposition?
 
 Or, la loi ne connaît point cela. Elle exproprie
 tout citoyen français de la faculté de disposer de
@@ -4186,17 +4186,17 @@ ses biens, quels qu’ils soient, même de ceux qui portent la marque toute vive
 chaude de son effort individuel. L’article 732 du
 code civil, avec une sorte d’impassibilité et
 d’indifférence qui est la négation même du droit
-individuel, dit ceci : « la loi ne considère ni la
+individuel, dit ceci: « la loi ne considère ni la
 nature *ni l’origine* des biens pour en régler
 la succession. » et comme est étroite, dans notre
 code, la subordination du droit individuel au droit
 familial, de la propriété individuelle à la
 propriété familiale constituée par la volonté de
-l’État ! Ce n’est pas seulement envers ses enfants
+l’État! Ce n’est pas seulement envers ses enfants
 vivants que le citoyen est tenu. Ce n’est pas à
 eux seulement qu’il doit réserver son bien, qui
 d’avance est le leur. C’est envers toute la suite
-des générations qu’il est lié : les descendants
+des générations qu’il est lié: les descendants
 des enfants morts, à quelque degré que ce soit,
 sont appelés, par représentation, à succéder de
 droit, comme s’ils étaient l’enfant lui-même.
@@ -4208,14 +4208,14 @@ l’héritage recueilli de leur père et de leur
 grand-père, le bisaïeul est tenu de leur réserver
 leur part. Ainsi, la propriété individuelle est
 grevée d’obligations décisives au profit de la
-famille pour toute la suite des générations ; elle
+famille pour toute la suite des générations; elle
 est hypothéquée, au profit du plus lointain
 avenir, d’une hypothèque éternelle.
 
 Le Code civil prend les précautions les plus
 minutieuses pour défendre la propriété familiale,
 créée par la loi de l’État, contre la volonté du
-possédant individuel. Il va jusqu’à briser, par un
+possédant individuel. Il jusqu’à briser, par un
 effet rétroactif, toutes les transactions qui
 seraient contraires au droit de la propriété
 familiale, supérieur au droit de la propriété
@@ -4236,28 +4236,28 @@ réduite jusqu’à ce qu’elle soit ramenée aux
 
 Ou encore le donateur a disposé du tiers de sa
 fortune, à un moment où il n’avait que deux
-enfants. Il pouvait alors légalement disposer du tiers. Il lui survient un troisième enfant : il ne
+enfants. Il pouvait alors légalement disposer du tiers. Il lui survient un troisième enfant: il ne
 peut plus disposer que du quart. Voilà l’acte de
 donation qui ne vaut plus qu’à proportion du
-quart ; et même si le donataire est entré depuis
+quart; et même si le donataire est entré depuis
 des années en possession de ce qui lui a été donné,
 il faut qu’il subisse la réduction.
 
 Ou encore un citoyen a fait don de sa fortune à
 un moment où, n’ayant ni ascendant ni enfant, il
 pouvait en disposer pleinement. Des enfants lui
-surviennent : la donation se trouve révoquée de
-droit ; le droit de propriété de la famille
+surviennent: la donation se trouve révoquée de
+droit; le droit de propriété de la famille
 rétroagit sur les actes de l’individu jusques avant
 la création de la famille. Même si le donataire,
 ayant ainsi reçu de bonne foi des biens meubles ou
 immeubles, en a disposé, même s’il a vendu
 l’immeuble reçu par lui, même s’il s’est servi de
 ces biens pour reconnaître et garantir la dot de
-sa femme, même alors la donation est révoquée :
-tous les actes qui s’y rattachent tombent ; les
+sa femme, même alors la donation est révoquée:
+tous les actes qui s’y rattachent tombent; les
 tiers acquéreurs de l’immeuble sont obligés de le
-rapporter à la succession ; et la dot de la femme
+rapporter à la succession; et la dot de la femme
 du donataire reste sans garantie. Tout cède, tout
 s’efface devant la puissance du droit familial, de
 la propriété familiale établie par la révolution
@@ -4278,46 +4278,46 @@ l’acte de volonté par lequel il a cru disposer
 d’une partie de ses biens sont sujettes, si loin
 qu’elles s’étendent, à la même caducité.
 
-L’article 920 du code civil dit : « Les
+L’article 920 du code civil dit: « Les
 dispositions, soit entre vifs, soit à cause de
 mort, qui excéderont la quotité disponible, seront
 réductibles à cette quotité lors de l’ouverture
 de la succession. »
 
-L’article 921 : « La réduction des dispositions
+L’article 921: « La réduction des dispositions
 entre vifs ne pourra être demandée que par ceux au
 profit desquels la loi fait la réserve, par leurs
 héritiers ou ayants cause. Les donataires, les
 légataires, ni les *créanciers du défunt* ne
 pourront demander cette réduction ni en profiter. »
 
-Article 922 : « La réduction se détermine en
+Article 922: « La réduction se détermine en
 formant une masse de tous les biens existants au
 décès du donateur ou testateur. On y réunit fictivement ceux dont il a été disposé par donations entre
 vifs, d’après leur état à l’époque des donations,
 *et leur valeur au temps du décès du donateur*.
 On calcule sur tous ces biens, après en avoir
-déduit les dettes, quelle est, eu égard à la
+déduit les dettes, quelle est, égard à la
 qualité des héritiers qu’il laisse, la quotité
-dont il a pu disposer. »
+dont il a disposer. »
 
 Ainsi, même si ce qui a été donné il y a longtemps
 n’excédait pas, au moment où fut faite la
 donation, la quotité dont peut à sa mort disposer
 le donateur, mais si depuis la donation la valeur
 de ce qui a été donné, immeuble ou titre mobilier,
-s’est accrue, il faut qu’il y ait réduction : c’est
+s’est accrue, il faut qu’il y ait réduction: c’est
 sur la valeur qu’a le bien donné, non pas au
 moment de la donation, mais au moment de la mort,
 que se fait le calcul. Tout acte de donation est
 donc frappé d’une incertitude absolue.
 
-L’article 929 dit : « Les immeubles à recouvrer
+L’article 929 dit: « Les immeubles à recouvrer
 par l’effet de la réduction le seront sans charge
 de dettes ou hypothèques créées par le donataire. »
 
 je recommande l’article 930 à ceux qui ont la
-superstition de la propriété individuelle :
+superstition de la propriété individuelle:
 « L’action en réduction ou revendication pourra être
 exercée par les héritiers *contre les tiers détenteurs des immeubles* faisant partie des
 donations et aliénés par les donataires, de la
@@ -4325,9 +4325,9 @@ même manière et dans le même ordre que contre les
 donataires eux-mêmes. »
 
 Et quelle puissance d’effets rétroactifs dans
-l’article 960 que voici :
+l’article 960 que voici:
 
-*« Toutes donations entre vifs faites par
+Toutes donations entre vifs faites par
 personnes qui n’avaient point d’enfants ou de
 descendants actuellement vivants dans le temps de
 la donation, de quelque valeur que ces donations
@@ -4336,7 +4336,7 @@ puissent être, et à quelque titre qu’elles aient
 par la survenance d’un enfant légitime du
 donateur, même d’un posthume, ou par la
 légitimation d’un enfant naturel par mariage
-subséquent, s’il est né depuis la donation. »*
+subséquent, s’il est depuis la donation.
 
 C’est la grande proclamation bourgeoise du droit
 de l’enfant, prélude de la magnifique proclamation
@@ -4344,7 +4344,7 @@ communiste. Avant de naître, avant même d’être
 conçu, avant même que le mariage d’où il doit naître
 soit contracté, l’enfant a un droit préexistant et
 supérieur à tout autre. Il a droit sur la propriété
-de celui dont un jour il doit naître ; et tous les
+de celui dont un jour il doit naître; et tous les
 actes par lesquels, bien avant sa naissance, cette
 propriété a été donnée, tous ces actes sont nuls.
 La propriété individuelle est engagée d’avance
@@ -4374,7 +4374,7 @@ est la garantie du droit préexistant de l’enfant
 des classes possédantes.
 
 Et avec quelle minutie la loi prévient toute
-possibilité de fraude ! Le grand-père pourrait être tenté de favoriser un de ses petits-fils, ou un de
+possibilité de fraude! Le grand-père pourrait être tenté de favoriser un de ses petits-fils, ou un de
 ses neveux, aux dépens des autres. Et pour cela,
 il pourrait donner la portion de bien dont il
 frères et soeurs, avec charge de transmettre de
@@ -4387,7 +4387,7 @@ grand-père à ses descendants immédiats soit ensuite
 répartie également entre tous les petits-fils.
 
 Les articles 1048, 1049 et 1050 du code civil sont
-formels : « Les biens dont les père et mère ont la
+formels: « Les biens dont les père et mère ont la
 faculté de disposer pourront être par eux
 donnés, en tout ou en partie, à un ou plusieurs
 de leurs enfants, par actes entre vifs ou
@@ -4397,7 +4397,7 @@ degré seulement, desdits donataires. — Sera
 valable, en cas de mort sans enfant, la
 disposition que le défunt aura faite, par acte
 entre vifs ou testamentaire, au profit d’un ou
-plusieurs de ses frères ou soeurs, de tout ou partie des biens qui ne sont point réservés par la loi dans sa succession, avec la charge de rendre ces biens aux enfants nés ou à naître, au premier degré seulement, desdits frères ou sœurs donataires. — *Les dispositions permises par les deux articles précédents* *ne seront valables qu'autant que la charge de restitution sera au profit de tous les enfants nés ou à naître du grevé, sans exception d'âge ou de sexe. »*
+plusieurs de ses frères ou soeurs, de tout ou partie des biens qui ne sont point réservés par la loi dans sa succession, avec la charge de rendre ces biens aux enfants nés ou à naître, au premier degré seulement, desdits frères ou sœurs donataires. — *Les dispositions permises par les deux articles précédents* *ne seront valables qu'autant que la charge de restitution sera au profit de tous les enfants nés ou à naître du grevé, sans exception d'âge ou de sexe.
 
 Voilà encore une bien curieuse combinaison de
 propriété, pour assurer contre toute mainmise
@@ -4423,7 +4423,7 @@ du même ordre, qu’il n’y aura ni préférence ni
 privilège. Ainsi, même la quotité disponible,
 soustraite à la première génération à la loi du
 partage égal, y retombe à la seconde. Le
-grand-père a le droit de penser à ses petits-fils ; il a le droit de leur
+grand-père a le droit de penser à ses petits-fils; il a le droit de leur
 faire parvenir, par l’intermédiaire de ses enfants,
 une portion de ses biens sur laquelle ses enfants
 n’auront aucune prise. Mais il n’a le droit de
@@ -4451,7 +4451,7 @@ et des remboursements de rentes. » — Article
 1067. « Cet emploi sera fait conformément à ce qui
 aura été ordonné par l’auteur de la disposition,
 s’il a désigné la nature des effets dans lesquels
-l’emploi doit être fait ; sinon, il ne pourra l’être qu’en immeubles, ou avec privilège sur les
+l’emploi doit être fait; sinon, il ne pourra l’être qu’en immeubles, ou avec privilège sur les
 
 Ainsi, quand le grand-père, après avoir laissé,
 comme la loi l’y oblige, les trois quarts de son
@@ -4460,7 +4460,7 @@ petits-enfants le quart dont il peut disposer, il
 remet ce quart en dépôt aux mains de ses enfants,
 et ceux-ci sont tenus de constituer ce dépôt en
 valeurs définies, résistantes et inaltérables. Ils
-peuvent percevoir les fruits ; mais ils ne peuvent
+peuvent percevoir les fruits; mais ils ne peuvent
 toucher au fond. Et ce dépôt inaltérable,
 inaliénable, dès qu’il parviendra aux
 petits-enfants, sera également partagé entre
@@ -4470,7 +4470,7 @@ propriété familiale fondée et protégée par l’État.
 
 Où donc, dans toutes ces combinaisons, est cette
 faculté de disposer, qui est, selon le Code civil,
-l’essence même de la propriété ? à vrai dire, et à
+l’essence même de la propriété? à vrai dire, et à
 prendre les choses d’ensemble et de haut, la pleine
 propriété individuelle n’existe pas en France.
 Aucun individu n’y a le droit entier de disposer de
@@ -4496,14 +4496,14 @@ sans eux ou même malgré eux, l’emploi de leurs
 Mais comment, par quelles raisons, par quels
 principes la révolution française a-t-elle justifié
 la prodigieuse atteinte portée par ses lois
-successorales à la propriété individuelle ?
+successorales à la propriété individuelle?
 
-M Sagnac écrit dans son livre vraiment
-magistral sur la *Législation civile de la révolution française :*
+Sagnac écrit dans son livre vraiment
+magistral sur la *Législation civile de la révolution française
 
 Après avoir fortifié le droit de propriété, les
 révolutionnaires l’affaiblissent. L’individu a
-bien le pouvoir d’user et d’abuser de ses biens ;
+bien le pouvoir d’user et d’abuser de ses biens;
 mais c’est un droit essentiellement viager qui ne
 doit jamais nuire à la famille et à la société.
 au-dessus de l’individu sont des groupes naturel
@@ -4527,7 +4527,7 @@ ne fit que formuler en lois les principes affirmés
 dans toutes les assemblées de la révolution. Ces
 lois, au point de vue de la transmission des biens,
 ne se bornaient pas à réduire le droit de la
-propriété individuelle : elles le supprimaient
+propriété individuelle: elles le supprimaient
 
 Tandis qu’aujourd’hui le père peut disposer de la
 moitié de son bien s’il a un enfant, du tiers s’il
@@ -4539,14 +4539,14 @@ mort, soit entre vifs, soit par donation
 contractuelle en ligne directe, est abolie, et
 que, en conséquence, tous les descendants auront
 une portion égale sur les biens des ascendants ».
-Le père ne peut favoriser aucun de ses fils ; le
+Le père ne peut favoriser aucun de ses fils; le
 grand-père ne peut favoriser aucun de ses
 petits-fils. Tous, ils recevront absolument,
 mathématiquement, part égale. C’est la suppression
 complète du droit de tester, du droit de disposer
 en ligne directe. à l’égard des fils ou des
 petits-fils, la volonté individuelle de l’ascendant
-ne compte pas : il n’est pas vraiment propriétaire ;
+ne compte pas: il n’est pas vraiment propriétaire;
 il n’est que le gérant d’une propriété sur laquelle tous les
 descendants du même degré ont, par la loi de
 l’État, un droit égal et souverain. Et non
@@ -4575,7 +4575,7 @@ disposer du dixième que lui laisse la loi, il faut
 qu’il le porte hors du cercle de ses héritiers, il
 faut qu’il le donne ou à des parents plus éloignés
 ou à des étrangers. Et ainsi la loi travaille doublement à la dispersion,
-au morcellement de la fortune du père : d’abord en
+au morcellement de la fortune du père: d’abord en
 instituant entre tous les enfants le partage
 rigoureusement égal des neuf dixièmes de la
 fortune, et puis en obligeant le père, s’il ne veut
@@ -4610,13 +4610,13 @@ est, le Code civil de la Convention ruine à fond
 toute une partie essentielle des droits dont
 l’ensemble constitue la propriété individuelle.
 La faculté de disposer, qui est l’essence même de
-la propriété individuelle, n’est pas simple : elle
+la propriété individuelle, n’est pas simple: elle
 peut s’exercer sous diverses formes et en diverses
 directions. La convention élimine une de ces
-formes, ferme une de ces directions ; et
-M Sagnac, résumant en ce point l’œuvre
-révolutionnaire, a pu écrire sans aucun parti pris
-de système :
+formes, ferme une de ces directions; et
+Sagnac, résumant en ce point l’œuvre
+révolutionnaire, a écrire sans aucun parti pris
+de système:
 
 La fortune appartient moins à l’individu qu’à la
 famille, c’est-à-dire à tous les parents, si
@@ -4626,7 +4626,7 @@ droit absolu d’user, d’abuser, de disposer, que
 le sixième ou le dixième de son avoir, et encore
 ne peut-il faire servir cette portion disponible
 à détruire « la sainte égalité » entre les
-successeurs ; de sorte que s’il ne la laisse pas
+successeurs; de sorte que s’il ne la laisse pas
 à ses héritiers, ce qui serait préférable, il la
 donnera nécessairement à d’autres personnes, ce
 qui divisera toujours les richesses.
@@ -4650,7 +4650,7 @@ au mois de novembre 1793 seront réglées par la loi
 nouvelle. Toutes les donations, tous les testaments
 par lesquels les citoyens auront disposé de plus du
 sixième ou du dixième de leurs biens, sont
-annulés ; toute inégalité de partage entre les
+annulés; toute inégalité de partage entre les
 enfants est rétroactivement abolie. Les aînés ou
 ceux qui ont reçu plus que leur part sont tenus de
 rapporter immédiatement à la masse, et un nouveau
@@ -4658,9 +4658,9 @@ partage est fait, dans lequel les cadets, les
 déshérités, les moins favorisés reçoivent leur
 égale et juste part. Ainsi, toute la vie sociale
 depuis quatre ans est bouleversée et renouvelée
-jusqu’en son fond ; tous les rapports domestiques
-sont modifiés ; tous les rapports de propriété sont
-changés ; toutes les racines de la volonté
+jusqu’en son fond; tous les rapports domestiques
+sont modifiés; tous les rapports de propriété sont
+changés; toutes les racines de la volonté
 individuelle sont arrachées, et c’est un droit
 social nouveau qui, sous la forme de la propriété familiale et
 de l’égalité forcée du partage, chasse, pour ainsi
@@ -4668,7 +4668,7 @@ dire, le droit absolu de la propriété
 
 Nous opposera-t-on que ces dispositions si
 vigoureuses du droit révolutionnaire ont été
-affaiblies depuis et atténuées ? Oui, elles l’ont
+affaiblies depuis et atténuées? Oui, elles l’ont
 été par le consulat, sous l’influence de
 Bonaparte, qui voulait rétablir le despotisme
 paternel comme contrefort du despotisme impérial,
@@ -4678,7 +4678,7 @@ propriété, une république égalitaire. Mais quelles
 que soient les retouches que le consulat a fait
 subir au droit de la Révolution, celui-ci subsiste
 encore, malgré tout, dans le Code civil. La
-réaction consulaire l’a affaibli : elle n’a pu
+réaction consulaire l’a affaibli: elle n’a
 l’abolir. Et aujourd’hui même, dans la matière des
 successions, la *propriété individuelle* ne
 fonctionne pas.
@@ -4691,7 +4691,7 @@ démembrait. Et pour s’y autoriser, elle formulait
 une théorie toute sociale de la propriété. Si
 celle-ci est un prolongement de la personne
 humaine, si elle procède de l'individu, de quel droit enlever aux individus la faculté de
-disposer de leurs biens par donation ou testament ?
+disposer de leurs biens par donation ou testament?
 De quel droit se substituer à eux pour l’emploi
 décisif de leur fortune, pour le choix de ceux qui
 en doivent continuer l’usage et développer les
@@ -4702,10 +4702,10 @@ Robespierre, par ses grands économistes et ses
 grands juristes, par Dupont De Nemours comme par
 Tronchet, que la propriété est un fait social,
 qu’elle dérive de la société, qu’elle n’existe et
-ne peut exister que par la société ; que sans doute
+ne peut exister que par la société; que sans doute
 la société, dans son propre intérêt et dans celui
 de la liberté, a donné à ce fait social la forme
-individuelle ; mais que les individus, ne possédant
+individuelle; mais que les individus, ne possédant
 qu’en vertu de la société, doivent, dans l’usage
 qu’ils font de leur propriété, être soumis aux
 lois, aux conditions que la société leur impose.
@@ -4727,7 +4727,7 @@ même contre lui, la transmission de ses biens. J’ai
 à peine besoin de dire que ce n’est pas pour créer
 une propriété sociale, commune à tous les hommes,
 que la Révolution bourgeoise proclame le caractère
-social de la propriété : c’est seulement pour créer
+social de la propriété: c’est seulement pour créer
 une propriété familiale, commune à tous les
 membres de la famille. Mais maintenant que l’heure
 est venue de créer au profit de tous les hommes,
@@ -4746,13 +4746,13 @@ proclamé le droit de la société à régler la
 transmission des biens, usa-t-elle de ce droit pour
 soumettre toutes les successions à la loi du
 partage égal, pour lier aussi étroitement la
-volonté de l’ascendant ? Elle donna trois raisons,
-l’une de combat, mais d’éternel combat ; les deux
+volonté de l’ascendant? Elle donna trois raisons,
+l’une de combat, mais d’éternel combat; les deux
 
 Elle déclara d’abord que dans les grands
 mouvements humains, dans les grandes crises
 révolutionnaires les pères étaient trop souvent
-attachés au passé ; qu’au contraire, les
+attachés au passé; qu’au contraire, les
 générations nouvelles comprenaient les temps
 nouveaux. Il était donc imprudent de laisser aux
 pères le droit de punir, en les déshéritant, ceux
@@ -4761,7 +4761,7 @@ et se dévouaient au progrès de l’humanité. Laisser
 aux pères l’entière disposition de leurs biens,
 c’était leur permettre de récompenser et de
 fortifier ceux de leurs enfants qui flatteraient
-leurs préjugés ; c’était accroître, par conséquent,
+leurs préjugés; c’était accroître, par conséquent,
 la puissance pesante du passé, la prolonger sur
 la société nouvelle. Le seul moyen d’ouvrir la
 route à l’avenir, c’était d’assurer à tous les
@@ -4769,7 +4769,7 @@ enfants, et à ceux-là mêmes dont la hardiesse
 inquiétait le conservatisme naturel des pères, une égale part d’héritage, un égal moyen d’action.
 Bien mieux, nous l’avons vu, la révolution brise
 tous les actes successoraux qui depuis quatre ans
-ont pu violer l’égalité, et elle n’hésite pas,
+ont violer l’égalité, et elle n’hésite pas,
 selon la parole d’un conventionnel passionné, « à
 poursuivre l’aristocratie jusque dans les
 
@@ -4820,7 +4820,7 @@ d’avarice posthume qui aime à se survivre dans
 l’intégrité du patrimoine remis tout entier ou
 presque tout entier à un des enfants. Alors, dans
 le cœur du père, dans la conscience de l’individu,
-la nature est faussée ; et c’est la loi qui se
+la nature est faussée; et c’est la loi qui se
 fait la gardienne fidèle, l’interprète vraie de
 la nature. C’est la loi qui devient la nature même. C’est l’État qui
 est le grand cœur paternel, toujours sûr, toujours
@@ -4895,7 +4895,7 @@ social en assurant à tous les citoyens sans
 exception aucune le droit plein à la vie par le
 travail, c’est-à-dire le droit au travail et au
 produit intégral du travail. Or, l’État n’a pour
-cela qu’un moyen : c’est d’assurer à tout citoyen
+cela qu’un moyen: c’est d’assurer à tout citoyen
 la copropriété des moyens de travail devenus
 
 Ce n’est plus le droit d’aînesse d’un individu
@@ -4921,9 +4921,9 @@ des biens, à l’intérieur de chaque famille, entre
 tous les descendants d’un même degré, si elle a
 appelé au partage le plus largement possible les
 descendants de divers degrés, c’est pour réaliser
-le plus possible l’égalité des fortunes ; c’est
+le plus possible l’égalité des fortunes; c’est
 pour abaisser, par la division obligatoire, les
-grandes fortunes et les rapprocher des moyennes ;
+grandes fortunes et les rapprocher des moyennes;
 c’est pour abaisser le plus possible les fortunes
 moyennes et les rapprocher des petites.
 
@@ -4961,22 +4961,22 @@ le poursuivre si bien en tous ses déguisements,
 métamorphoses, contrefaçons et succédanés, que
 jamais, sous une forme quelconque, plus moderne et
 bourgeoise, il ne pût reparaître. Or, si le père
-avait pu disposer librement de son bien, qui
+avait disposer librement de son bien, qui
 l’empêchait de constituer au profit de son fils aîné un
 véritable droit d’aînesse, qui fût comme le
 prolongement bourgeois du droit d’aînesse d’ancien
-régime ? Qui l’empêchait même, si sa volonté de
+régime? Qui l’empêchait même, si sa volonté de
 testateur était souveraine, de préciser que le bien
 qu’il léguait à son fils aîné devait être par
 celui-ci légué à son propre fils aîné, et ainsi de
-suite pendant plusieurs générations ?
+suite pendant plusieurs générations?
 
 C’était ce qu’on nommait le droit de substitution,
 qui constituait une propriété intangible, dont la
 volonté du testateur, créant à travers le temps
 toute une série de privilégiés, déterminait
 d’avance, et pour plusieurs générations, la
-transmission héréditaire. C’était là un débris du
+transmission héréditaire. C’était un débris du
 régime féodal, un prolongement de l’esprit de
 caste, qui perpétuait sur la tête d’enfants et de
 petits-enfants privilégiés l’orgueil de la fortune
@@ -5002,23 +5002,23 @@ substitution. (séance du 19 octobre 1792, tome
 Laplaigne ne peut combattre le régime des
 substitutions sans combattre en même temps toute
 faculté de partage inégal. Je ne puis citer ici que
-quelques lignes, mais bien caractéristiques :
+quelques lignes, mais bien caractéristiques:
 
 Sous un régime vraiment républicain et dans un
 pays qui abhorre toute espèce d’aristocratie et
 de despotisme, dans une organisation sociale en
-un mot absolument fondée sur l’ *égalité* — c’est
+un mot absolument fondée sur *égalité* — c’est
 Laplaigne qui a souligné le mot — l’usage de
 pareilles dispositions serait une monstruosité
-politique, *par là même qu’il perpétuerait, avec l’inégalité des partages dans les familles, l’aristocratie des propriétés*, et cumulerait
+politique, *par même qu’il perpétuerait, avec l’inégalité des partages dans les familles, l’aristocratie des propriétés*, et cumulerait
 pendant plusieurs générations sur des têtes
 privilégiées des fortunes capables d’alarmer la
-liberté publique. ... Toutes dispositions de ce genre, ayant pour objet principal d’*empêcher la division des héritages, si favorable, si nécessaire même à la liberté, et de perpétuer ainsi, de degré en degré, le despotisme des propriétés, et par conséquent des personnes,* doivent être enveloppées dans la même proscription.
+liberté publique.... Toutes dispositions de ce genre, ayant pour objet principal d’*empêcher la division des héritages, si favorable, si nécessaire même à la liberté, et de perpétuer ainsi, de degré en degré, le despotisme des propriétés, et par conséquent des personnes,* doivent être enveloppées dans la même proscription.
 
 Comme on voit, la Convention ne peut proscrire les
-substitutions, « reste impur des lois féodales »,
+substitutions, « reste impur des lois féodales
 comme dit Laplaigne, qu’en proscrivant toute
-inégalité de partage ; elle ne peut se défendre
+inégalité de partage; elle ne peut se défendre
 contre le régime féodal qu’en supprimant, au point
 de vue de la transmission des biens, le droit de
 disposer, forme suprême du droit de propriété.
@@ -5027,17 +5027,17 @@ La Convention ne se borna pas à interdire les
 substitutions pour l’avenir. Elle supprima, sans
 indemnité, toutes celles dont les bénéficiaires
 désignés, nés ou à naître, n’étaient pas encore
-entrés en possession ; et ce sera un frappant
+entrés en possession; et ce sera un frappant
 exemple par lequel Lassalle, dans un des plus
 vigoureux chapitres de son livre sur les « Droits
-acquis », illustrera sa théorie révolutionnaire du
+acquis  illustrera sa théorie révolutionnaire du
 
 La Convention était poussée en outre dans cette
 voie par les réclamations des prolétaires, qui
 commençaient à signifier à la révolution qu’ils
 n’entendaient pas être dupes. La Révolution
-répondait : « Pas de loi agraire ; pas d’anarchie ;
-pas de nivellement violent des fortunes ; mais
+répondait: « Pas de loi agraire; pas d’anarchie;
+pas de nivellement violent des fortunes; mais
 nivellement graduel par le partage égal des biens
 des familles entre tous les parents d’un même
 degré. » Je pourrais multiplier les citations et
@@ -5046,7 +5046,7 @@ les preuves.
 Ce qui est advenu de cette promesse et de cette
 espérance, on le sait. Mais ce que je retiens,
 c’est que la Convention a cru, par l’égalité
-familiale, préparer l’égalité sociale : c’est donc qu’elle n’a pas
+familiale, préparer l’égalité sociale: c’est donc qu’elle n’a pas
 craint de toucher, dans un intérêt d’égalité
 sociale, à une partie essentielle du droit de
 propriété individuelle. Et c’est au nom du droit de
@@ -5062,7 +5062,7 @@ production, capable d’assurer l’indépendance de
 tous les travailleurs et de résorber tout le
 privilège capitaliste, invoquent la *propriété individuelle*, ils reprennent, en des temps
 nouveaux et des questions nouvelles, la théorie
-des contre-révolutionnaires : ils refont le
+des contre-révolutionnaires: ils refont le
 discours de Cazalès.
 
 La déclaration des droits de l’homme a proclamé
@@ -5078,14 +5078,14 @@ reçoit l’équivalent de ce que la société lui
 enlève. Mais la société se reconnaît le droit de
 changer, aux mains de l’individu, *la forme* de
 sa propriété. Il avait un champ, une maison, un
-jardin, une fabrique : la loi lui enlève son
+jardin, une fabrique: la loi lui enlève son
 champ, sa maison, son jardin, sa fabrique, et elle
 lui remet une valeur d’un tout autre ordre, une
 somme d’argent ou un titre de rente. En vain le
 propriétaire protestera-t-il qu’il tient à la
 forme particulière de sa propriété plus qu’à la
 valeur même de cette propriété. La loi, dans l’intérêt de la société,
-l’exproprie de ses habitudes ; elle fait violence à
+l’exproprie de ses habitudes; elle fait violence à
 sa volonté. Et ici encore, dans le *code bourgeois lui-même*, et dans l’intérêt de la société
 bourgeoise, le droit social limite ou refoule le
 droit absolu de la propriété individuelle.
@@ -5095,7 +5095,7 @@ d’expropriation ne sort point de la sphère de la
 propriété individuelle. C’est l’individu qui
 continue à posséder. Seulement, ce qu’il possédait
 sous une forme, il le possède maintenant sous une
-autre. De là à l’expropriation socialiste, qui
+autre. De à l’expropriation socialiste, qui
 changera le système de la propriété, qui fera
 passer la propriété des moyens de production des
 abîme. Et cet abîme, seul le mouvement de classe
@@ -5116,15 +5116,15 @@ Convention de fixer par la loi le prix des denrées,
 la Convention fut d’abord prise de scrupule. La
 majorité disait qu’après avoir réglé par la loi le
 prix des grains, il faudrait régler aussi le prix
-de tous les produits de la terre ; mais fixer ainsi
+de tous les produits de la terre; mais fixer ainsi
 par la loi le prix des produits du sol, n’est-ce
-point attenter au droit de propriété ? Si le
+point attenter au droit de propriété? Si le
 propriétaire ne peut plus vendre ses denrées au
 prix déterminé par le seul jeu de l’offre et de la
 demande, s’il ne peut les aliéner qu’à un prix
 fixé par la société elle-même, c’est la société
 qui devient vraiment propriétaire des produits du
-sol : elle en dispose, aux lieu et place du
+sol: elle en dispose, aux lieu et place du
 propriétaire individuel, et celui-ci perd cette
 *faculté de disposer* qui caractérise la
 propriété individuelle. Ainsi, la Convention, à
@@ -5134,28 +5134,28 @@ des grains, qui devait la conduire bientôt à
 l’établissement du *maximum* pour toutes les
 
 Mais que répondaient les plus ardents
-révolutionnaires ? — Oui, en fixant le prix des
+révolutionnaires? — Oui, en fixant le prix des
 denrées, l’État se substitue, dans la propriété
-de ces denrées, au propriétaire individuel ; mais
+de ces denrées, au propriétaire individuel; mais
 il l’indemnise par le prix même qu’il a fixé, et
 puisque la loi permet l’expropriation du fonds
 moyennant indemnité, pourquoi ne permettrait-elle
-pas de même l’expropriation des produits du fonds ? Beffroy, dans la
+pas de même l’expropriation des produits du fonds? Beffroy, dans la
 séance du 8 décembre 1792, donna à l’argument une
-forme saisissante : « Nous nous plaignons, nous, de
+forme saisissante: « Nous nous plaignons, nous, de
 ce qu’on regarde la propriété des grains comme
 plus sacrée que les autres. *en effet, l’État
 a-t-il besoin de ma maison, de mon jardin, de
-mon champ, il s’en empare*. eh ! Puis-je
+mon champ, il s’en empare*. eh! Puis-je
 jamais être indemnisé de mes habitudes, des
 aisances de mon domicile, des bizarreries mêmes de
-sa distribution ? Puis-je jamais être indemnisé de
+sa distribution? Puis-je jamais être indemnisé de
 l’appropriement de mon jardin à mes goûts, à mon
-caractère, à ma fortune ? *et s’il est vrai que
+caractère, à ma fortune? *et s’il est vrai que
 la société ne viole pas la propriété en
 s’emparant légalement de la matière qui produit
 parce qu’elle en paie la valeur, n’en sera-t-il
-pas de même de la production ?* »
+pas de même de la production  »
 
 Ainsi, par une extension soudaine du droit
 d’expropriation pour cause d’utilité publique,
@@ -5171,13 +5171,13 @@ révolutionnaires bourgeois eux-mêmes, des grandes
 conséquences qui peuvent sortir de ce principe,
 des vastes expropriations légales qui peuvent sortir de ce germe
 
-La propriété individuelle résistait ; les
+La propriété individuelle résistait; les
 habitudes, violentées par la loi d’expropriation,
 luttaient et rusaient. La clause de la Déclaration
 des Droits qui exigeait que l’indemnité fût
 *préalable* favorisait cette résistance des
 propriétaires. Ils chicanaient sur le chiffre de
-l’indemnité ; ils suscitaient procès sur procès, et
+l’indemnité; ils suscitaient procès sur procès, et
 à force d’artifices de procédure, ils parvenaient
 souvent à lasser l’État.
 
@@ -5188,19 +5188,19 @@ assaut général de l’Europe contre-révolutionnaire.
 Il fallait créer à la hâte des moyens de défense,
 dresser sans délai des fortifications. Que fût-il
 advenu si les propriétaires, par des ruses d’avoué,
-avaient retardé les expropriations nécessaires ? La
+avaient retardé les expropriations nécessaires? La
 loi de 1831 décide que pour les travaux intéressant
 la défense nationale, l’État n’attendra pas que les
 conflits soulevés par les propriétaires sur le
 montant de l’indemnité soient réglés. Il pourra
 proclamer l’urgence et prendre possession des
-terrains dont il aura besoin ; l’indemnité sera
-réglée plus tard ; elle aura donc cessé d’être
+terrains dont il aura besoin; l’indemnité sera
+réglée plus tard; elle aura donc cessé d’être
 
 Ainsi le propriétaire individuel se trouve d’emblée
-en face du fait acquis ; il est exproprié de son
+en face du fait acquis; il est exproprié de son
 bien avant de savoir quel chiffre d’indemnité lui
-sera consenti. Défense nationale, c’est entendu ;
+sera consenti. Défense nationale, c’est entendu;
 et sans doute, cette grande excuse était nécessaire
 pour violer une garantie essentielle donnée à la
 propriété par la Déclaration des Droits de l’homme
@@ -5210,20 +5210,20 @@ grandes compagnies capitalistes vont passer.
 
 Il y eut sous Louis-Philippe un grand essor des
 travaux publics. La bourgeoisie financière,
-industrielle et censitaire, multiplie les canaux ;
+industrielle et censitaire, multiplie les canaux;
 elle entreprend, à grand renfort de primes d’État,
 de subventions et de garanties d’intérêt, la
-construction des voies ferrées. Mais quoi ! Tous
+construction des voies ferrées. Mais quoi! Tous
 ces canaux projetés, toutes ces voies ferrées qui
 vont sillonner le territoire vont bouleverser les
-propriétés individuelles ! Que de jardins emportés
+propriétés individuelles! Que de jardins emportés
 domaines, petits ou grands, traversés et coupés en
-deux ! Et si les propriétaires résistent, s’ils
+deux! Et si les propriétaires résistent, s’ils
 épuisent à propos du chiffre de l’indemnité tous
-les délais de procédure, que de temps perdu ! Les
+les délais de procédure, que de temps perdu! Les
 lignes de chemins de fer concédées ne pourront
 entrer en construction que dix ans douze ans après
-leur concession ; il suffira de l’obstination de
+leur concession; il suffira de l’obstination de
 quelques possédants, sur le trajet projeté, pour tout traîner en longueur, pour user
 les capitaux dans une attente improductive, ou
 pour obliger la ligne à des détours absurdes et
@@ -5255,21 +5255,21 @@ s’écriaient-ils que la charte, gardienne de la propriété, était violée, q
 était menacée. Les exigences combinées de la
 civilisation et du capitalisme emportaient tout.
 
-Oh ! Je sais bien qu’ici encore nous ne sommes
+Oh! Je sais bien qu’ici encore nous ne sommes
 pas sortis du système de la propriété
 individuelle. La valeur de la propriété subsiste
-aux mains des individus ; la forme seule en est
+aux mains des individus; la forme seule en est
 changée. Mais quand ce changement de forme se
 produit dans de telles proportions, quand pour
 les travaux des communes, de l’État, des
 départements, des grandes compagnies
 concessionnaires, l’expropriation pour cause
-d’utilité publique fonctionne ; quand des millions
+d’utilité publique fonctionne; quand des millions
 de propriétaires sont obligés d’abandonner leur
 propriété à la puissance sociale, même contre
-indemnité ; quand tous les liens d’habitude et
+indemnité; quand tous les liens d’habitude et
 d’affection par lesquels la propriété tient au
-cœur de l’homme sont brisés ; quand le capitalisme
+cœur de l’homme sont brisés; quand le capitalisme
 lui-même, ne tenant compte ni des convenances, ni
 des souvenirs, ni même des intérêts, substitue une
 valeur abstraite et indifférente à la propriété
@@ -5278,17 +5278,17 @@ faisait corps avec l’individu, j’ai le droit de
 dire que la société bourgeoise elle-même a créé,
 sous sa légalité propre, des précédents
 
-Que fera la Révolution sociale déjà commencée ?
+Que fera la Révolution sociale déjà commencée?
 Que fera la Révolution communiste, quand elle
-sera au terme de son développement ? Sans doute
-elle créera un système tout nouveau de propriété :
+sera au terme de son développement? Sans doute
+elle créera un système tout nouveau de propriété:
 elle substituera la propriété commune des moyens
 de production à la propriété capitaliste et
 bourgeoise. Mais, *au regard des individus expropriés*, il se peut très bien qu’il y ait
 simple changement de forme de propriété. Je ne
 veux pas aujourd’hui toucher après Marx, après
 Liebknecht, après Vandervelde, à la question de
-l’indemnité ; mais rien n’empêche de concevoir que
+l’indemnité; mais rien n’empêche de concevoir que
 les détenteurs actuels de la propriété reçoivent,
 par exemple, pendant une certaine période, une
 assignation sur les produits de la production
@@ -5297,9 +5297,9 @@ l’indemnité révolutionnaire.
 
 Quelle objection juridique pourrait opposer la
 société bourgeoise après les précédents légaux
-qu’elle-même a créés ? La notion de *l’utilité publique*, introduite dans le code bourgeois
+qu’elle-même a créés? La notion de *l’utilité publique*, introduite dans le code bourgeois
 pour limiter le droit absolu de la propriété
-individuelle, va se transformant et s’élargissant
+individuelle, se transformant et s’élargissant
 à mesure que se transforme la société elle-même.
 Les révolutionnaires bourgeois de la Constituante
 se seraient révoltés, en 1789, si on leur avait
@@ -5323,7 +5323,7 @@ d’*utilité publique*, règle et mesure du droit
 
 Maintenant n’avons-nous pas le droit de dire que
 l’utilité publique exige l’expropriation générale
-communauté organisée ? Oui, il est d’utilité
+communauté organisée? Oui, il est d’utilité
 publique que le prolétariat soit appelé à la pleine
 indépendance et à la grande vie de la coopération
 sociale. Il est d’utilité publique que la
@@ -5332,7 +5332,7 @@ citoyen et la sujétion économique du salarié
 prenne fin. Il est d’utilité et même de nécessité
 publique que la lutte des classes, qui est aujourd’hui la condition même du progrès,
 mais qui est pour l’humanité une tristesse et une
-honte, ait un terme ; et elle ne peut finir que
+honte, ait un terme; et elle ne peut finir que
 par la disparition même des classes, par la
 transformation de la propriété de classe en
 propriété commune et humaine. C’est donc
@@ -5345,7 +5345,7 @@ du code bourgeois que les juristes de la révolution
 sociale pourront ménager le passage de la légalité
 bourgeoise à la légalité communiste.
 
-Le grand ministre anglais, M Gladstone, étant
+Le grand ministre anglais, Gladstone, étant
 chef du gouvernement, avait proposé un vaste plan
 d’expropriation, qui participait à la fois de
 l’expropriation légale et de l’expropriation
@@ -5353,14 +5353,14 @@ révolutionnaire. C’est, je crois, le projet le plus
 audacieux qui ait été conçu par un gouvernement
 depuis que la révolution française a saisi tout le
 domaine d’église et quatre milliards de biens des
-émigrés. M Gladstone se proposait d’exproprier
+émigrés. Gladstone se proposait d’exproprier
 tous les landlords, tous les grands propriétaires
 anglais qui détiennent la plus large part de la
 terre d’Irlande. Ayant tenté inutilement, ou par la répression, ou par les
 palliatifs, de ramener en Irlande la paix sociale,
 ayant tenté vainement de protéger les fermiers
 irlandais sans indisposer les propriétaires
-anglais, M Gladstone était arrivé à cette
+anglais, Gladstone était arrivé à cette
 conviction que l’ordre social ne serait assuré en
 Irlande que si la terre irlandaise appartenait
 aux Irlandais. Il ne voulait pas, et il ne pouvait
@@ -5372,16 +5372,16 @@ l’Irlande elle-même. C’est l’Irlande, comme état
 relativement autonome, qui eût géré ce domaine,
 qui l’eût ou affermé, ou vendu par parcelles au
 
-Mais qui porterait les frais de l’opération ? Il ne
+Mais qui porterait les frais de l’opération? Il ne
 fallait pas songer à les faire porter à
-l’Angleterre ; jamais le contribuable anglais
+l’Angleterre; jamais le contribuable anglais
 n’aurait consenti à payer aux landlords, pour le
 compte des Irlandais et à leur profit, la terre
 d’Irlande. Et d’autre part, si l’Irlande était
 tenue de dédommager l’Angleterre, elle était
 obligée d’imposer à ses fermiers de très lourds
 fermages, et la misère continuait à accabler le
-peuple irlandais. M Gladstone imagina une
+peuple irlandais. Gladstone imagina une
 combinaison hardie, qui consistait à indemniser les
 landlords en capital, et non pas en revenu. Il
 calcula, ou il prétendit, que les domaines irlandais rapportaient aux landlords cinq pour cent. Ainsi,
@@ -5390,7 +5390,7 @@ fallait multiplier par vingt le revenu de ce
 domaine. Un domaine qui était affermé par le
 landlord cinq mille francs — pour compter en
 monnaie française — était donc supposé avoir une
-valeur de cent mille francs. M Gladstone, en
+valeur de cent mille francs. Gladstone, en
 expropriant les landlords, décidait de leur donner
 non pas l’équivalent du revenu perçu par eux, mais
 l’équivalent du capital possédé par eux. Il leur
@@ -5403,7 +5403,7 @@ Or, en Angleterre, un capital de cent mille francs
 placé en rente ne rapporte que deux et demi pour
 cent. Ainsi, à un landlord qui possédait un capital
 terrien de cent mille francs, rapportant cinq mille
-francs, M Gladstone remettait, sous forme de
+francs, Gladstone remettait, sous forme de
 valeurs d’état, un capital égal de cent mille
 francs, mais qui ne rapportait que deux mille cinq
 cents francs. Du coup, l’Irlande, pour dédommager
@@ -5416,8 +5416,8 @@ francs. Le fermier irlandais était donc libéré de la
 moitié de son fardeau. Le contribuable anglais
 n’était pas grevé d’un centime. Et quant au
 landlord, légalement exproprié, n’avait-il pas
-reçu *en capital* l’équivalent de sa propriété ?
-M Gladstone faisait profiter le peuple irlandais
+reçu *en capital* l’équivalent de sa propriété?
+Gladstone faisait profiter le peuple irlandais
 de la différence entre le taux de capitalisation
 des revenus fonciers en Irlande, et le taux de
 capitalisation des revenus mobiliers en
@@ -5468,7 +5468,7 @@ la propriété anonyme et les sociétés par actions a
 son expression juridique dans le titre du code
 relatif aux sociétés. De la forme toute personnelle
 de la propriété à sa forme anonyme, la distance
-est immense : des caractères tout nouveaux
+est immense: des caractères tout nouveaux
 apparaissent avec celle-ci.
 
 Quand l’homme possède personnellement un domaine
@@ -5483,11 +5483,11 @@ substance et de force. Le blé germé de l’effort
 paysan nourrit la force paysanne. L’homme fait la
 terre et la terre fait l’homme. Même quand le
 propriétaire du domaine ne le cultive pas lui-même, il est rare qu’il n’y soit pas attaché
-par des fibres profondes : ce domaine qui pour
+par des fibres profondes: ce domaine qui pour
 l’indifférent ressemble sans doute à tous les
 domaines a pour celui qui dès longtemps le possède
 une physionomie particulière et un langage secret.
-C’est là qu’il a joué, grandi, rêvé, aimé ; et ses
+C’est qu’il a joué, grandi, rêvé, aimé; et ses
 souvenirs ont pris la forme de cet horizon.
 
 Entre le propriétaire industriel ou marchand et sa
@@ -5502,14 +5502,14 @@ eux-mêmes au fonctionnement de ce mécanisme
 compliqué et souvent terrible où leur fortune, leur
 vie, leur *honneur* même sont engagés, le capital
 industriel ou commercial qu’ils mettent en œuvre
-est pénétré de leur pensée et de leur effort ; il
+est pénétré de leur pensée et de leur effort; il
 porte la marque de leur personne. Ainsi, sous cette
 forme encore, il y a un rapport étroit entre le
 propriétaire individuel et l’objet de sa propriété. Il est clair que le rapport se relâche à mesure
-que cette propriété s’étend ; et il vient un point
+que cette propriété s’étend; et il vient un point
 de croissance de la grande industrie où elle
 dépasse les facultés d’action et de contrôle du
-possédant ; il est obligé de constituer une sorte d’administration industrielle par l’intermédiaire
+possédant; il est obligé de constituer une sorte d’administration industrielle par l’intermédiaire
 de laquelle il gère de haut son capital. Mais
 enfin, le contact entre le possédant et sa propriété
 n’est pas entièrement aboli, et dans la propriété
@@ -5528,21 +5528,21 @@ années avant qu’elle soit possible. Comme le
 domaine représente une unité qu’on ne peut pas
 toujours décomposer, comme un organisme industriel
 ou commercial ne peut se démembrer, il faut
-trouver un preneur qui achète en bloc ; il faut
+trouver un preneur qui achète en bloc; il faut
 que le vendeur trouve une autre personne qui se
 substitue pleinement et exactement à lui. Et c’est
-souvent bien malaisé. De là une grande lenteur des
+souvent bien malaisé. De une grande lenteur des
 transactions immobilières et foncières. De là,
 pour les industries et les commerces qui n’ont pas
 pris encore la forme de la société par actions, la
 difficulté de vendre ou de réaliser. Le propriétaire est ainsi
-lié à sa propriété, assujetti à elle : il ne peut
+lié à sa propriété, assujetti à elle: il ne peut
 pas se dégager à son gré et à son heure du
-mécanisme de propriété qu’il a mis en mouvement ;
+mécanisme de propriété qu’il a mis en mouvement;
 il ne peut pas rappeler, retirer son énergie de
 l’emploi que d’abord il lui a donnée. Il est, en
 quelque mesure, l’homme de telle et telle
-propriété ; il est la propriété de sa propriété. Il
+propriété; il est la propriété de sa propriété. Il
 adhère à sa coquille de propriété.
 
 Mais si, malgré la faculté d’échange et de vente
@@ -5555,32 +5555,32 @@ moyen industriel, le petit et moyen commerçant
 donnent à leurs affaires, ils n’ont à consulter
 qu’eux-mêmes et les nécessités économiques. Ils
 ne sont pas liés par le vote d’une majorité
-d’actionnaires : c’est leur volonté personnelle
-qui décide ; c’est leur action personnelle qui
+d’actionnaires: c’est leur volonté personnelle
+qui décide; c’est leur action personnelle qui
 
 Enfin, et c’est le dernier trait de la propriété
 vraiment personnelle, la responsabilité civile et
 commerciale de l’individu possédant est engagée
 toujours toute entière. L’homme qui a un domaine
 foncier ne peut pas diviser ses responsabilités. Il
-ne peut pas dire : « Voici des dépenses que je fais pour ma vigne. Voici un emprunt que je contracte
+ne peut pas dire: « Voici des dépenses que je fais pour ma vigne. Voici un emprunt que je contracte
 pour la replanter, pour la greffer. Si je ne réussis
-pas, c’est ma vigne seule qui répondra de ma dette :
+pas, c’est ma vigne seule qui répondra de ma dette:
 je réserve l’intégrité de mes champs, de mes prés,
-de mes bois. » Non : il ne peut pas dire cela. C’est
+de mes bois. » Non: il ne peut pas dire cela. C’est
 tout son bien qui répond de sa dette. De même
 l’industriel, le commerçant ne peuvent pas tracer
 dans leur fortune des divisions, des barrières. Ils
 peuvent hypothéquer au profit de tel créancier tel
-immeuble ; mais tant qu’il reste des créances, c’est
+immeuble; mais tant qu’il reste des créances, c’est
 toute leur fortune qui en répond.
 
 En cas de faillite, l’industriel, le commerçant ne
-peuvent pas dire : « C’est pour mon industrie, pour
+peuvent pas dire: « C’est pour mon industrie, pour
 mon commerce que j’ai contracté les obligations
-auxquelles je ne puis suffire : que l’on prenne
+auxquelles je ne puis suffire: que l’on prenne
 tout mon capital industriel et commercial, mes
-fabriques, mes machines, mes matières premières :
+fabriques, mes machines, mes matières premières:
 j’ai des valeurs sur les mines d’or du Transvaal
 qui n’ont aucun rapport avec les opérations pour
 lesquelles j’ai encouru la faillite. Je réserve mes
@@ -5589,13 +5589,13 @@ Non, le commerçant et l’industriel ne peuvent pas
 dire cela. En cas de faillite, ce n’est pas le
 bilan spécial de leur entreprise, c’est le bilan
 général de leur fortune qu’ils devront déposer.
-L’article 439 du code de commerce dit : « La déclaration du failli
-devra être accompagnée du dépôt du bilan ... *Le
+L’article 439 du code de commerce dit: « La déclaration du failli
+devra être accompagnée du dépôt du bilan... *Le
 bilan contiendra l’énumération et l’évaluation de
 tous les biens mobiliers et immobiliers du
 débiteur,* l’état des dettes actives et
 passives, le tableau des profits et pertes, le
-tableau des dépenses. » et l’article 443 dit : « Le
+tableau des dépenses. » et l’article 443 dit: « Le
 jugement déclaratif de la faillite emporte de plein
 droit, à partir de sa date, *dessaisissement
 pour le failli de l’administration de tous ses
@@ -5607,9 +5607,9 @@ et immeubles, c’est sur ses vêtements, sur ses
 livres, sur ses bibelots, comme sur ses terres et
 ses usines ou magasins que l’industriel ou le
 commerçant répond de sa dette. Sa fortune n’est pas
-comme un navire aux cloisons étanches : il n’en
+comme un navire aux cloisons étanches: il n’en
 peut exposer une partie en sauvegardant le reste.
-Tout entière elle est engagée ; tout entière elle
+Tout entière elle est engagée; tout entière elle
 peut sombrer. Tant que la propriété reste vraiment
 et pleinement personnelle, tant qu’elle ne se
 transforme point par le contrat de société, tant
@@ -5625,38 +5625,38 @@ que son bien était sous les scellés.
 
 Voilà donc, avant l’extension du régime des
 sociétés et de l’anonymat, les caractères essentiels
-étroit entre le propriétaire et sa propriété ;
+étroit entre le propriétaire et sa propriété;
 2° ce lien est si fort que, malgré la faculté
 légale et théorique de la vente et de l’échange, la
 propriété est souvent immobilisée aux mains du
-propriétaire ; 3° c’est sous la discipline de la
+propriétaire; 3° c’est sous la discipline de la
 volonté individuelle et isolée du propriétaire
-qu’est la propriété ; 4° c’est toute la propriété
+qu’est la propriété; 4° c’est toute la propriété
 de l’individu, c’est son individualité économique
 toute entière qui répondent de ses engagements.
 
 Or, avec le contrat de société, voici que ces
-caractères s’affaiblissent ; et avec le contrat de
+caractères s’affaiblissent; et avec le contrat de
 société anonyme voici que tous ces caractères sont
 
-Le contrat de société a plusieurs formes : et
+Le contrat de société a plusieurs formes: et
 c’est par des degrés que nous allons passer de la
 propriété personnelle à la propriété anonyme.
 
-L’article 19 du code de commerce dit :
+L’article 19 du code de commerce dit:
 
 « la loi reconnaît trois espèces de sociétés
 
-« la société en nom collectif ;
+« la société en nom collectif;
 
-« la société en commandite ;
+« la société en commandite;
 
-« la société anonyme. "
+« la société anonyme.
 
 Voici la définition donnée par le code de la
-société en nom collectif :
+société en nom collectif:
 
-Article 20. « La société *en nom collectif * est
+Article 20. « La société *en nom collectif est
 celle que contractent deux personnes ou un plus
 grand nombre, et qui a pour objet de faire le
 commerce sous une raison sociale. »
@@ -5665,7 +5665,7 @@ Ici, nous sommes encore le plus près possible de
 la propriété personnelle. Presque tous les
 caractères que j’ai relevés subsistent. D’abord il
 y a un lien étroit entre ces personnes et leur
-propriété : ce sont les personnes associées qui
+propriété: ce sont les personnes associées qui
 s’occupent elles-mêmes de la mise en œuvre de
 leur capital. Et il leur serait aussi malaisé de
 vendre qu’il l’eût été à un seul propriétaire.
@@ -5686,11 +5686,11 @@ de l’association qui lie la volonté de chaque
 associé à la volonté des autres et qui crée entre
 eux une responsabilité solidaire, et la société en
 nom collectif ne supprime pas le caractère
-personnel de la propriété : elle lui donne
+personnel de la propriété: elle lui donne
 seulement la forme de l’association.
 
 Avec la société en commandite, nous faisons un
-pas de plus. L’article 23 la définit ainsi : « La
+pas de plus. L’article 23 la définit ainsi: « La
 *société en commandite* se contracte entre un ou
 plusieurs associés responsables et solidaires, et
 un ou plusieurs associés simples bailleurs de
@@ -5707,21 +5707,21 @@ seuls qualité pour le donner. Ce sont eux qui sont
 responsables, sur tous leurs biens, et
 solidairement, des engagements de la société. Mais,
 à côté d’eux, il y a des associés d’un autre ordre,
-les commanditaires. Ils ne dirigent pas ; ils ne
-gèrent pas ; ils sont, comme dit la loi, de simples
+les commanditaires. Ils ne dirigent pas; ils ne
+gèrent pas; ils sont, comme dit la loi, de simples
 bailleurs de fonds. Ils ne sont pas des
 actionnaires, puisque les actionnaires choisissent
 les administrateurs de l’entreprise, tandis que,
 dans la société en commandite, c’est par l’acte
 même de société que sont constitués les chefs
 responsables de la société. Mais le commanditaire
-prépare et annonce l’actionnaire par deux traits :
+prépare et annonce l’actionnaire par deux traits:
 le défaut de gestion personnelle et la limitation
 des responsabilités pécuniaires.
 
 Évidemment, les commanditaires, étant bailleurs
 de fonds, ont, ou peuvent avoir un rôle important
-dans l’entreprise ; ils en surveillent de
+dans l’entreprise; ils en surveillent de
 près — et de plus près que l’actionnaire — le
 fonctionnement. Mais la loi définit strictement
 leur rôle légal et leur responsabilité légale.
@@ -5729,7 +5729,7 @@ leur rôle légal et leur responsabilité légale.
 Article 25. « Le nom d’un associé commanditaire
 ne peut faire partie de la raison sociale. »
 
-article 26. « *L’associé commanditaire n’est passible des pertes que jusqu’à concurrence des fonds qu’il a mis ou dû mettre dans la*
+article 26. « *L’associé commanditaire n’est passible des pertes que jusqu’à concurrence des fonds qu’il a mis ou mettre dans la*
 
 Article 27. « *L’associé commanditaire ne peut faire aucun acte de gestion, même en vertu de procuration.* »
 
@@ -5746,12 +5746,12 @@ avis et conseils, les actes de contrôle et de
 surveillance n’engagent point l’associé
 
 Comme ici les caractères antérieurs de la
-propriété personnelle vont s’atténuant ! Comme le
+propriété personnelle vont s’atténuant! Comme le
 lien entre le propriétaire et la propriété
-se relâche ! L’associé commanditaire ne peut à
+se relâche! L’associé commanditaire ne peut à
 aucun degré intervenir dans la gestion de
 l’entreprise où il a engagé une partie de sa
-fortune. S’il va au delà du contrôle ou du simple
+fortune. S’il au delà du contrôle ou du simple
 conseil, il est tenu pour solidairement responsable
 et déchu de son immunité. Mais s’il reste dans ce
 rôle discret, effacé et un peu lointain, de simple
@@ -5760,7 +5760,7 @@ limitée à la somme qu’il a engagée par la
 commandite. S’il n’y a versé que cent mille francs et quand bien même le passif de l’entreprise
 s’élèverait à plus d’un million, il n’est tenu
 envers les créanciers que jusqu’à concurrence de
-ces cent mille francs : le reste de sa fortune est
+ces cent mille francs: le reste de sa fortune est
 hors d’atteinte et, pour ainsi dire, hors de jeu.
 Cette part de sa fortune qu’il a engagée dans la
 commandite est en quelque sorte détachée de
@@ -5769,7 +5769,7 @@ n’est plus son individualité tout entière qui est
 en cause. La personne ici n’est plus engagée et
 comme prise dans la propriété.
 
-M Léon Bourgeois dit souvent que la propriété
+Léon Bourgeois dit souvent que la propriété
 individuelle est comme le prolongement de la
 personne humaine. Mais l’individualité humaine est
 un tout organique, et indivisible. Il est impossible
@@ -5789,12 +5789,12 @@ réserve de la violence faite par le capital aux
 prolétaires, que la propriété de cet industriel
 est l’expression et le prolongement de sa personne.
 
-Mais quel sens précis M Léon Bourgeois peut-il
+Mais quel sens précis Léon Bourgeois peut-il
 donner à cette expression dès que nous entrons
 dans les actes de société et dans la commandite,
 puisqu’ici l’effort de l’individu est de couper
 toute communication entre une partie déterminée de
-sa fortune et sa personnalité totale ?
+sa fortune et sa personnalité totale?
 
 Je ne prétends pas, notons-le bien, que par ces
 combinaisons l’individu s’amoindrisse. En un sens,
@@ -5806,7 +5806,7 @@ des emplois divers et qui ne se commandent pas les
 uns les autres, l’individu n’est plus asservi à
 une entreprise déterminée, à une propriété
 déterminée. Il domine en quelque façon sa propre
-fortune ; il s’affranchit lui-même de sa propriété,
+fortune; il s’affranchit lui-même de sa propriété,
 tout en en retenant le bénéfice. C’est un
 événement bien significatif que, pour s’affranchir,
 les propriétaires bourgeois eux-mêmes commencent
@@ -5815,7 +5815,7 @@ individualité. Et si la propriété *individuelle* est celle où l’individu
 s’engage, tout l’effort du capitalisme moderne et
 de ses combinaisons est dirigé contre la propriété
 
-Fournière a bien vu cela et il l’a supérieurement
+Fournière a bien cela et il l’a supérieurement
 dit dans son *Essai sur l’individualisme*, livre
 ingénieux et profond, le plus concentré et le plus
 savoureux qu’il ait écrit.
@@ -5831,30 +5831,30 @@ indirecte et lointaine que les actionnaires,
 propriétaires de l’entreprise, interviennent dans
 son fonctionnement. Ils nomment, ou du moins ils
 peuvent nommer les administrateurs qui la
-dirigent ; mais même s’ils participent, une fois
+dirigent; mais même s’ils participent, une fois
 l’an, aux assemblées générales d’actionnaires,
 quelle distance entre le contrôle périodique et
 lointain et l’acte permanent de propriété que fait
 le paysan propriétaire ou l’industriel qui possède
-et dirige une usine !
+et dirige une usine!
 
 En fait, bien souvent, les actionnaires ne
 connaissent à aucun degré le fonctionnement réel de
 l’entreprise possédée par eux. Ils ne l’ont jamais
 vue fonctionner. Ils en ignorent le mécanisme
 technique et économique. Ils n’en savent ou ils
-n’en demandent qu’une chose : que rapporte-t-elle ?
-Quel en est le dividende ? Quelle en est l’allure
-sur le marché des valeurs ? C’est à travers le
+n’en demandent qu’une chose: que rapporte-t-elle?
+Quel en est le dividende? Quelle en est l’allure
+sur le marché des valeurs? C’est à travers le
 papier mort du compte rendu administratif qu’ils
-l’aperçoivent. Souvent ils sont très éloignés ; ils n’ont jamais
-vu de leurs yeux l’horizon noirci par la fumée
+l’aperçoivent. Souvent ils sont très éloignés; ils n’ont jamais
+de leurs yeux l’horizon noirci par la fumée
 de leurs usines.
 
-La propriété du paysan est un morceau de sa vie :
+La propriété du paysan est un morceau de sa vie:
 elle a porté son berceau, elle est voisine du
 cimetière où dorment ses aïeux, où il dormira à son
-tour ; et du figuier qui ombrage sa porte il
+tour; et du figuier qui ombrage sa porte il
 aperçoit le cyprès qui abritera son dernier
 sommeil. Sa propriété est un fragment de la patrie
 immédiate, de la patrie locale, un raccourci de la
@@ -5870,16 +5870,16 @@ permette de les discerner.
 
 J’ouvre l’annuaire statistique que l’*Office du travail* vient de publier pour l’année 1900, je
 regarde les tableaux des valeurs comprises en 1899
-dans les donations et successions : les rentes
+dans les donations et successions: les rentes
 françaises et autres valeurs du trésor français
-figurent dans les donations pour 41 millions ; les
+figurent dans les donations pour 41 millions; les
 rentes et effets publics des gouvernements
 étrangers figurent dans les donations pour
-millions ; les valeurs des sociétés françaises y
-sont pour 24 millions ; les valeurs étrangères pour 2 millions 400.000 francs.
+millions; les valeurs des sociétés françaises y
+sont pour 24 millions; les valeurs étrangères pour 2 millions 400.000 francs.
 Dans les successions, les rentes françaises et
 autres valeurs du Trésor français comptent pour
-480 millions ; les rentes et effets publics des
+480 millions; les rentes et effets publics des
 gouvernements étrangers comptent pour 214 millions.
 Les actions des sociétés françaises, sociétés de
 commerce ou d’industrie, figurent, dans les
@@ -5904,7 +5904,7 @@ même à certains égards de cette expansion du
 capitalisme, qui aide à la pénétration réciproque
 des peuples et des races. Je constate seulement
 combien tout rapport personnel a cessé entre la propriété anonyme et le
-propriétaire : ils ne sont même plus de la même
+propriétaire: ils ne sont même plus de la même
 patrie. Et au demeurant, quand un capitaliste de
 Toulon a des actions sur les mines du
 Pas-De-Calais, il y a presque aussi peu de
@@ -5916,7 +5916,7 @@ nation la propriété a commencé à devenir
 *étrangère* au propriétaire, qu’entre toutes les
 valeurs, dites étrangères ou dites nationales, il
 n’y a plus pour le capitaliste aucune différence.
-Innovation curieuse et bien significative !
+Innovation curieuse et bien significative!
 Autrefois, avant l’extension des sociétés de
 commerce, et notamment des sociétés anonymes, les
 hommes ne recouraient aux journaux que pour
@@ -5946,7 +5946,7 @@ personnelle. Le capitalisme l’efface, et après
 avoir créé *l’action*, il crée *l’obligation*.
 
 L’obligataire n’est point, pour sa part,
-propriétaire de l’entreprise : il en est simplement
+propriétaire de l’entreprise: il en est simplement
 
 Il a prêté à l’entreprise une certaine somme,
 pour laquelle on lui sert un intérêt fixe, stipulé
@@ -5957,10 +5957,10 @@ grande que celle de l’actionnaire. En cas de
 désastre, l’actionnaire ne touchera rien avant que
 les obligataires, c’est-à-dire les créanciers,
 soient remboursés. L’obligataire est encore exposé
-à bien des hasards ; mais il ne succombera
-qu’après l’actionnaire. Seulement, il n’a aucune part d’influence : il
+à bien des hasards; mais il ne succombera
+qu’après l’actionnaire. Seulement, il n’a aucune part d’influence: il
 n’est même pas représenté dans les conseils de
-l’entreprise ; il est le rentier passif, sans aucun
+l’entreprise; il est le rentier passif, sans aucun
 rapport personnel avec la source même de ses
 revenus. Ici, nous touchons à une forme de propriété
 si abstraite, si neutre, si indifférente, si
@@ -5995,9 +5995,9 @@ c’est aux coffres-forts des maisons de banque et de
 crédit que sont confiés les titres de propriété, les
 titres de rentes, les actions, les obligations. C’est
 la société de crédit qui touche, à l’échéance, les
-arrérages ou les coupons ; c’est elle qui en fait le
-remploi ; et tout le mouvement de la propriété
-individuelle aboutit là : avoir son compte ouvert
+arrérages ou les coupons; c’est elle qui en fait le
+remploi; et tout le mouvement de la propriété
+individuelle aboutit: avoir son compte ouvert
 dans l’immense registre d’une immense société
 anonyme de crédit.
 
@@ -6039,7 +6039,7 @@ la faillite, une démocratie des créanciers.
 L’article 507 du code de commerce — je néglige la
 législation récente sur la liquidation judiciaire,
 où le même principe s’affirme plus nettement
-encore — dit ceci :
+encore — dit ceci:
 
 « Il ne pourra être consenti de traité entre les
 créanciers délibérants et le débiteur failli
@@ -6050,7 +6050,7 @@ en outre les trois quarts de la totalité des
 créances, vérifiées et affirmées, ou admises
 par provision. »
 
-Et l’article 529 stipule :
+Et l’article 529 stipule:
 
 « S’il n’intervient point de concordat, les
 créanciers seront de plein droit en état
@@ -6080,7 +6080,7 @@ possédant est réduite au minimum. L’article 33 du code de commerce dit, à p
 montant de leur intérêt dans la société. »
 
 l’actionnaire ne répond pas des obligations de
-l’entreprise sur la totalité de sa fortune ; il
+l’entreprise sur la totalité de sa fortune; il
 n’en répond que sur les actions qu’il possède dans
 cette entreprise même. C’est une parcelle de
 propriété qui ne communique plus avec l’ensemble de
@@ -6101,7 +6101,7 @@ eux-mêmes, de ceux qui ont reçu et accepté de
 l’assemblée générale des actionnaires le mandat de
 conduire l’entreprise, est étroitement limitée.
 
-L’article 32 du code dit :
+L’article 32 du code dit:
 
 « Les administrateurs ne sont responsables que du
 montant qu’ils ont reçu. Ils ne contractent, à raison de leur gestion, aucune obligation personnelle ni
@@ -6119,19 +6119,19 @@ atténuées de la société anonyme.
 
 Et dans cette forme suprême de la propriété
 individuelle, quelle mobilité, quelle faculté
-presque indéfinie de métamorphose ! Comparez aux
+presque indéfinie de métamorphose! Comparez aux
 difficultés de tout ordre, juridiques et
 économiques, qui rendent difficile et lente la
 propriété industrielle personnelle, les dispositions
 qui facilitent, dans le régime des sociétés
 anonymes, le mouvement des titres, la transmission
 
-L’article 34 dit :
+L’article 34 dit:
 
 « Le capital de la société anonyme se divise en
 actions et même en coupons d’actions d’une
 
-L’article 35 dit :
+L’article 35 dit:
 
 « L’action peut être établie sous la forme d’un
 titre au porteur. Dans ce cas, la cession
@@ -6163,7 +6163,7 @@ arrachées à toutes les variétés du travail humain.
 Par cette faculté illimitée d’échange, par cette
 mobilité infinie, le titre d’une entreprise partculière
 particulière cesse d’être en effet attaché à cette entreprise
-particulière : il devient une sorte de délégation
+particulière: il devient une sorte de délégation
 quantitativement déterminée, mais qualitativement
 indéterminée, sur l’ensemble de la richesse
 sociale. L’actionnaire, quelle que soit la
@@ -6191,9 +6191,9 @@ engager toute leur fortune dans une seule
 entreprise, répartissent leurs fonds entre plusieurs
 sociétés anonymes. Ils ont en portefeuille des
 actions des chemins de fer, des actions des mines, des actions des aciéries et des
-tissages. Ils ont par là le droit de participer aux
+tissages. Ils ont par le droit de participer aux
 assemblées générales d’un grand nombre
-d’industries : ils participent donc à la direction
+d’industries: ils participent donc à la direction
 de la production dans ses formes diverses et dans
 presque toute son étendue.
 
@@ -6203,7 +6203,7 @@ une forme de propriété et y est souveraine, dans
 le système des sociétés anonymes, l’action du
 possédant s’étend ou peut s’étendre à un champ de
 production extrêmement vaste, à un très grand
-nombre d’entreprises ; mais, en chacune d’elles,
+nombre d’entreprises; mais, en chacune d’elles,
 elle est limitée et enveloppée par le droit des
 autres actionnaires, des autres possédants. Le
 mouvement même de la propriété bourgeoise et
@@ -6212,7 +6212,7 @@ possédant, mais en lui retirant, à chacun des
 points de son domaine agrandi, sa force décisive.
 Sa puissance s’exerce partout, mais elle n’est
 partout qu’une fraction minime de la puissance
-totale ; partout associé, nulle part souverain.
+totale; partout associé, nulle part souverain.
 
 Or, si l’on suppose réalisé le communisme
 démocratique, si l’on se représente l’ensemble des
@@ -6229,13 +6229,13 @@ limite tout à la fois le droit de chaque volonté
 Quand donc les radicaux, avec une monotonie
 déplaisante et abstraite, se donnent comme les
 gardiens de la *propriété individuelle*, on est
-en droit de leur demander : acceptez-vous, de la
+en droit de leur demander: acceptez-vous, de la
 propriété individuelle et capitaliste, le
 mouvement par lequel elle tend à se dépasser
-elle-même ? Acceptez-vous la loi d’évolution qui
+elle-même? Acceptez-vous la loi d’évolution qui
 crée, jusque dans la propriété capitaliste, une
 sorte de communisme oligarchique, et
 interdisez-vous au prolétariat d’intervenir pour
 le convertir en un communisme démocratique
 
-↑ Je me sers, pour la traduction du *Manifeste communiste*, de l'excellente traduction nouvelle due vient d'en faire Charles Andler à la Société nouvelle de librairie et d'édition, 17 rue Cujas. — Prix : 0 franc
+Je me sers, pour la traduction du *Manifeste communiste*, de l'excellente traduction nouvelle due vient d'en faire Charles Andler à la Société nouvelle de librairie et d'édition, 17 rue Cujas. — Prix: 0 franc

@@ -7,7 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 39751
 ---
-## Pour ou contre le socialisme. La préparation du congrès socialiste national
+Pour ou contre le socialisme. La préparation du congrès socialiste national
 
 Les journaux du jeudi 23 novembre publiaient le discours prononcé par Anatole France à l'inauguration de
 l'Emancipation, université populaire du quinzième arrondissement
@@ -24,21 +24,21 @@ science, comme d'un meuble encombrant. Votre
 désir est plus noble et plus désintéressé. Et comme
 vous vous proposez de travailler à votre propre dé-
 (1) Ce titre est donné dans la Petite République.
-veloppement, vous rechercherez ce qui est vraiment ,
+veloppement, vous rechercherez ce qui est vraiment,
 utile et ce qui est vraiment beau.
 Les connaissances utiles à la vie ne sont pas seu-
 lement celles des métiers et des arts. S'il est nécessaire que chacun sache son métier, il est utile à
 chacun d'interroger la nature qui nous a formés et
 la société dans laquelle nous vivons. Quel que soit
 notre état parmi nos semblables, nous sommes
-avant tout des hommes ei nous avons grand intérêt
+avant tout des hommes nous avons grand intérêt
 à connaître les conditions nécessaires à la vie humaine. Nous dépendons de la terre et de la société,
 et c'est en recherchant les causes de cette dépendance que nous pourrons imaginer les moyens de
 la rendre plus facile et plus douce. C'est parce que
 les découvertes des grandes lois physiques qui ré-
 gissent les mondes ont été lentes, tardives, longtemps renfermées dans un petit nombre d''intelligences, qu'une morale barbare, fondée sur une
 fausse interprétation des phénomènes de la nature,
-a pu s'imposer à la masse des hommes et les sou- .
+a s'imposer à la masse des hommes et les sou-.
 mettre à des pratiques imbéciles et cruelles.
 Croyez-vous, par exemple, citoyens, que, si les
 savants avaient connu plus tôt la vraie situation du
@@ -49,10 +49,10 @@ tude d'autres soleils, pères ardents et lumineux
 
 d'une multitude de mondes, pensez-vous que, si
 dans les siècles anciens un grand nombre d'hommes
-avaient eu cette juste idée de l'univers et y avaient
+avaient cette juste idée de l'univers et y avaient
 suffisamment attaché leur pensée, il eût été possible
 de les effrayer en leur faisant croire qu'il y a sous
-terre un enfer et des diables ? C'est la science qui
+terre un enfer et des diables? C'est la science qui
 nous affranchit de ces grossières imaginations et de
 ces vaines terreurs, que certes vous avez rejetées
 loin de vous. Et ne voyez-vous pas que de l'étude
@@ -71,7 +71,7 @@ de l'évolution de notre race.
 La connaissance des progrès accomplis vous permettra de pressentir, de solliciter les progrès futurs.
 Peut-être voudrez-vous vous tenir de préférence
 dans des temps voisins du nôtre et rechercher dans
-un passé récent l'origine de l'état actuel de la société. Là encore, là surtout l'étude vous sera d'un
+un passé récent l'origine de l'état actuel de la société. encore, surtout l'étude vous sera d'un
 
 grand profit. En recherchant comment s'est formée
 et accrue la force capitaliste, vous jugerez mieux
@@ -85,9 +85,9 @@ pris ni système préconçu. Les vrais savants — et
 j'en vois ici — vous diront que la science veut garder son indépendance et sa liberté, et qu'elle ne se
 soumet à aucune puissance étrangère. Est-ce à dire
 que vous poursuivrez vos recherches sans direction
-ni but déterminé ? Non. Vous entreprenez une
+ni but déterminé? Non. Vous entreprenez une
 œuvre vaste mais définie, immense mais précise.
-Vous vous proposez dè travailler mutuellement
+Vous vous proposez travailler mutuellement
 développer votre être intellectuel et moral, à vous
 rendre plus sûrs de vous-mêmes et plus conscients
 de vos forces par une connaissance plus exacte des
@@ -107,7 +107,7 @@ utile à connaître dans la science. Elle vous découvrira ce qu'il y a de plus 
 l'art. Ne vous refusez pas à mêler dans vos études
 l'agréable à l'utile. D'ailleurs, comment les séparer,
 si l'on a un peu de philosophie? Comment marquer
-le point où finit l'utile et où commence l'agréable ?
+le point où finit l'utile et où commence l'agréable?
 Une chanson, est-ce que cela ne sert à rien? La
 Marseillaise et la Carmagnole ont renversé les armées des rois et des empereurs. Est-ce qu'un sourire
 est inutile? Est-ce donc si peu de plaire et de
@@ -117,13 +117,13 @@ qu'il ne faut rien accorder à l'agrément dans la vie.
 Ne les écoutez pas. Une longue tradition religieuse
 qui pèse encore sur nous enseigne que la privation,
 la souffrance et la douleur sont des biens désirables
-et qu'il y a des mérites spéciaux attachés à la privation volontaire. Quelle imposture ! C'est en disant
+et qu'il y a des mérites spéciaux attachés à la privation volontaire. Quelle imposture! C'est en disant
 aux peuples qu'il faut souffrir en ce monde pour
 être heureux dans l'autre qu'on a obtenu d'eux une
 pitoyable résignation à toutes les oppressions et
 toutes les iniquités. N'écoutons pas les prêtres qui
 enseignent que la souffrance est excellente. C'est la
-joie qui est bonne !
+joie qui est bonne!
 
 Nos instincts, nos organes, notre nature physique
 et morale, tout notre être nous conseille de chercher
@@ -140,7 +140,7 @@ Et il est temps, citoyens, qu'on sente votre force,
 et que votre volonté, plus claire et plus belle, s'im-
 pose pour établir un peu de raison et d'équité dans
 un monde qui n'obéit plus qu'aux suggestions de
-l'égoïsme et de la peur. Nous avons vu ces derniers
+l'égoïsme et de la peur. Nous avons ces derniers
 temps la société bourgeoise et ses chefs incapables
 de nous assurer la justice, je ne dis pas la justice
 idéale et future, mais seulement la vieille justice
@@ -192,7 +192,7 @@ semblable, j'ai consenti le pacte odieux qui assure
 au fort sa puissance et au faible sa faiblesse, j'ai
 scellé de mon sceau l'antique iniquité, j'ai contribué
 à ce que cet homme n'eût qu'une moitié d'âme.
-— Tu as fait tout cela, papa ? demanda Pauline
+— Tu as fait tout cela, papa? demanda Pauline
 — Presque tout cela, répondit M. Bergeret. J'ai
 vendu à mon frère Clopinel de la fraternité à faux
 poids. Je me suis humilié en l'humiliant. Car l'aumône avilit également celui qui la reçoit et celui qui
@@ -205,18 +205,18 @@ plaint son maigre cou sans linge, ses genoux que
 le pantalon, tendu par un trop long usage, rend
 tristement pareils aux genoux d'un chameau, ses
 pieds au bout desquels les souliers vont le bec ouvert comme un couple de canards. Séducteur!
-dangereux Clopinel ! Clopinel délicieux ! Par toi,
+dangereux Clopinel! Clopinel délicieux! Par toi,
 mon sou produit un peu de bassesse, un peu de
 honte. Par toi, j'ai constitué avec un sou une parcelle de mal et de laideur. En te communiquant ce
 fait capitaliste avec ironie et convié sans honneur
 au banquet de la société, aux fêtes de la civilisation.
 Et aussitôt j'ai senti que j'étais un puissant de ce
 monde, au regard de toi, un riche près de toi, doux
-Clopinel, mendigot exquis, flatteur ! Je me suis
+Clopinel, mendigot exquis, flatteur! Je me suis
 réjoui, je me suis enorgueilli, je me suis complu
 dans mon opulence et ma grandeur. Vis, à Clopinel!
-Pulcher hymnus divitiarum pauper immortalis. » Exécrable pratique de l'aumône ! Pitié barbare
-de l'élémosyne ! Antique erreur du bourgeois qui
+Pulcher hymnus divitiarum pauper immortalis. » Exécrable pratique de l'aumône! Pitié barbare
+de l'élémosyne! Antique erreur du bourgeois qui
 donne un sou et qui pense faire le bien, et qui se
 croit quitte envers tous ses frères, par Le plus misé-
 
@@ -226,7 +226,7 @@ plus pauvre acte de tous ceux qui peuvent être
 accomplis en vue d'une meilleure répartition des
 richesses. Cette coutume de faire l'aumône est contraire à la bienfaisance et en horreur à la charité.
 
-— Cest vrai ? demanda Pauline avec bonne volonté.
+— Cest vrai? demanda Pauline avec bonne volonté.
 
 — L'aumône, poursuivit M. Bergeret, n'est pas
 plus comparable à la bienfaisance que la grimace
@@ -241,7 +241,7 @@ idées dans les âmes sensibles, au siècle des philosophes. On croyait que ce n
 bon abbé de Saint-Pierre. Mais il est plus ancien et
 se trouve déjà dans le vieux Balzac. Au seizième
 siècle, on disait bénéficence. C'est le même mot.
-J'avoue que je ne retrouve pas à ce mot de bienfaisance sa beauté première : il m'a été gâté par les
+J'avoue que je ne retrouve pas à ce mot de bienfaisance sa beauté première: il m'a été gâté par les
 pharisiens qui l'ont trop employé. Nous avons dans
 
 notre société beaucoup d'établissements de bienfaisance, monts-de-piété, sociétés de prévoyance, d'assurance mutuelle. Quelques-uns sont utiles et rendent des services. Leur vice commun est de procéder
@@ -288,8 +288,8 @@ qu'il n'a pas assez reçu.
 
 — C'est peut-être un paresseux, dit Pauline. Com-
 
-î ment ferons-nous, mon Dieu, pour qu'il n'y ait plus
-de pauvres, plus de faibles ni de paresseux ? Est-ce
+ment ferons-nous, mon Dieu, pour qu'il n'y ait plus
+de pauvres, plus de faibles ni de paresseux? Est-ce
 que tu ne crois pas que les hommes sont bons naturellement et que c'est la société qui les rend mé-
 
 — Non. Je ne crois pas que les hommes sont bons
@@ -354,7 +354,7 @@ Le Figaro du mercredi 10 janvier publiait l'article
 
 — Papa, je suis inquiète de savoir ce que tu feras
 de Clopinel, dans ta république. Car tu ne penses
-pas qu'il vive des fruits de son travail ?
+pas qu'il vive des fruits de son travail?
 
 — Ma fille, répondit M. Bergeret, je crois qu'il
 consentira à disparaître. Il est déjà très diminué.
@@ -388,14 +388,14 @@ et fastidieux, et pareil au silence. Mais aux maux
 inévitables, à ces maux à la fois vulgaires et augustes
 qui résultent de la condition humaine ne s'ajouteront plus les maux artificiels qui résultent de notre
 condition sociale. Les hommes ne seront plus dé-
-formés par un travail inique dont ils meurent plutôt ‘
+formés par un travail inique dont ils meurent plutôt
 qu'ils ne vivent. L'esclave sortira de l'ergastule et
 l'usine ne dévorera plus les corps par millions. » Cette délivrance, je l'attends dela machine ellemême. La machine qui a broyé tant d'hommes
 viendra en aide doucement, généreusement à la
 tendre chair humaine. La machine, d'abord cruelle
 et dure, deviendra bonne, favorable, amie. Com-
-ment changera-t-elle d'âme ? Écoute. L'étincelle qui
-jaillit de la bouteille de Leyde, la petite étoile sub- .
+ment changera-t-elle d'âme? Écoute. L'étincelle qui
+jaillit de la bouteille de Leyde, la petite étoile sub-.
 tile qui se révéla, dans le siècle dernier, au physi-
 cien émerveillé, accomplira ce prodige. L'Inconnue
 qui s'est laissé vaincre sans se laisser connaître, la
@@ -418,12 +418,12 @@ plus merveilleux encore. Un jour viendra où le patron, s'élevant en beauté mo
 plus de salaire, mais échange de biens. La haute
 industrie, comme la vieille noblesse qu'elle remplace
 et qu'elle imite, fera sa nuit du 4 Août. Elle abandonnera des gains disputés et des privilèges menacés. Elle sera généreuse quand elle sentira qu'il
-est temps de l'être. Et que dit aujourd'hui le patron ?
+est temps de l'être. Et que dit aujourd'hui le patron?
 Qu'il est l'âme et la pensée, et que sans lui son ar-
 
-mée d'ouvriers serait comme un corps privé d'intelligence. Eh bien ! s'il est la pensée, qu'il se contente
+mée d'ouvriers serait comme un corps privé d'intelligence. Eh bien! s'il est la pensée, qu'il se contente
 de cet honneur et de cette joie. Faut-il, parce qu'on
-est pensée et esprit, qu'on se gorge de richesses ?
+est pensée et esprit, qu'on se gorge de richesses?
 Quand le grand Donatello fondait avec ses compagnons une statue de bronze, il était l'âme de l'œuvre.
 
 Le prix qu'il en recevait du prince ou des citoyens,
@@ -432,7 +432,7 @@ poulie à une poutre de l'atelier. Chaque compagnon
 tirait la corde à son tour et prenait dans le panier
 selon ses besoins. N'est-ce point assez de la joie de
 produire par l'intelligence, et cet avantage dispensetil le maître ouvrier de partager le gain avec ses
-humbles collaborateurs ? Maïs dans ma république
+humbles collaborateurs? Maïs dans ma république
 il n'y aura plus de gains ni de salaires et tout sera
 à tous.
 — Papa, c'est le collectivisme, cela, dit Pauline
@@ -448,7 +448,7 @@ riches d'entre nous sont encore peu de chose en
 comparaison de ceux qui appartiennent indistinetement à tous les hommes. Et dans notre société
 même, ne vois-tu pas que les biens les plus doux ou
 les plus splendides, routes, fleuves, forêts autrefois
-tous ? Aucun riche ne possède plus que moi ce vieux
+tous? Aucun riche ne possède plus que moi ce vieux
 chène de Fontainebleau ou ce tableau du Louvre.
 Et ils sont plus à moi qu'au riche si je sais mieux
 les voir. La propriété collective qu'on redoute
@@ -458,12 +458,12 @@ Laffitte ne sont point pressés de devenir socialistes.
 Maïs l'un d'eux a fait cette remarque judicieuse que
 la propriété est de source sociale. Et rien n'est plus
 vrai puisque toute propriété, acquise par un effort
-individuel, n'a pu naître et subsister que par le concours de la communauté tout entière. Et puisque la
+individuel, n'a naître et subsister que par le concours de la communauté tout entière. Et puisque la
 propriété privée est de source sociale, ce n'est point
 en méconnaître l'origine ni en corrompre l'essence
 que de l'étendre à la communauté et la commettre
 l'État dont elle dépend nécessairement. Et qu'est-ce
-que l'État ?..
+que l'État?..
 
 Mlle Bergeret s'empressa de répondre à cette
 — L'État, mon père, c'est un monsieur piteux et
@@ -472,7 +472,7 @@ malgracieux assis derrière un guichet.Tu comprends
 qu'on n'a pas envie de se dépouiller pour lui.
 
 — Je comprends, répondit M. Bergeret en souriant. Je me suis toujours incliné à comprendre, et
-jy ai perdu des vertus précieuses. Je découvre sur
+ai perdu des vertus précieuses. Je découvre sur
 le tard que c'est une grande force de ne pas comprendre. Cela permet parfois de conquérir le
 monde. Si Napoléon avait été aussi intelligent que
 Spinoza, il aurait écrit quatre volumes dans une
@@ -485,11 +485,11 @@ plus que nous. Anéanti par son universalité, il
 cessera de paraître tracassier. On n'est plus mé-
 chant, ma fille, quand on n'est plus personne. Ce
 qu'il a de déplaisant à l'heure qu'il est, c'est qu'il
-rogne sur la propriété individuelle, qu'il va grattant
+rogne sur la propriété individuelle, qu'il grattant
 et limant, mordant peu sur les gros et beaucoup sur
 les maigres. Cela Le rend insupportable. ILest avide.
 Il a des besoins. Dans ma république, il sera sans
-désirs, comme les dieux. Il aura tout et il n'aura !
+désirs, comme les dieux. Il aura tout et il n'aura!
 rien. Nous ne le sentirons pas, puisqu'il sera con
 forme à nous, indistinct de nous. Il sera comme s'il
 
@@ -498,7 +498,7 @@ particuliers à l'État, la vie à une abstraction, c'est
 au contraire l'abstraction que je subordonne à la
 réalité, l'État que je supprime en l'identifiant
 toute l'activité sociale. » Si même cette république ne devait jamais
-exister, je me féliciterais d'en avoir eu l'idée. Il est
+exister, je me féliciterais d'en avoir l'idée. Il est
 permis de bâtir en Utopie. Et Auguste Comte luimême, qui se flattait de ne construire que sur les
 données de la science positive, a placé Campanella
 dans le calendrier des grands hommes. » Les rêves des philosophes ont de tout temps
@@ -521,9 +521,9 @@ une révolution imprévue et nécessaire emporta le
 malade. Qui soutiendrait que, dans la société
 actuelle, les organes correspondent aux fonctions et
 que tous les membres sont nourris en raison du
-travail utile qu'ils produisent ? Qui soutiendrait que
+travail utile qu'ils produisent? Qui soutiendrait que
 la richesse est justement répartie? Qui peut croire
-enfin à la durée de l'iniquité ?
+enfin à la durée de l'iniquité?
 
 — Et comment la faire cesser, mon père? Comment changer le monde?
 — Par la parole, mon enfant. Rien n'est plus
@@ -544,13 +544,13 @@ changements, produits avec la lenteur clémente des
 forces naturelles, ne furent pas même soupçonnés
 par les innombrables générations des êtres animés
 qui y assistèrent. Les transformations sociales
- s'opèrent, de même, insensiblement et sans cesse.
+s'opèrent, de même, insensiblement et sans cesse.
 L'homme timide redoute, comme un cataclysme
 futur, un changement commencé avant sa naissance, qui s'opère sous ses yeux, sans qu'il le voie,
 et qui ne deviendra sensible que dans un siècle. »
 
 Le Figaro du vendredi 12 janvier publiaït un article
-de M. Jules Roche, intitulé : Contre le Socialisme.
+de M. Jules Roche, intitulé: Contre le Socialisme.
 — Le danger, dont nous donnons le commencement
 la fin de son admirable Histoire d'Angleterre
 depuis l'avènement de Jacques IT, Macaulay, écrivant après les événements de 1848, disait
@@ -593,11 +593,11 @@ les plus redoutés du bon bourgeois que des politiciens habiles, des « arrivist
 Béroalde de Verville lui-même dans le Moyen de
 parvenir, et nullement disposés à mettre en pratique leurs programmes de destruction sociale. Dès
 lors, à quoi bon s'inquiéter de leurs projets mena-
-çants, de leurs propagandes furieuses ? Ce ne sont
-que des mots vides; des attrape-nigauds; des « histoires qui n'arrivent jamais »! Ainsi parlent aujourd'hui d'élégants et sages incrédules.
+çants, de leurs propagandes furieuses? Ce ne sont
+que des mots vides; des attrape-nigauds; des « histoires qui n'arrivent jamais Ainsi parlent aujourd'hui d'élégants et sages incrédules.
 
 Le socialisme est-il ou n'est-il pas un danger, le
-plus profond, le plus immédiat danger ?
+plus profond, le plus immédiat danger?
 
 La réponse ne me paraît pas douteuse. Macaulay
 avait raison et continue d'avoir raison. Et il aura
@@ -636,7 +636,7 @@ d'autres universités pour instruire le peuple dans
 l'ignorance, l'exhorter à la résignation et l'induire
 à se contenter du bonheur qui l'attend dans l'autre
 
-monde. Allons ! semons aux quatre vents la bonne
+monde. Allons! semons aux quatre vents la bonne
 
 semence! Proclamons-nous socialistes pour que le
 peuple aït foi en nous, et allons défendre le capital
@@ -665,7 +665,7 @@ moi parce que j'avais de la peine et parce que je vous
 ai fait de la peine. Cet empressement est dangereux.
 Vous allez invinciblement vers ceux qui ont de la peine
 et vers ceux qui vous en font. Cela n'est pas sain.
-Prenez garde : c'est ainsi que l'on passe immanquablement de la connaissance à l'action, et que l'on devient
+Prenez garde: c'est ainsi que l'on passe immanquablement de la connaissance à l'action, et que l'on devient
 socialiste charitable, ce qui n'est pas une variété pure
 
 du socialisme. C'est ainsi que vous vous affaiblirez pour
@@ -678,21 +678,21 @@ Puisque nous pouvons et devons faire des personnalités,
 dans l'ordre de la connaïssance, voulez-vous que nous
 reconnaissions l'action personnelle de Jaurès dans les
 récents événements. J'avais préparé pour une revue
-allemande une histoire et un portrait de Jaurès. Voulezvous que je vous en donne connaissance ?
+allemande une histoire et un portrait de Jaurès. Voulezvous que je vous en donne connaissance?
 
 Je tirai la copie de ma serviette et le docteur lut
 patiemment l'étude un peu longue et lourde que je lui
-soumettais et que j'avais intitulée : Jean Jaurès : — Au
+soumettais et que j'avais intitulée: Jean Jaurès: — Au
 moment où il avait commencé, je lui fis remarquer,
 pour ma défense, que cet article était du mois d'octobre,
 et fait pour un public supposé peu au courant du socialisme français
 Le docteur ne dit mot et continua sa lecture
-Jeän Jaurès, né à Castres (Tarn), le 3 septembre 1859,
+Jeän Jaurès, à Castres (Tarn), le 3 septembre 1859,
 fit ses études au collège de Castres. A dix-sept ans il
 vint à Paris, au Collège Sainte-Barbe, d'où il suivait les
 cours du Lycée Louis-le-Grand. Il fut reçu en 1878 à
 l'École Normale avec le numéro 1. Il en sortit agrégé
-de philosophie en 188r. Il fut deux ans professeur de
+de philosophie en Il fut deux ans professeur de
 philosophie au Lycée d'Albi, au chef-lieu de son département natal. Puis il fut deux ans maître de conférences
 de philosophie à la Faculté des Lettres de Toulouse,
 dans la capitale de tout ce midi. Ainsi entré dans l'Uni-
@@ -717,12 +717,12 @@ Universitaire, ayant régulièrement suivi la carrière
 de philosophie, docteur en philosophie, comment et
 pourquoi Jaurès est-il devenu socialiste? Il a donné
 lui-même cette simple réponse dans l'Avant-Propos
-qu'il a écrit pour son livre intitulé : Action Socialiste.
+qu'il a écrit pour son livre intitulé: Action Socialiste.
 
 « Dès que j'ai commencé à écrire dans les journaux
 et à parler à la Chambre, dès 1886, le socialisme me
 possédait tout entier, et j'en faisais profession. Je ne dis
-point cela pour combattre la légende qui fait dé moi un
+point cela pour combattre la légende qui fait moi un
 centre-gauche converti, mais simplement parce que
 c'est la vérité. » Mais il est vrai aussi que j'ai adhéré à l'idée socialiste et collectiviste avant d'adhérer au parti socialiste.
 
@@ -748,7 +748,7 @@ comment et pourquoi il pourrait bien ne pas devenir
 socialiste, ne pas avoir au moins la pensée socialiste.
 Et quand la pensée est devenue socialiste, la rudesse
 
-(1) Action Socialiste, première série. Avant-Propos, pages vi et vu.
+(1) Action Socialiste, première série. Avant-Propos, pages et vu.
 — Société nouvelle de librairie et d'édition, 17, rue Cujas, Paris,
 
 des événements, l'âpreté des résistances, l'insolence de
@@ -759,14 +759,14 @@ chargent bien de donner à celui qui a la pensée socialiste la vigueur d'agir e
 Dès le 21 octobre 1886, dans un discours prononcé
 la Chambre, Jaurès défendait un amendement qu'il avait
 proposé à la loi sur l'organisation de l'enseignement
-primaire ; il demandait par cet amendement que l'on
+primaire; il demandait par cet amendement que l'on
 permît aux municipalités de fonder à leurs frais des
 écoles populaires pour sauvegarder dans l'enseignement
 primaire toute la liberté de la philosophie et de la
 science. Selon ses propres paroles, il demandait qu'il y
 eût partout dans l'enseignement populaire une sincérité
 et une franchise absolues, que l'on ne dissimulât rien
-au peuple, que là où le doute est mêlé à la foi, on produisît le doute, et que, quand la négation domine, elle
+au peuple, que où le doute est mêlé à la foi, on produisît le doute, et que, quand la négation domine, elle
 pût se produire librement. Il demandait que le peuple
 eût ainsi accès à toute la philosophie humaine, à toute
 
@@ -787,7 +787,7 @@ titres, et pour les luttes et pour les joies de la vie, ils
 ont droit aussi à un enseignement qui soit aussi plein et
 aussi complet à sa manière que celui qui est donné aux
 enfants de la bourgeoisie. » (1) — « IL faut encore apprendre à cette jeune démocratie le goût de la liberté.
-Elle a la passion de légalité ; elle n'a pas, au même degré, la notion de la liberté, qui est beaucoup plus diffcile et beaucoup plus longue à acquérir. Et voilà pourquoi il faut donner aux enfants du peuple, par un exercice suffisamment élevé de la faculté de penser, le sentiment de la valeur de l'homme et, par conséquent, du
+Elle a la passion de légalité; elle n'a pas, au même degré, la notion de la liberté, qui est beaucoup plus diffcile et beaucoup plus longue à acquérir. Et voilà pourquoi il faut donner aux enfants du peuple, par un exercice suffisamment élevé de la faculté de penser, le sentiment de la valeur de l'homme et, par conséquent, du
 prix de la liberté, sans laquelle l'homme n'est pas. » (2)
 cette fin, il voulait « faire concourir toutes les forces
 de l'enseignement secondaire et de l'enseignement supérieur à ce qu'on peut appeler l'éducation de l'enseignement primaire. » (3) Il voulait que les professeurs
@@ -802,7 +802,7 @@ démocratie française un enseignement digne d'elle, vous
 
 aurez préparé par la coordination et la coopération de
 tous les enseignements, d'un bout à l'autre de l'échelle,
-l'unité et la continuité de toutes les classes sociales. » @)
+l'unité et la continuité de toutes les classes sociales. »
 
 Ce désir, et cette espérance de Jaurès, que la coordination et la coopération de tous les enseignements, d'un
 bout à l'autre de l'échelle sociale, pourraient préparer
@@ -819,7 +819,7 @@ de la lutte des classes. Mais nous croyons que cette opposition n'est qu'apparen
 si cette formule était mal entendue. Car non seulement
 la lutte de classe n'a aucune valeur socialiste, mais elle
 n'a même aucun sens qui soit socialiste. Toute guerre
-est bourgeoise, car la guerre est fondée sur la compétition, sur la rivalité, sur la concurrence ; toute lutte est
+est bourgeoise, car la guerre est fondée sur la compétition, sur la rivalité, sur la concurrence; toute lutte est
 bourgeoise, et la lutte des classes est bourgeoise comme
 les autres luttes. Elle est une concession du socialisme
 à la bourgeoisie, comme les armements d'un peuple pacifique sont, en un sens, une concession faite à ses voisins belliqueux. De même qu'il n'est pas du tout certain
@@ -835,7 +835,7 @@ pour tout socialiste un pis aller bourgeoïs. Il est donc
 permis de désirer, d'espérer que la révolution sociale ne
 sera pas faite ainsi, qu'elle sera constituée par l'universalisation d'une culture socialiste, c'est-à-dire harmonieusement humaine. C'est pour cela que, tandis que
 nous pouvons travailler dans la joie à faire la conversion des consciences, nous devons participer sans
-aucune joie à la lutte des classes : elle est pour nous
+aucune joie à la lutte des classes: elle est pour nous
 comme un service militaire.
 
 Cette tristesse intérieure à laquelle nous ne devons
@@ -844,7 +844,7 @@ lutte des classes est assurément le caractère principal
 de Jaurès. Non pas que j'oublie l'importance et la puissance de ses autres caractères. Tous les socialistes fran-
 çais et tous les militants socialistes internationaux connaissent la souveraine puissance de celui qu'on nommait
 malgré soi le grand orateur. Ceux qui l'avaient une fois
-entendu ne pouvaient l'oublier. II montait à la tribune,
+entendu ne pouvaient l'oublier. montait à la tribune,
 Il était si plein de sa pensée que les premières phrases
 paraissaient venir mal, comme trop bourrées. Puis la
 lourde et robuste puissance de sa pensée commençait
@@ -872,7 +872,7 @@ facteur de la révolution sociale. En ce sens-il pouvait,
 dans la fièvre du combat, crier la joie amère qu'il avait
 à voir la société ennemie s'enfoncer ainsi dans sa pourriture et précipiter sa propre ruine. Mais comme on sentait bien que cette joie de fièvre et d'amère indignation
 
-m'était pas entière, n'était pas son habituelle et innocente joie de convertisseur ! Cette même culture géné-
+m'était pas entière, n'était pas son habituelle et innocente joie de convertisseur! Cette même culture géné-
 rale, cette même philosophie qui l'avaient conduit au
 socialisme l'avaient heureusement prémuni contre toute
 joie mauvaise. Il savait discerner le mal qui se cache
@@ -927,22 +927,22 @@ principaux membres du groupe et les principaux orateurs se partageaient donc ami
 parlaient presque toujours officiellement au nom de tout
 le groupe. Jaurès prit très souvent la parole à ce titre et
 sut toujours se faire écouter attentivement et silencieusement d'une Chambre souvent hostile. Mais les adversaires eux-mêmes et les ennemis respectaient la profonde sincérité de cette éloquence singulièrement puissante. Ils se permettaient quelquefois des interruptions
-mais ces interruptions ne désorganisaient jamais le discours de l'orateur ; il répondait à l'interrupteur trait
+mais ces interruptions ne désorganisaient jamais le discours de l'orateur; il répondait à l'interrupteur trait
 pour trait, COUp pour coup, avec une aisance, un à propos
 remarquable, et, au besoin, avec beaucoup d'esprit et
 de courtoisie; puis l'ordonnance classique du discours
 continuait jusqu'au parfait achèvement. Une fois,
-quelques-uns eurent la malencontreuse idée dé lui faire
+quelques-uns eurent la malencontreuse idée lui faire
 du bruit. Pour donner l'impression du socialisme qui
 monte et fond la bourgeoisie capitaliste, Jaurès avait
 redemandé à l'antiquité grecque la comparaison homé-
 rique de la mer qui monte et fond la neige; quelquesuns trouvèrent la comparaison déplacée, la croyant
 solennelle, n'interrompirent pas, mais firent du bruit.
 — (Et c'est nous! » s'écria-t-il,« c'est nous qui sommes
-les barbares ! »
+les barbares! »
 Ce mot barbares, ainsi improvisé, ainsi jeté, à la fois
 exact au sens ancien, puisqu'ils avaient fait du bruit
-Homère, et au sens moderne, puisqu'ils avaient fait du ,
+Homère, et au sens moderne, puisqu'ils avaient fait du,
 bruit au socialisme, ce mot qui rattachait la Révolution
 eut un retentissement extraordinaire, et les barbares se
 le tinrent pour dit.
@@ -957,15 +957,15 @@ encore. Et non plus la comparaison dans Homère.
 — Pourquoi ne les avez-vous pas demandés?
 
 — Je les ai demandés à beaucoup de personnes. On
-me répondait : &« Parfaitement ! Parfaitement! Le grand
+me répondait: Parfaitement! Parfaitement! Le grand
 discours de Jaurès à la Chambre, les barbares, c'est
 nous qui sommes les barbares, c'est nous qui sommes...
 c'est très connu. » Et quand on voulait préciser, on ne
-savait plus du tout. Or ces personnes étaient des
+savait plus du tout. ces personnes étaient des
 citoyens qui avaient suivi attentivement l'action parlementaire pendant toutes ces dernières années.
 
 — Cela prouve que vos cahiers ne sont pas tout à fait
-inutiles. Mais pourquoin'avez-vous pas demandé à Jaurès lui-même ?
+inutiles. Mais pourquoin'avez-vous pas demandé à Jaurès lui-même?
 
 — Je n'ai pas voulu le déranger de son travail et de
 son action pour si peu. Et puis sans doute lui-même il
@@ -978,12 +978,12 @@ aurons la deuxième et la troisième série de l'Action
 Le docteur ne dit mot et continua sa lecture
 Dans le groupe alors constitué à la Chambre, les différents orateurs s'étaient volontiers spécialisés. Vaillant,
 par exemple, parlait volontiers des questions ouvrières;
-Guesde parlait des questions ouvrières et des questions théoriques ; Millerand, avec sa clarté calme et
+Guesde parlait des questions ouvrières et des questions théoriques; Millerand, avec sa clarté calme et
 parfois presque un peu opportuniste et souvent avec
 
 son apparence de clarté, parlait dans les questions
 gouvernementales et dans les questions de politique
-étrangère ; ainsi des autres, et sans que cette spécialisation, bien entendu, fût officielle et rigoureusement
+étrangère; ainsi des autres, et sans que cette spécialisation, bien entendu, fût officielle et rigoureusement
 arrêtée. Millerand était le plus souvent celui qui
 parlait officiellement au nom du parti dans les circonstances difficiles. Jaurès était spécialisé beaucoup moins
 par le sujet de ses discours que par le caractère, par la
@@ -998,15 +998,15 @@ connaît l'admirable lutte qu'il soutint avec les verriers
 contre M. Rességuier, le grand patron en qui s'était
 pour ainsi dire personnifié tout ce que la brutalité bourgeoise, l'entêtement capitaliste et l'arbitraire patronal
 ont de plus odieux. Rentrant à la Chambre après plusieurs mois de lutte acharnée, il n'en prononça pas moins
-un de ses plus beaux discours ; ce discours dura deux
+un de ses plus beaux discours; ce discours dura deux
 jours et fit sur la Chambre, cependant mal disposée,
 une impression telle qu'il faillit enlever d'enthousiasme
 la solution à la fois simple et audacieuse que Jaurès avait
-mandat de proposer : l'arbitrage de M. Henri Brisson,
+mandat de proposer: l'arbitrage de M. Henri Brisson,
 alors président de la Chambre.
 
 Jaurès intervint dans les grands débats techniques,
-par exemple dans la question des sucres ; attentif à la
+par exemple dans la question des sucres; attentif à la
 démocratie paysanne, si considérable en France et
 d'une importance décisive, il prononça sur la crise
 agricole un de ses plus longs et ses plus beaux discours.
@@ -1021,9 +1021,9 @@ Il intervint dans les questions de politique extérieure.
 Il affirmait à la tribune de la Chambre l'excellence de
 l'internationalisme socialiste. Il prédisait, il annonçait
 la paix socialiste, plus durable que la paix romaine, la
-paix socialiste seule perdurable et seule universelle: ,
+paix socialiste seule perdurable et seule universelle:,
 « Dans ce siècle de concurrence sans limite et de surproduction, il y a aussi concurrence entre les armées et
-surproduction militaire : l'industrie elle-même étant un
+surproduction militaire: l'industrie elle-même étant un
 
 combat, la guerre devient la première, la plus excitée,
 la plus fiévreuse des industries. » (1) G&I n'y a qu'un
@@ -1045,7 +1045,7 @@ par le droit universel des peuples. Mais si nous ne nous
 reconnaissons pas le droit d'oublier, nous ne nous
 reconnaissons pas et nous ne reconnaissons à personne
 le droit de haïr, car notre pays même, si noble et si bon
-qu'il soit, a eu lui aussi, et c'est notre honneur de pouvoir le dire, il a eu lui aussi dans le passé, et à l'égard
+qu'il soit, a lui aussi, et c'est notre honneur de pouvoir le dire, il a lui aussi dans le passé, et à l'égard
 « même du peuple que vous savez, de longues heures de
 brutalité et d'arbitraire domination. Et dans les fautes
 des autres peuples nous reconnaissons trop les fautes
@@ -1058,7 +1058,7 @@ l'Irlande écoutait tous les bruits de guerre de l'Europe
 et attendait le débarquement de l'étranger qui devait la
 libérer de l'occupant. Nous ne sommes plus au temps
 où Mickiewicz terminait son Livre des Pèlerins par
-cette formidable prière : « Et la guerre universelle pour » notre libération, donnez-la nous, Seigneur! » Non!
+cette formidable prière: « Et la guerre universelle pour » notre libération, donnez-la nous, Seigneur! » Non!
 Mais lorsque l'Irlande, au Parlement même de Londres,
 fait et défait les majorités, lorsqu'elle donne et retire le
 pouvoir, lorsque les trois maîtres de la Pologne, à la
@@ -1069,7 +1069,7 @@ et étrange de leur démarche, l'unité visible du peuple
 qu'ils s'étaient partagé, j'ai le droit de dire que la jus-
 
 et d'autres voies que la guerre. La nation conquérante
-ne peut développer ses propres libertés qu'en les communiquant aux conquis, aux vaincus eux-mêmes ; et
+ne peut développer ses propres libertés qu'en les communiquant aux conquis, aux vaincus eux-mêmes; et
 comme ceux-ci sont un peuple par les idées, par les sentiments, par les traditions et par les espérances, par les
 affinités qui les relient entre eux et qui les relient aux
 groupes historiques dont ils ont été séparés, toujours
@@ -1078,7 +1078,7 @@ se dessiner des figures de peuples, et il y aura d'étranges
 et de profonds remaniements de nations avant qu'aucune
 carte les ait signalés. » (1) Et il montrait comment le
 développement de la justice sociale achèverait de ré-
-parer les iniquités commises de peuple à peuple : « De
+parer les iniquités commises de peuple à peuple: « De
 même qu'on ne réconcilie pas des individus en faisant
 simplement appel à la fraternité humaine, mais en les
 associant, s'il est possible, à une œuvre commune et
@@ -1099,7 +1099,7 @@ véritable prédilection le ramenait aux questions d'enseignement. Il défendait
 et la liberté d'enseigner, qui sont aussi, en un sens
 large, des libertés professionnelles pour le personnel
 enseignant. Il demandait que les instituteurs et que les
-professeurs eussent la liberté de traiter la question sociale. « Vous avez obligé », disait-il au ministre dans le
+professeurs eussent la liberté de traiter la question sociale. « Vous avez obligé disait-il au ministre dans le
 grand discours qu'il prononça lors de l'interpellation
 Thierry Cazes sur les libertés du personnel enseignant,
 « vous avez obligé l'Université elle-même à entrer dans
@@ -1125,12 +1125,12 @@ rature, vous ne pouvez plus chasser de vos lycées, de
 vos écoles la pensée humaine, la pensée sociale qui,
 d'ailleurs, figure dans vos programmes. » (1) Il demandait que les instituteurs et que les professeurs eussent la
 liberté de traiter la question sociale en socialistes, si
-telle était leur conviction : « Allez-vous, à tous ces professeurs de philosophie que vous laissez libres dans les
+telle était leur conviction: « Allez-vous, à tous ces professeurs de philosophie que vous laissez libres dans les
 autres questions, allez-vous imposer un formulaire en
-matière d'économie politique ou d'économie sociale ?
+matière d'économie politique ou d'économie sociale?
 Vous leur permettez de discuter les autres problèmes en
 toute souveraineté: il n'y a plus aujourd'hui comme au
-temps de Louis-Philippe une sorte de formulaire philosophique et métaphysique ; toutes les écoles de philosophie sont représentées dans votre enseignement public ; il est permis à vos professeurs de critiquer toutes
+temps de Louis-Philippe une sorte de formulaire philosophique et métaphysique; toutes les écoles de philosophie sont représentées dans votre enseignement public; il est permis à vos professeurs de critiquer toutes
 les preuves traditionnelles, ontologique ou autres, de
 l'existence de Dieu, de nier l'origine transcendante de
 l'idée du devoir et de s'associer aux conceptions évolutionnistes, criticistes ou matérialistes. Ils sont absolument libres dans la discussion de Dieu; seront-ils libres
@@ -1138,7 +1138,7 @@ dans la discussion du capital? » (2)
 
 Ainsi parlait Jaurès, et l'assentiment de tous ceux
 qui se disaient socialistes lui faisait cortège. D'un regard de poète et d'historien, l'orateur parcourait la
-lente histoire de la patience paysanne : « Toujours,
+lente histoire de la patience paysanne: « Toujours,
 depuis dix-huit siècles, sous la discipline des grands
 domaines gallo-romains, sous la hiérarchie de la pro-
 
@@ -1157,7 +1157,7 @@ sistante, à eux les courts sommeïls dans l'étable et le
 soin du bétail avant le lever du jour. Mais toujours
 c'est vers le noble Gaulois, tout fier d'un récent voyage
 à Rome, c'est vers le suzerain féodal qui se harnache
-pour le somptueux tournoi, c'est vers le financier gaspilleur, vers le bourgeois taquin et avare que va de
+pour le somptueux tournoi, c'est vers le financier gaspilleur, vers le bourgeois taquin et avare que de
 siècle en siècle la richesse des champs, des vignes et
 des bois. » Le paysan voit fuir de ses mains la force des étés,
 l'abondance des automnes, et c'est pour d'autres toujours qu'il s'épuise et qu'il pâtit.. »(1) Et voici comment il interprétait l'utilité de la souffrance paysanne
@@ -1169,7 +1169,7 @@ bon, je ne crains pas de le dire à cette tribune, il est
 bon que pendant des années, sur leurs champs étroits, les
 paysans aient pâti par l'effet de phénomènes écono-
 
-() Discours prononcé à la Chambre des Députés sur la crise agricole, ses causes et ses remèdes; première partie, prononcée le
+Discours prononcé à la Chambre des Députés sur la crise agricole, ses causes et ses remèdes; première partie, prononcée le
 
 miques lointains et vastes; trop longtemps le paysan
 s'était enfermé dans un individualisme étroit et aveugle;
@@ -1190,7 +1190,7 @@ esprit, c'est lui qui la rapetissait au contraire au cercle
 Et après tout, puisqu'il ne pouvait agir sur le monde,
 puisqu'il ne pouvait conduire au gré de sa moisson les
 forces naturelles, pourquoi se fûüt-il perdu en stériles
-soucis ? » Mais voici que sur son champ de blé passent non
+soucis? » Mais voici que sur son champ de blé passent non
 plus des forces naturelles, mais des forces économiques,
 des forces sociales, des forces humaines. Il laboure, il
 sème, il moissonne et porte sa moisson au marché
@@ -1255,7 +1255,7 @@ aujourd'hui se reflétèrent d'abord sur les ouvriers de
 cette œuvre. Il est certain que depuis le commencement
 de l'affaire Dreyfus, ou-plutôt depuis qu'ils ont com-
 
-() Même discours; deuxième partie, prononcée le 26 juin 1897
+Même discours; deuxième partie, prononcée le 26 juin 1897
 Faillite bourgeoise. La troisième partie: la Solution socialiste fut prononcée le 3 juillet.
 
 mencé l'affaire Dreyfus, le colonel Picquart, Zola, Clemenceau, Francis de Pressensé, tant d'autres, sont
@@ -1287,7 +1287,7 @@ discours qu'il avait prononcé sur la crise agricole. Plus
 tôt même on avait fait des critiques assez vives à la
 solution qui fut adoptée par les verriers de Carmaux
 après l'échec de la grève. On sait que, pour donner un
-asile et du pain aux militants qui avaient si opiniàtré- ‘
+asile et du pain aux militants qui avaient si opiniàtré-
 ment, si admirablement combattu pour sauvegarder
 leurs libertés politiques et syndicales et ainsi les libertés -
 
@@ -1344,22 +1344,22 @@ un sursaut d'immense solidarité humaine quand ces
 épouvantables inhumanités parvinrent à la connaissance
 de l'Europe occidentale. Toujours est-il qu'il intervint
 de toute sa force, d'une force passionnément douloureuse, dans les débats qui ne manquèrent pas de se
-produire : « Ce qui importe, ce qui est grave, ce n'est
-pas que la brute humaine se soit déchaïînée là-bas ; ce
+produire: « Ce qui importe, ce qui est grave, ce n'est
+pas que la brute humaine se soit déchaïînée là-bas; ce
 n'est pas qu'elle se soit éveillée. Ce qui est grave, c'est
-qu'elle ne s'est pas éveillée spontanément; c'est qu'elle ‘
+qu'elle ne s'est pas éveillée spontanément; c'est qu'elle
 a été excitée, encouragée et nourrie dans ses appétits
 les plus féroces par un gouvernement régulier avec
 lequel l'Europe avait échangé plus d'une fois, gravement,
 
-sa signature. » (1) Et il concluait hardiment à cequele .
+sa signature. » (1) Et il concluait hardiment à cequele.
 socialisme européen prit dès à présent la succession de
-la bourgeoisie indigne : « .. Il y a quelque chose de plus
+la bourgeoisie indigne: «.. Il y a quelque chose de plus
 grave et de plus significatif, c'est que ce soit justement
 à propos de cet Orient où le christianisme il y a dixhuit siècles avait surgi en annonçant une sorte d'universelle douceur et d'universelle paix, que ce soit précisé-
 ment à propos de cet Orient et des questions qui s'agitent
 là-bas, de Trébizonde à Jérusalem, qu'éclate la faillite
-morale de la vieille Europe chrétienne et capitaliste ! Et
+morale de la vieille Europe chrétienne et capitaliste! Et
 alors, puisque les gouvernements, puisque les nations
 égarées par eux sont devenues incapables d'établir un
 accord élémentaire pour empêcher des actes de barbarie
@@ -1381,7 +1381,7 @@ contre les duplicités russes, contre l'oppression de la
 (1) Action Socialiste, première série, pages 454 et
 (2) Action Socialiste, première série, pages 470 et
 
-finance cosmopolite : « J'ai bien le droit de dire que le
+finance cosmopolite: « J'ai bien le droit de dire que le
 poids des intérêts financiers a pesé et pèse encore d'une
 manière abusive sur la conduite de notre politique
 dans les affaires d'Orient. » (x)
@@ -1399,7 +1399,7 @@ indispensable au véritable homme d'action, il en pressentit toute la prochaine 
 par sa culture même à critiquer les monuments et les
 témoignages, il n'eut aucune peine à discerner où était
 la vérité. Il fit simplement part au public de cette dé-
-couverte : ainsi naquirent ces immortelles Preuves,
+couverte: ainsi naquirent ces immortelles Preuves,
 régulièrement produites aux lecteurs de La Petite Ré-
 publique et publiées ensuite en un volume. Celui qu'on
 avait jusqu'alors presque involontairement surnommé
@@ -1419,21 +1419,21 @@ leur enquête. Ces conclusions établissaient dès lors
 l'innocence de Dreyfus et la culpabilité d'Esterhazy. Le
 point culminant de la démonstration fut atteint, la
 justification la plus éclatante des preuves, leur vérification la plus frappante fut obtenue le jour où les lecteurs de la Petite République trouvèrent dans le même
-numéro du journal un des articles de Jaurès et un communiqué de l'Agence Havas : l'article de Jaurès, Les
+numéro du journal un des articles de Jaurès et un communiqué de l'Agence Havas: l'article de Jaurès, Les
 Faussaires, écrit au moins de la veille, bien entendu,
 démontrait que les bureaux de la guerre étaient au
 moins complices des faux fabriqués pour la défense
 d'Esterhazy, faux dont Jaurès avait, dans ses articles
-précédents, démontré la fausseté ; le communiqué de
+précédents, démontré la fausseté; le communiqué de
 l'Agence Havas était ainsi conçu
 « Aujourd'hui, dans le cabinet du ministre de la
 guerre, le lieutenant-colonel Henry a été reconnu et
 s'est reconnu lui-même l'auteur de la lettre en date d'octobre 1896 où Dreyfus est nommé. » (1)
 
-Pourquoi Jaurès intervint-il dans l'affaire Dreyfus ?
-Pourquoi y intervint-il de sa personne ? Et pourquoi y
-intervint-il comme socialiste ? Enfin pourquoi voulut-il
-que les socialistes français y intervinssent ?
+Pourquoi Jaurès intervint-il dans l'affaire Dreyfus?
+Pourquoi y intervint-il de sa personne? Et pourquoi y
+intervint-il comme socialiste? Enfin pourquoi voulut-il
+que les socialistes français y intervinssent?
 
 Il y était intervenu de sa personne alors qu'il était
 encore député. Il avait apporté à Émile Zola, devant la
@@ -1469,7 +1469,7 @@ sur sa seule conscience, sur sa seule raison, sur sa
 seule tête, de décider de la vie, de la liberté, de lhonneur d'un autre homme; et je dis que si de pareilles
 habitudes étaient tolérées dans notre pays, c'en serait
 fait de toute liberté et de toute justice! » Et voilà pourquoi tous les citoyens comme M. Zola
-ont eu raison de se dresser et de protester. Pendant
+ont raison de se dresser et de protester. Pendant
 que le Gouvernement, prisonnier de ses combinaisons,
 intriguait ou équivoquait, pendant que les partis parlementaires, prisonniers de la peur, se taisaient ou abdiquaient, pendant que la justice militaire installait l'ar-
 
@@ -1477,7 +1477,7 @@ bitraire du huis clos, des citoyens se sont levés dans
 
 leur fierté, dans leur liberté, dans leur indépendance,
 pour protester contre la violation du droit et c'est le
-plus grand service qu'ils aient pu rendre à notre pays. » Ah! je sais bien que M. Zola est en train d'expier
+plus grand service qu'ils aient rendre à notre pays. » Ah! je sais bien que M. Zola est en train d'expier
 par des haïnes et des attaques passionnées ce noble
 service rendu au pays, et je sais aussi pourquoi certains hommes le haïssent et le poursuivent! » Ils poursuivent en lui l'homme qui a maintenu l'in-
 
@@ -1499,7 +1499,7 @@ que l'on puisse faire à la question que nous nous
 sommes posée, ou plutôt que des socialistes ont posée
 à Jaurès. Et ici encore la question se retourne. La question qui se pose n'est plus celle de savoir pourquoi
 Jaurès est devenu dreyfusiste, mais bien celle de savoir
-pourquoi et comment il aurait pu ne pas le devenir.
+pourquoi et comment il aurait ne pas le devenir.
 Quand le feu prend à la maison, la question ne se pose
 pas de savoir pourquoi on accourt, mais ceux qui accourent ont justement le droit de poser des questions
 ceux qui n'accourent pas. Quand toute une bande de
@@ -1518,7 +1518,7 @@ citoyen libre, les pouvoirs légalement constitués étant
 défaillants; et parmi ces pouvoirs défaillants « les
 partis parlementaires, prisonniers de la peur, se taisaient ou abdiquaient ». Il ne fait aucune exception,
 comme on voit, pour le parti parlementaire socialiste.
-Dans la même déposition il avait détaillé cette défaillance des partis parlementaires : « Cette violation (de
+Dans la même déposition il avait détaillé cette défaillance des partis parlementaires: « Cette violation (de
 la légalité), on la devine, tout le monde la pressent! Il
 n'y a pas à la Chambre quatre députés qui en doutent,
 et pourquoi n'en parlent-ils pas? et pourquoi n'agis-
@@ -1528,7 +1528,7 @@ j'ai posé cette question décisive, il y avait un petit
 groupe d'amis, quinze ou vingt, qui me soutenait, et,
 dans l'ensemble de la Chambre, silence passif! Mais
 quand je suis descendu de la tribune, dans les couloirs,
-là où l'âme parlementaire retrouve son élasticité et sa
+où l'âme parlementaire retrouve son élasticité et sa
 liberté, dans les couloirs, des députés sans nombre, de
 tous les groupes et de tous les partis, me disaient
 « Vous avez raison, mais quel dommage que cette » affaire ait éclaté avant les élections! » » Eh bien! je crois qu'ils se trompent! je crois que,
@@ -1563,7 +1563,7 @@ qu'il avait commencée pour la justice et pour la vérité.
 Parmi les socialistes qui s'opposèrent à cette campagne ou du moins la contrarièrent, plus fatigants et
 plus redoutables pour Jaurès que ses adversaires bourgeois, justement parce qu'ils siégeaient à ses côtés, les
 uns se tenaient volontairement à l'écart de l'affaire,
-gardaient prudemment une excessive réserve : ainsi
+gardaient prudemment une excessive réserve: ainsi
 Müillerand. La plupart allaient plus loin, dénonçaient
 Paction de Jaurès, engagé avec des bourgeois contre
 des bourgeois. Parmi ces derniers les guesdistes se
@@ -1596,7 +1596,7 @@ avait aggloméré artificiellement des hommes de deux
 sortes. Les premiers, à qui les théoriciens socialistes
 ont un peu trop exclusivement réservé leurs critiques,
 étaient en réalité des petits bourgeoïs, mais de bons
-républicains, depuis longtemps libres penseurs, partisans du progrès, comme ils disent commodément ; en un
+républicains, depuis longtemps libres penseurs, partisans du progrès, comme ils disent commodément; en un
 mot ils correspondaïent assez exactement au sens conventionnel de l'expression radicaux-socialistes, expression parfaitement inintelligible en soi. Les seconds au
 contraire étaient de mauvais bourgeois, faussement
 révolutionnaires et faussement socialistes; ils se
@@ -1605,18 +1605,18 @@ violents, désordonnés, comme si la Révolution Sociale,
 
 ce coup de génie universel de l'humanité, ne devait pas
 être, ainsi que le génie individuel des hommes, l'effet
-bien ordonné d'une longue et invincible patience ; ils se
+bien ordonné d'une longue et invincible patience; ils se
 croyaient socialistes parce qu'ils étaient envieux,
 comme si le socialisme au contraire n'était pas l'ignorance même de toute concurrence, et ainsi de toute
 jalousie, de toute envie; ces malheureux, résidu du
 premier boulangisme et proie désignée d'avance pour
 une nouvelle démagogie, avaient en beaucoup de circonscriptions voté pour des candidats socialistes. Avec
 les radicaux-socialistes improprement classés comme
-socialistes, on ne courait pas un grand danger : ils ne
+socialistes, on ne courait pas un grand danger: ils ne
 pouvaient guère baisser que d'un degré, ils étaient gardés par leur passé républicain, par leurs habitudes
 d'esprit, par leurs mœurs, contre les surprises durables
 et contre les déchéances graves. Avec les boulangistes au
-contraire on courait les dangers les plus graves : ces
+contraire on courait les dangers les plus graves: ces
 malheureux étaient prêts pour toutes les fureurs, toutes
 les imbécillités, toutes les barbaries de l'antisémitisme
 et du nationalisme.
@@ -1662,12 +1662,12 @@ et de courage, comme les criminels qui font la loi à la
 France ont trouvé dans la lächeté publique une force
 inépuisable de mensonge et de trahison. » Mais merci à ceux qui nous avertissent de contenir
 notre colère et de laisser parler, de laisser agir la seule
-force du vrai, mesurée et invincible ! » Et quelle parole d'invective, quel cri de révolte peut
+force du vrai, mesurée et invincible! » Et quelle parole d'invective, quel cri de révolte peut
 égaler enfin sur l'esprit des hommes le seul effet du
 drame et de sa marche logique? L'innocent condamné
 au plus atroce supplice par la rencontre terrible des
 passions du dehors et des combinaisons des bureaux
-de la guerre ; puis, quand la vérité apparaît, la haute
+de la guerre; puis, quand la vérité apparaît, la haute
 armée se refusant à reconnaître l'erreur et conduite
 ainsi, pour supprimer la révolte du vrai, à ajouter les
 pièces fausses aux pièces fausses et à continuer sans
@@ -1675,7 +1675,7 @@ fin le mensonge par le mensonge, dans l'intérêt de la
 trahison impunie. » Bourrat peut déposer contre nous des vœux: il n'arrachera pas de l'histoire le crime qui s'y développe avec
 une logique implacable et une sorte de force organique.
 Ce crime est d'une belle vitalité, je l'avoue, et d'une
-belle poussée ; et ceux qui entrent à son service peuvent
+belle poussée; et ceux qui entrent à son service peuvent
 
 se promettre sans doute quelques années triomphantes.
 Il approprie et façonne à sa loi toutes les forces du pays,
@@ -1686,11 +1686,11 @@ civile, les ministères modérés, les ministères radicaux,
 la presse, l'opinion, le sufirage universel et Bourrat luimême. » Mais, malgré tous ces appuis, le monstrueux système de trahison et de mensonge croulera bien un jour
 et la France réveillée demandera sans doute des comptes
 aux adorateurs d'Esterhazy qui veulent aujourd'hui
-exterminer à son profit tous les hommes libres. L » En attendant, acte est donné à Bourrat de sa requête
+exterminer à son profit tous les hommes libres. » En attendant, acte est donné à Bourrat de sa requête
 aux pouvoirs publics pour nous faire interner ou dé-
 
 Ce fut le caractère définitif de la bataille qui recommença dès le lendemain, et sans aucune hésitation, pour
-la justice et pour la vérité : une révolte, un soulèvement,
+la justice et pour la vérité: une révolte, un soulèvement,
 une protestation de consciences individuelles qui
 n'avaient reçu aucun mandat politique, mais qui
 s'étaient donné à elles-mêmes le mandat scientifique de
@@ -1698,14 +1698,14 @@ découvrir et d'établir la vérité historique et le mandat
 moral de la révéler, de la communiquer aux autres
 hommes. Comme il était naturel, ces mandataires autonomes, ces mandataires d'un genre vraiment nouveau
 se recrutèrent d'abord surtout parmi les hommes de
-science et d'enseignement : « Ce qui a le plus révolté les
+science et d'enseignement: « Ce qui a le plus révolté les
 consciences, je ne parle pas seulement de la mienne, je
 parle de celles de beaucoup d'hommes indépendants qui
 vivent loin des affaires publiques, de professeurs, de
 mes camarades d'école, d''hommes qui ont été toute leur
 vie absorbés par des recherches désintéressées, ce qui
 
-() Article déjà cité de la Petite République; deuxième partie: une
+Article déjà cité de la Petite République; deuxième partie: une
 lettre fausse; publié dans les Preuves, pages 230 et
 
 les a décidés en grand nombre à sortir de leur service
@@ -1713,7 +1713,7 @@ et de leur neutralité et à descendre sur la place publique
 pour défendre le droit, c'est précisément ce contraste
 outrageant de la publicité de l'attaque contre un homme,
 et du huis clos de la défense. » (1) Parmi ces hommes
-Jaurès, professeur de philosophie, non seulement renouvela des amitiés anciennes qu'il avait forcément, pendant la législature précédente, un peu moins cultivées, !
+Jaurès, professeur de philosophie, non seulement renouvela des amitiés anciennes qu'il avait forcément, pendant la législature précédente, un peu moins cultivées,!
 mais il noua des amitiés nouvelles et se trouva pour
 ainsi dire en famille. On a quelquefois aflirmé que
 Jaurès, universitaire, avait rendu, pendant l'affaire
@@ -1758,7 +1758,7 @@ pas le lieu d'analyser ici. On doit seulement dire que ce
 n'était nullement, comme on l'a d'abord insinué, comme
 on l'a plus tard déclaré, de ce qu'il s'agissait d'un bour-
 geois. Le spectacle de cette injustice particulière éveilla
-donc un assez grand nombre d'universitaires et de sa68
+donc un assez grand nombre d'universitaires et de
 
 vants, leur donna le désir et la volonté de réparer cette
 injustice. Puis, à leur tour, ils firent leur induction, et
@@ -1769,13 +1769,13 @@ ne s'oppose nullement à celui de Jaurès. Il est identique
 au mouvement de Jaurès et seulement en retard sur lui.
 Ce sont deux mouvements identiques dont les moments
 correspondants sont simplement situés à des dates différentes. Pendant que Jaurès descendait par la déduction, eux montaient par l'induction. Mais on peut se
-rassurer : Ce n'est pas en vain que l'on fait ce voyage,
+rassurer: Ce n'est pas en vain que l'on fait ce voyage,
 et ils sauront bien comme lui redescendre à la réparation de toutes les injustices sociales.
 
 Socialistes devenus dreyfusistes, et dreyfusistes devenant socialistes, une double tâche leur était proposée
 la tâche de science et la tâche d'action; d'abord découvrir la vérité comme le savant la découvre, comme
 l'historien la découvre, par une enquête rigoureusement
-scientifique ; puis, la vérité ainsi découverte, ainsi établie sur des preuves scientifiques, la communiquer aux
+scientifique; puis, la vérité ainsi découverte, ainsi établie sur des preuves scientifiques, la communiquer aux
 autres hommes, lui faire accorder l'audience des autres
 hommes, lui assurer l'appui des masses, la force du
 peuple. Ces deux tâches étaient bien différentes. La
@@ -1805,7 +1805,7 @@ l'injustice. On doit donc solliciter les hommes au nom
 de la vérité, sans que cette sollicitation soit de nature
 à l'avilir. Jaurès prit une part active à ce travail de
 
-propagande. Les articles qu'il publiait dans {a Petite
+propagande. Les articles qu'il publiait dans Petite
 République, tirés à un grand nombre d'exemplaires
 et lus avidement, précipitaient les conversions individuelles.
 
@@ -1817,7 +1817,7 @@ extraordinaire, image anticipée des futurs tribunaux
 socialistes, image aussi de la prochaine humanité juste
 et bonne, les délégués des différents partis socialistes.
 
-ee tribunal extraordinaire il aurait soumis l'affaire
+tribunal extraordinaire il aurait soumis l'affaire
 Dreyfus, il aurait exposé tout ce qu'il savait déjà de
 l'affaire. Cet appel nouveau d'une injustice bourgeoise
 à la justice d'un tribunal socialiste, cette anticipation
@@ -1837,10 +1837,10 @@ il dit simplement au peuple les simples raisons pour lesquelles il pensait que l
 pour ainsi dire conduire le dreyfusisme.
 
 Ces raisons, nous les avons données en ce qu'elles
-avaient de général. Ce qu'elles ont de général et de permanent peut se résumer ainsi : Le socialisme a charge de
+avaient de général. Ce qu'elles ont de général et de permanent peut se résumer ainsi: Le socialisme a charge de
 lhumanité. Il ne suffit pas de dire que l'on socialisera
 il faut encore savoir ce que l'on socialisera. Il ne suffit
-pas que l'on s'entende sur le personnel de la socialisation : depuis longtemps, depuis qu'on a cessé d'imiter la République de Platon, toutes les écoles socialistes
+pas que l'on s'entende sur le personnel de la socialisation: depuis longtemps, depuis qu'on a cessé d'imiter la République de Platon, toutes les écoles socialistes
 et anarchistes sont d'accord pour attribuer à tous les
 hommes, sans aucune exception, sans en excepter les
 bourgeois, l'avantage de la socialisation; la socialisa-
@@ -1891,9 +1891,9 @@ laïque, de la science laïque, de la philosophie laïque.
 Il avait dès lors combattu la théorie des déclassés
 « (M. de Lanjuinais) me rappelait les paroles que
 M. Thiers prononçait à une époque de réaction. Il
-disait : « Il ne faut pas mettre de feu sous une marmite » vide. » Eh bien! c'est vrai, mais il y a deux remèdes : le
-premier, c'est celui de M. de Lanjuinais : éteindre le feu;
-le second, qui est le nôtre : garnir un peu la marmite. » (1)
+disait: « Il ne faut pas mettre de feu sous une marmite » vide. » Eh bien! c'est vrai, mais il y a deux remèdes: le
+premier, c'est celui de M. de Lanjuinais: éteindre le feu;
+le second, qui est le nôtre: garnir un peu la marmite. » (1)
 
 Il avait dès alors protesté, — car M. Brunetière venait
 d'inaugurer cette métaphore des faillites et des banqueroutes qui eut une certaine fortune littéraire, — il avait
@@ -1950,7 +1950,7 @@ c'est cette idée que ce qu'il y a de plus grand dans le
 monde, c'est la liberté souveraine de l'esprit, c'est cette
 idée qu'aucune puissance ou intérieure ou extérieure,
 aucun pouvoir et aucun dogme ne doit limiter le perpé-
-tuel effort et la perpétuelle recherche de la raison humaine ; cette idée que l'humanité dans l'univers est une
+tuel effort et la perpétuelle recherche de la raison humaine; cette idée que l'humanité dans l'univers est une
 
 (1) Les esprits étaient alors attentifs à une commission d'enquête,
 sans doute à la grande commission d'enquête parlementaire
@@ -1958,10 +1958,10 @@ sans doute à la grande commission d'enquête parlementaire
 1892) sur le Panama. On trouverait des traces de ces préoccupations
 dans les journaux du temps.
 
-tion gouvernementale, aucune intrigue céleste ou terrestre ne doit jamais restreindre ou fausser les opérations ; cette idée que toute vérité qui ne vient pas de
-nous est un mensonge ; que, jusque dans les adhésions
+tion gouvernementale, aucune intrigue céleste ou terrestre ne doit jamais restreindre ou fausser les opérations; cette idée que toute vérité qui ne vient pas de
+nous est un mensonge; que, jusque dans les adhésions
 que nous donnons, notre sens critique doit rester toujours en éveil et qu'une révolte secrète doit se mêler
-toutes nos affirmations et à toutes nos pensées ; que si
+toutes nos affirmations et à toutes nos pensées; que si
 l'idée même de Dieu prenait une forme palpable, si Dieu
 lui-même se dressait, visible, sur les multitudes, le
 premier devoir de l'homme serait de refuser l'obéissance
@@ -1980,12 +1980,12 @@ effrayée voudrait ramener le pays à l'antique foi, c'est-à-
 dire à l'antique docilité, c'est que cette foi elle-même fait
 défaut à ceux qui la voudraient rétablir chez les autres.
 Ils sentent très bien qu'ils ne peuvent rendre ni à euxmêmes ni aux classes dirigeantes la sincérité de la
-croyance; ils se bornent à dire : « Nous avons trop parlé, » taisons-nous. Si nous ne pouvons plus croire, pour les » foules au moins faisons semblant. »
+croyance; ils se bornent à dire: « Nous avons trop parlé, » taisons-nous. Si nous ne pouvons plus croire, pour les » foules au moins faisons semblant. »
 
 PRÉPARATION DU CONGRÈS » Il est trop tard, et on ne trompera plus personne. Si
 une partie de la bourgeoisie, pour sauver ses privilèges,
 se ralliait autour du Vatican, essayait de s'abriter sous
-le voile hypocrite d'une religion contrefaite, elle ne retarderait pas d'une minute sa disparition : elle aurait seulement déshonoré son agonie. » Seulement, nous pouvons juger d'avance, nous pouvons pressentir assurément ce que serait demain notre
+le voile hypocrite d'une religion contrefaite, elle ne retarderait pas d'une minute sa disparition: elle aurait seulement déshonoré son agonie. » Seulement, nous pouvons juger d'avance, nous pouvons pressentir assurément ce que serait demain notre
 enseignement public sous la discipline cléricale restaurée et sous cette douce médication papale dont
 d'Hulst nous donnait tout à l'heure une application
 particulièrement atténuée. Oui, on n'essaierait pas d'obtenir du peuple, ni de ses maîtres, ni de ses enfants,
@@ -1993,18 +1993,18 @@ une foi intime, profonde, mais on surveillerait toutes les
 libertés et tous les mouvements de l'esprit; on exigerait
 des maîtres des apparences trompeuses, on fausserait
 toutes les paroles, toutes les attitudes, et on essaierait
-ce crime : inoculer au peuple naïssant l'hypocrisie religieuse de la bourgeoisie finissante. » (1)
+ce crime: inoculer au peuple naïssant l'hypocrisie religieuse de la bourgeoisie finissante. » (1)
 
 « Dans la forme de société qui a précédé la nôtre, il
 y avait au moins concordance entre les idées et les faits,
-entre les choses et les mots : il y avait une hiérarchie
+entre les choses et les mots: il y avait une hiérarchie
 sociale comme il y avait une hiérarchie religieuse correspondante; il y avait une résignation sociale et une
-résignation religieuse ; il y avait une échelle de la création, au sommet de laquelle étaient les puissances supé-
+résignation religieuse; il y avait une échelle de la création, au sommet de laquelle étaient les puissances supé-
 rieures et Dieu, comme il y avait une échelle de la
 société, au sommet de laquelle étaient le noble, le
 prêtre et le roi; et il n'y avait ni tromperie ni équi-
 
-voque : le serf savait qu'il était devant Dieu l'égal du
+voque: le serf savait qu'il était devant Dieu l'égal du
 
 noble; mais il savait aussi que, de par l'ordre du même
 
@@ -2015,7 +2015,7 @@ inspirer à eux-mêmes. » Ce qui, au contraire, caractérise la société pré-
 sente, ce qui fait qu'elle est incapable à jamais de s'en-
 seigner elle-même et de se formuler elle-même en une
 règle morale, c'est qu'il y a partout en elle une contradiction essentielle entre les faits et les paroles. Aujourd'hui, il n'y a pas une seule grande parole qui ait son
-sens vrai, plein et loyal : fraternité, — et le combat est
+sens vrai, plein et loyal: fraternité, — et le combat est
 partout; égalité, — et toutes les disproportions vont
 s'amplifiant; liberté, — et les faibles sont livrés à tous
 les jeux de la force; propriété, c'est-à-dire rapport étroit
@@ -2024,7 +2024,7 @@ plus en plus une fiction monstrueuse qui livre à quelques hommes des forces nat
 même pas la loi, et des forces humaines dont ils ne
 savent même pas le nom! Oui, partout le creux, l'hypocrisie des paroles. Il y a plus d'un siècle, Diderot
 pressentait ces faussetés prochaines, lorsqu'il disait
-dans une de ses pensées révolutionnaires : « Avoir » des esclaves n'est rien; mais ce qui est intolérable, » c'est d'avoir des esclaves en les appelant des ci- » toyens! » Il n'y a jamais eu une société aussi audacieusement ironique que la nôtre, et l'ironie — j'en
+dans une de ses pensées révolutionnaires: « Avoir » des esclaves n'est rien; mais ce qui est intolérable, » c'est d'avoir des esclaves en les appelant des ci- » toyens! » Il n'y a jamais une société aussi audacieusement ironique que la nôtre, et l'ironie — j'en
 demande bien pardon à M. Barrès — ne peut pas être
 un principe universel d'éducation. Méphistophélès ne
 
@@ -2044,7 +2044,7 @@ L'article s'arrêtait avec cette citation.
 Quand le docteur eut fini de lire ce maladroit essai
 d'histoire personnelle, je m'attendais à ce qu'il me fit
 d'abord des critiques et même quelques reproches, car
-je n'avais pas la conscience tranquille ; mais j'étais un
+je n'avais pas la conscience tranquille; mais j'étais un
 peu rassuré parce que son front s'était éclairé plusieurs
 fois pendant qu'il poursuivait sa lecture. Quand il releva
 la tête, les soucis présents et l'heureuse mémoire des
@@ -2060,7 +2060,7 @@ bercement où, quand nous voulions nous faire sincèrement pessimistes, nous pou
 de trente ans pour avoir parfait la révolution sociale.
 Qui nous eût dit alors qu'un jour viendrait où les con-
 quêtes préalables de la simple Révolution française
-bourgeoise et politique seraient aussi gravement mena- ?
+bourgeoise et politique seraient aussi gravement mena-?
 cées, sous la raillerie hautaine et aigrement courtoise
 des arrivistes bourgeois et prétendus socialistes. Un
 jour que nous aurons le temps, mon ami, si les moines
@@ -2075,7 +2075,7 @@ m'est si déplaisant. Car nous combattions le monde
 bourgeois sans arrière-pensée, sans aucune réserve,
 sans aucune haine, sans amertume et sans repliements,
 assurés que nous étions que nous avions si évidemment
--_ raison que nous finirions bien par convertir et que nous
+raison que nous finirions bien par convertir et que nous
 réconcilierions nos adversaires en apparence les plus
 irréductibles. Heureux temps de foi naïve et de sincère
 imbécillité. Aussitôt que nous aurons le temps, mon ami,
@@ -2104,17 +2104,17 @@ m'avez donné à lire?
 nements se sont précipités, parce que cette histoire
 m'intéressait moins au moment où j'allais la terminer.
 
-— Qu'auriez-vous dit encore, si vous aviez terminé ?
+— Qu'auriez-vous dit encore, si vous aviez terminé?
 
 — J'aurais d'abord tâché d'expliquer en quel sens et
 comment j'avais dit que l'éloquence de Jaurès n'était
-pas classique. J'entendais par là que son geste, son
+pas classique. J'entendais par que son geste, son
 verbe et sa phrase n'étaient pas faits comme on enseigne à les faire dans les classes de rhétorique. Mais,
 au bon sens du mot, l'éloquence de Jaurès est admirablement classique, en ce sens que l'ordonnance en est
 rigoureusement et sincèrement régulière, sans aucun de
 ces faux ornements qui sont les mensonges de la politesse rhétoricienne.
 
-J'aurais longuement insisté sur cette simple constatation : qu'il n'a jamais été, pour personne, un chef
+J'aurais longuement insisté sur cette simple constatation: qu'il n'a jamais été, pour personne, un chef
 d'école, qu'il a toujours procédé par propositions, dé-
 monstrations et convictions, jamais par séductions,
 persuasions ou commandements; que par conséquent
@@ -2124,9 +2124,9 @@ d'école, mais une surprise des scholarques à un homme
 libre. J'aurais insisté sur cette idée, ou plutôt sur cette
 hypothèse, que si Jaurès ne devint pas un chef d'école,
 nous le devons en partie à la culture générale et humaine qu'il avait reçue, à La libre philosophie qu'il
-avait entendue et enseignée : les chefs d'école sont en
+avait entendue et enseignée: les chefs d'école sont en
 général des barbares, des incomplets, des têtes étroites,
-et des ignorants : s'ils n'étaient pas des ignorants, ils
+et des ignorants: s'ils n'étaient pas des ignorants, ils
 sauraient comme il est vain, comme il est mauvais de
 vouloir commander à des hommes; ils sauraient que
 l'action de la raison est seule efficace et définitive; ils
@@ -2136,7 +2136,7 @@ infertile et singe comme la pauvreté du disciple qui ne
 s'affranchit pas. Voilà ce que j'aurais indiqué en terminant mon article.
 
 — Pourquoi cette histoire vous intéressait-elle moins
-au moment où vous alliez la terminer ?
+au moment où vous alliez la terminer?
 
 — Parce que plus on travaille sur un portrait, moins
 on y a de goût, et parce que plus j'allais, plus je me
@@ -2150,7 +2150,7 @@ nous avez donnée de lui. Et moi-même je ne le reconnais
 pas exactement. Cependant votre histoire est faite pour
 la plus grande part avec des citations authentiques. —
 Ce n'est pas cela que je vous reproche. Ayant à parler
-de Jaurès, vous avez laissé parler Jaurès : vous avez
+de Jaurès, vous avez laissé parler Jaurès: vous avez
 bien fait. Les admirables éloquences que vous nous avez
 
 données sont plus intéressantes et plus probantes que
@@ -2171,7 +2171,7 @@ instituteur, qu'Allemane est un typographe, que Chauvin
 est un coiffeur, que le père Faberot est un chapelier,
 qu'un tel a fait des machines à coudre, et qu'un second
 a barboté les caisses des groupes, et qu'un tiers n'a
-jamais eu aucun métier. Non pas que je m'imagine
+jamais aucun métier. Non pas que je m'imagine
 inconsidérément qu'il suffit d'avoir un métier pour être
 un bon citoyen; mais j'aime les gens qui ont un métier,
 
@@ -2205,13 +2205,13 @@ que vous avez tracé ensuite. Vous y avez employé l'expression parti socialiste
 cela est fort admissible, puisque vous l'avez employée
 en un sens qu'elle avait au temps de votre sujet, qu'elle
 eut à la rigueur jusqu'à la résolution finale du récent
-Congrès. Ce n'est pas là ce que je vous reproche. Vous
+Congrès. Ce n'est pas ce que je vous reproche. Vous
 savez aussi bien que moi ce que je vous reproche.
 
 — Quand j'ai commencé à lire l'œuvre de Jaurès,
 articles de a Dépéche et premiers discours à la Chambre,
-jy ai trouvé une expression admirable de plusieurs
-idées qui nous sont demeurées chères ; je les ai naturellement et injustement distinguées; je les ai mises naturellement et injustement au premier plan ; je n'ai pas
+ai trouvé une expression admirable de plusieurs
+idées qui nous sont demeurées chères; je les ai naturellement et injustement distinguées; je les ai mises naturellement et injustement au premier plan; je n'ai pas
 faussé brutalement la pensée de Jaurès, mais je Pai
 
 inclinée en choisissant parmi les manifestations d'une
@@ -2221,22 +2221,22 @@ j'ai représenté, mais l'événement ne fut pas comme je
 lattendais, le réel est plus fort que nous tous, et pendant
 que je dessinais, le modèle évoluait rapidement. Jaurès
 ne restait pas le moraliste qu'il fut sans aucun doute
-un moment de son histoire : il s'élargissait en puissance
+un moment de son histoire: il s'élargissait en puissance
 pour l'action prochaine, il gagnaït en pouvoir immédiat
-et en retentissement ; j'espère qu'il a gagné aussi en
+et en retentissement; j'espère qu'il a gagné aussi en
 pouvoir à longue échéance et en retentissement profond.
 
 — Il est certain que Jaurès n'avouerait pas à présent
 les paroles que vous avez écrites sur la révolution
-sociale obtenue par la lutte des classes. N'ai-je pas lu
+sociale obtenue par la lutte des classes. N'ai-je pas
 de lui, dans le deuxième cahier, à la page 22, les lignes
-suivantes : & La lutte de classe est le principe, la base,
+suivantes: La lutte de classe est le principe, la base,
 la loi même de notre parti. Ceux qui n'admettent pas la
 lutte de classe peuvent être républicains, démocrates,
-radicaux ou même radicaux-socialistes : ils ne sont pas
+radicaux ou même radicaux-socialistes: ils ne sont pas
 
 — Je ne sais pas, citoyen docteur, si nous devons entendre aussi rigoureusement quelques lignes éerites sans
-doute à la hâte et dans la stupeur douloureuse du manifeste. L'auteur continue ainsi : « Reconnaître la lutte
+doute à la hâte et dans la stupeur douloureuse du manifeste. L'auteur continue ainsi: « Reconnaître la lutte
 de classe, c'est dire que dans la société d'aujourd'hui il
 y a deux classes, la bourgeoisie capitaliste et le prolé-
 tariat, qui sont dans de tels rapports que l'entier développement de l'une suppose la disparition de l'autre. »
@@ -2280,7 +2280,7 @@ mêmes, elles sont en général beaucoup moins réussies
 que la synthèse réelle initiale préalable, parce qu'il y a
 quelqu'un qui a beaucoup plus d'esprit que M. Tout le
 Monde, qui lui-même a beaucoup plus d'esprit que
-de Voltaire : c'est le réel. Et ce qui est préférable
+de Voltaire: c'est le réel. Et ce qui est préférable
 tout, c'est de négliger les mots en isme ainsi que les
 mots en iste. Nous laisserons donc aux petits lycéens
 qui font leur première philosophie les discussions incessamment renaissantes sur l'idéalisme et sur le maté-
@@ -2307,20 +2307,20 @@ urbaine, et des leçons de choses faites aux adolescents et aux adultes et aux p
 anciens par les instituteurs, des leçons de morale, une
 sévère laïcisation de l'enseignement, de la vie et de
 la morale scolaire, familiale et civique, une moralisation
-universelle : j'ai plus confiance en tous ces fourmillements d'action voulue prosaïque et modeste qu'aux
+universelle: j'ai plus confiance en tous ces fourmillements d'action voulue prosaïque et modeste qu'aux
 prétendus enseignements de la souffrance. Les tempêtes
 universelles font un ravage universel et non pas une
 réparation. L'amélioration par la souffrance est une
 supposition chrétienne et je ne suis pas chrétien. J'ai
 connu autour de moi beaucoup de souffrances qui
-n'étaient pas littéraires ou figurées : elles endommageaient leurs hommes ainsi que la morve endommage
+n'étaient pas littéraires ou figurées: elles endommageaient leurs hommes ainsi que la morve endommage
 un cheval. Je suis, moi, pour l'amélioration par lobsti-
 - nation de la santé. Je suis ainsi fidèle au commencement
 de Jaurès. Vous vous êtes laissé emporter à l'éloquence
 du modèle. Parce que ce discours est sans aucun doute
 le plus beau que Jaurès ait prononcé, VOuS nous l'avez!
 présenté comme le couronnement de son éloquence.
-Vous n'avez pas vu que ce discours admirable est en
+Vous n'avez pas que ce discours admirable est en
 opposition formelle avec le Jaurès initial, avec le Jaurès
 d'enseignement; et je me demande avec peine si le
 grand orateur penchera de ce côté.
@@ -2332,12 +2332,12 @@ tarde, citoyen, d'en causer avec vous. En attendant je
 ne suis pas plus étonné que vous que Jaurès nous ait
 laissé là-dessus des ouvertures de liberté, car je
 remarque la place considérable que la considération de
-la liberté tient dans son livre : liberté de l'enseigne- »
+la liberté tient dans son livre: liberté de l'enseigne- »
 
 syndicales et coopératives, libertés nationales, de
 pensée, de parole, de conscience. Il y a dans ces articles
 et dans ces discours un certain goût de la liberté
-qui n'a pas dû passer à l'auteur. Il est même intéressant
+qui n'a pas passer à l'auteur. Il est même intéressant
 que le mot de liberté revienne aussi souvent dans ce
 
 — J'espère, docteur, que nous ne serons pas longtemps seuls parmi les socialistes révolutionnaires
@@ -2350,7 +2350,7 @@ bientôt plus question que de la discipline rationnelle.
 est qu'il est très vieux: les quatre mois qu'il a me paraissent un grand espace de temps. Il est devenu passé,
 périmé, faux. Vous avez écrit que l'affaire Dreyfus avait
 modifié si profondément l'aspect et la situation des
-partis et des hommes. C'était une imagination. Voyezvous comme les partis et les hommes se revêtent hâtivement de leurs anciens aspects ?
+partis et des hommes. C'était une imagination. Voyezvous comme les partis et les hommes se revêtent hâtivement de leurs anciens aspects?
 
 — Nous en causerons, docteur, quand je vous aurai
 apporté les documents et les renseignements que j'aurai recueillis sur la décomposition du dreyfusisme en
@@ -2372,7 +2372,7 @@ pas les personnalités évidentes que nous devons attaquer, et nous attaquerons 
 le neutre est complice, ne l'oublions pas. Si nous refusons de constater que les grands chefs et les petits
 jettent la peur et le trouble dans l'âme et dansle cœur
 des hommes ignorés, nous supposerons faussement, et
-nous dirons faussement, comme on l'a dit, que le peuple ,
+nous dirons faussement, comme on l'a dit, que le peuple,
 est naturellement peureux et trouble, que le peuple est
 mou, que le peuple est lâche. Nous sommes si enserrés
 dans cette complexité pleine, vivante et douloureuse,
@@ -2382,7 +2382,7 @@ moyens et nos petits adversaires, qu'en sacrifiant
 injustement nos amis, grands, petits et moyens. Nous
 sommes coincés. Nous n'avons pas fait ce réel, ou du
 moins nous avons contribué bien peu à le faire; nous
-en sommes aussi peu responsables ; ayons-en du remords si nous le voulons, mais qu'au moins ce remords
+en sommes aussi peu responsables; ayons-en du remords si nous le voulons, mais qu'au moins ce remords
 ne se résolve pas en fausses délicatesses, réellement
 injustes et barbares pour plusieurs. Quand nous ména-
 geons les personnalités que nous devons attaquer, pour
@@ -2391,7 +2391,7 @@ personnalités, comme les coups de cognée ou de hache
 dans cette étrange forêt de la réalité, retombent toujours quelque part, nous abattons et nous meurtrissons,
 au lieu des arbres désignés, des arbres et des arbustes
 vivants immérités. Et qu'avons-nous fait, pendant cette
-campagne aujourd'hui importune, indispensable naguère, qu'avons-nous fait, sinon des personnalités ?
+campagne aujourd'hui importune, indispensable naguère, qu'avons-nous fait, sinon des personnalités?
 Qu'avons-nous fait si nous n'avons pas personnellement
 défendu des personnalités, attaqué des personnalités,
 défendu les personnalités injustement poursuivies en
@@ -2406,38 +2406,38 @@ ral de Boisdeffre, et celle de M. du Paty de Clam, et
 celle de M. Deniel. Avons-nous assez fait de personnalités? En tout cas n'avons-nous pas fait la personnalité
 de M. Alfred Dreyfus, un capitaine jadis ignoré. La personnalité de l'attaque suppose la personnalité de la dé-
 fense, et inversement. Et quand nous crions encore
-aujourd'hui dans nos processions et dans nos manifestations : au bagne, Mercier, au bagne, est-ce que nous
-faisons, oui ou non, une personnalité. Or nous devons
+aujourd'hui dans nos processions et dans nos manifestations: au bagne, Mercier, au bagne, est-ce que nous
+faisons, oui ou non, une personnalité. nous devons
 même au général Mercier l'égalité de la critique et de la
 méthode. Les gendarmes sont des citoyens qui font des
-personnalités. Or nous avons fait les gendarmes dans
+personnalités. nous avons fait les gendarmes dans
 
 toute cette affaire, avouons-le, ou plutôt déclarons-le
-hautement : nous avons remplacé les gendarmes injustement empêchés. Ce devoir pénible, et en dehors de nos
+hautement: nous avons remplacé les gendarmes injustement empêchés. Ce devoir pénible, et en dehors de nos
 habitudes, nous l'avons fait. Il fallait bien que nous le
-fissions : qui n'était pas contre la personnalité de Mercier était contre la personnalité, alors lamentable, de
+fissions: qui n'était pas contre la personnalité de Mercier était contre la personnalité, alors lamentable, de
 Dreyfus; qui n'était pas contre la personnalité de
 Vaillant et de Guesde était contre la personnalité de
 Jaurès et ainsi contre la personnalité du même Dreyfus.
 D'ailleurs en ce temps-là on ne nous reprochait pas de
 faire des personnalités. Maître Labori ne faisait pas
-trop de personnalités; Zola n'avait pas fait trop de personnalités ; vous-même, s'il est permis de vous introduire ici, vous ne faisiez pas trop de personnalités.
+trop de personnalités; Zola n'avait pas fait trop de personnalités; vous-même, s'il est permis de vous introduire ici, vous ne faisiez pas trop de personnalités.
 
-— Vous avez un bon souvenir : au moment où les machinations des scholarques poignardaient dans le dos
-les hommes libres engagés au premier rang de la bataille, j'intervins modestement et je dénonçai la trahison ; pendant plusieurs quinzaines je fis des personnalités; je publiai dans la reoue blanche une série d'articles
-sur l'affaire Dreyfus et la crise du Parti socialiste ; je
+— Vous avez un bon souvenir: au moment où les machinations des scholarques poignardaient dans le dos
+les hommes libres engagés au premier rang de la bataille, j'intervins modestement et je dénonçai la trahison; pendant plusieurs quinzaines je fis des personnalités; je publiai dans la reoue blanche une série d'articles
+sur l'affaire Dreyfus et la crise du Parti socialiste; je
 disais ce que je pensais, ce que nous pensions tous alors
-de plusieurs personnalités ; j'allai jusqu'à faire des personnalités contre une personnalité amie qui, à mon
+de plusieurs personnalités; j'allai jusqu'à faire des personnalités contre une personnalité amie qui, à mon
 sens, n'avait pas attaqué assez vivement les personnalités dangereuses, sans doute surtout pour ne pas faire
 de personnalités. Tout le monde alors trouvait que j'avais
 
 — Cela ne prouve pas que vous eussiez raison en effet.
 
-— Mais cela ne prouve pas non plus que j'aie eu tort
+— Mais cela ne prouve pas non plus que j'aie tort
 d'avoir continué. Tout le monde en ce temps-là trouvait
 que j'avais raison. Je n'étais pas devenu alors un pur
 seulement on m'approuvait hautement et vivement,
-mais on m'eût encouragé si j'avais eu besoin d'un
+mais on m'eût encouragé si j'avais besoin d'un
 encouragement. Je n'en demandai aucun. J'avais raison
 d'attaquer ainsi Guesde et Vaillant, j'avais raison de
 leur dire leurs vérités; ce que je leur disais était bien
@@ -2448,7 +2448,7 @@ qui était alors des vérités est devenu depuis des erreurs.
 et M. Vaillant avaient apporté depuis des rectifications.
 Mais je ne crois pas qu'ils en aient produit aucune. Ce
 sont eux au contraire qui ont bien voulu pardonner
-leurs accusateurs, et à leurs accusés : ce sont eux qui
+leurs accusateurs, et à leurs accusés: ce sont eux qui
 ont pardonné à tout le monde. Ils ont amnistié. Ils sont
 
 — Ce que vous m'avez répondu sur la question des
@@ -2482,7 +2482,7 @@ ceux qui veulent soustraire quelques personnalités
 légalité de la loi morale. N'instituons aucune oligarchie au cœur de la cité socialiste.
 
 Nous sommes ainsi conduits à nous poser la question
-universelle : pouvons-nous et devons-nous, par une opé-
+universelle: pouvons-nous et devons-nous, par une opé-
 ration volontaire et factice, réaliser prématurément et
 apparemment nos souhaits, donner à la bataille humaine un aspect plus beau que nous croyons meilleur,
 au lieu de lui laisser l'aspect moins beau que nous
@@ -2498,13 +2498,13 @@ Si vous pensez que le manifeste a été inspiré par
 l'orgueil personnel des scholarques, vous avez bien fait
 d'écrire, mon ami, ce que vous pensez, et tous ceux qui
 
-vous ont approuvé, s'ils pensaient comme vous, ont eu
-raison. Que vous ayez eu raison ou tort sur le fond,
+vous ont approuvé, s'ils pensaient comme vous, ont
+raison. Que vous ayez raison ou tort sur le fond,
 nous l'examinerons quand nous étudierons la présente
 organisation du Parti socialiste.
 
 Avez-vous remarqué, mon ami, le sans-gêne avec
-lequel vous vous êtes cité vous-même ?
+lequel vous vous êtes cité vous-même?
 
 — J'ai fait un métier où j'ai connu plusieurs auteurs
 je me suis facilement aperçu que l'auteur désirait naturellement qu'on le lût; je n'ai connu aucune exception
@@ -2516,12 +2516,12 @@ vraiment à écrire. Il n'est pas vrai que le moi soit
 haïssable. Rien n'est haïssable d'abord. Le moi n'est
 pas plus haïssable d'abord que les autres, qui sont
 aussi des moi. Cette affectation à ne parler pas de soi
-peut avoir deux sens : ou bien elle est sincère, injuste
+peut avoir deux sens: ou bien elle est sincère, injuste
 envers le moi, favorable aux autres; c'est alors de
 lhumilité chrétienne, et je ne suis pas chrétien; la
 modestie socialiste, qui est le sens de la mesure gardée
 en évaluant justement les relations du moi aux autres,
-se distingue de l'humilité chrétienne ainsi que la solidarité socialiste se distingue de la charité chrétienne ; ou
+se distingue de l'humilité chrétienne ainsi que la solidarité socialiste se distingue de la charité chrétienne; ou
 bien cette affectation, comme il arrive communément,
 n'est pas sincère, et nous devons laisser aux cabotins
 de bas étage un tel trompe l'œil. Ce qui revient à dire
@@ -2532,7 +2532,7 @@ abandonné aux autres, et c'est par moi surtout que je
 
 sais ce qui peut arriver à un socialiste moyen commun
 
-Ë sincère longtemps battu par les forts et longtemps
+sincère longtemps battu par les forts et longtemps
 roulé par les malins.
 
 — Vous serez souvent battu par les forts et souvent
@@ -2548,8 +2548,8 @@ agir envers toutes les personnalités que le réel nous
 De retour à la maison, je recommençai à recueillir des
 documents et des renseignements sur la préparation du
 
-La lutte avait eu au commencement un caractère
-personnel : Jaurès parlait pour les socialistes indépendants et pour les hommes libres; le manifeste se dé-
+La lutte avait au commencement un caractère
+personnel: Jaurès parlait pour les socialistes indépendants et pour les hommes libres; le manifeste se dé-
 fendait par son poids, par les précautions officielles
 de ses phrases, par la masse des signatures, par son
 apparente soudaineté, par sa brutalité attentive et
@@ -2595,14 +2595,14 @@ Cabinet des adjoints
 Dans le passage de votre article de ce matin relatif à la
 conférence de Pressensé à Lille, vous signalez la présence
 de Debierre à la présidence et celle de Siauve au bureau de
-la réunion. Vous ajoutez, « sans le nommer », qu'un adjoint
+la réunion. Vous ajoutez, « sans le nommer qu'un adjoint
 de la municipalité socialiste, membre du Parti ouvrier,
 attendait de Pressensé à la gare.
 
 Croyez-vous donc que j'aie honte ou regret d'avoir avec
-vous — après vous plutôt — et dans la mesure de mes fai97
+vous — après vous plutôt — et dans la mesure de mes
 
-bles moyens, mené la lutte contre le militarisme envahisseur et faussaire ?
+bles moyens, mené la lutte contre le militarisme envahisseur et faussaire?
 
 Ne me faites pas cette injure.
 
@@ -2610,7 +2610,7 @@ Je crois n'avoir été dupe de personne en m''associant
 votre admirable campagne, sans cesser un instant mes
 efforts de propagande collectiviste.
 
-Si c'était à refaire, je le ferais encore ; car c'était à mon
+Si c'était à refaire, je le ferais encore; car c'était à mon
 avis remplir une œuvre révolutionnaire au premier chef
 que d'éclairer le pays sur la valeur morale de la haute
 armée, ce pilier et cet espoir de l'ordre capitaliste actuel.
@@ -2624,7 +2624,7 @@ marchandé à notre propagande le concours de leur activité
 et de leur talent.
 
 J'espère encore que l'entente socialiste n'est pas irrémé-
-diablement détruite ; et c'est avec l'espérance de contribuer
+diablement détruite; et c'est avec l'espérance de contribuer
 à son rétablissement que j'irai au prochain Congrès national du Parti ouvrier français, s'il ne nous est pas donné
 avant sa réunion de voir disparaître le triste malentendu
 dont se réjouissent nos adversaires.
@@ -2640,7 +2640,7 @@ pouvant pas m'associer à une flétrissure adressée à des
 amis que j'aime, que j'estime, et dont je partage les opinions, je crois de mon devoir de donner ma démission de
 membre du Parti socialiste révolutionnaire, » HENRI TUROT »
 
-Dans /a Petite République du mercredi 19, Jaurès continuait sa réponse
+Dans Petite République du mercredi 19, Jaurès continuait sa réponse
 
 C'était prévu. Rochefort tire parti du manifeste déplorable qui a soudainement éclaté. Comme nous l'avons
 dit le jour même, Guesde et Vaillant, sans le vouloir,
@@ -2655,10 +2655,10 @@ les invitent à se compromettre et à se déshonorer au profit
 de qui? D'un ministère qui ne tient plus debout, qui, condamné d'ici à quelques semaines à une culbute honteuse,
 laissera les stigmates de son passage aux affaires sur tous
 ceux qui, par complaisance ou par faiblesse, auront obéi
-ses ordres. Jaurès comptait bien terroriser les juges militaires en leur répétant tous les matins : « Ce n'est pas seulement le gouvernement, c'est le peuple qui est avec nous. »
-Or le gouvernement n'existe plus et le peuple vient de se
+ses ordres. Jaurès comptait bien terroriser les juges militaires en leur répétant tous les matins: « Ce n'est pas seulement le gouvernement, c'est le peuple qui est avec nous. »
+le gouvernement n'existe plus et le peuple vient de se
 
-Voilà qui est clair et vraiment Vaillant et Guesde auraient dû le prévoir. Toutes les puissances du mensonge
+Voilà qui est clair et vraiment Vaillant et Guesde auraient le prévoir. Toutes les puissances du mensonge
 pèsent sur les juges de Rennes. On les presse, on les
 supplie de ne pas condamner les généraux en acquittant
 Dreyfus. Il restait à la France deux garanties de justice.
@@ -2672,7 +2672,7 @@ crime, l'assassinat d'un homme par le militarisme et
 le cléricalisme conjurés.
 
 Mais le manifeste est venu et Rochefort dit aux juges
-de Rennes : « Ne vous inquiétez ni du pouvoir républicain ni du peuple socialiste. Le pouvoir républicain
+de Rennes: « Ne vous inquiétez ni du pouvoir républicain ni du peuple socialiste. Le pouvoir républicain
 ne pouvait vivre que par le vote ou tout au moins
 l'abstention des socialistes. Ils viennent de s'engager
 par un manifeste à voter dès la rentrée contre lui. Quant
@@ -2689,7 +2689,7 @@ et contre l'humanité, Guesde et Vaillant auront, par l'effet déplorable d'une 
 responsabilité dans ce désastre.
 
 D'avance, nous protestons. Nous affirmons que la classe
-ouvrière n'est pas retirée sous sa tente ; nous aflirmons
+ouvrière n'est pas retirée sous sa tente; nous aflirmons
 qu'elle est émue à la fois dans son humanité et dans son
 instinct révolutionnaire par le grand drame où se jouent
 l'honneur de notre pays et la liberté républicaine. Guesde
@@ -2704,7 +2704,7 @@ militarisme que nous aurons alors en main. Ou bien
 Dreyfus, compromis par leur défaillance révolutionnaire,
 aura été une fois de plus livré aux prêtres et aux bourreaux, et ils seront accablés par une responsabilité formidable. C'est nous, alors, qui nous dresserons pour
 crier l'infamie des juges, pour dénoncer l'abominable
-société où un tel crime est possible : et Vaillant et
+société où un tel crime est possible: et Vaillant et
 Guesde, sous peine de tomber à jamais sous l'humiliante
 tutelle de Drumont, de Déroulède et de Rochefort,
 seront bien obligés de s'associer à notre combat révolutionnaire contre le crime militariste triomphant.
@@ -2714,11 +2714,11 @@ manifestation si dangereuse? A la Chambre, les élus
 du Parti ouvrier et ceux du Parti socialiste révolutionnaire avaient, soit par leur abstention, soit par leur
 vote, aidé le ministère à vivre. Pourquoi, à la veille du
 procès Dreyfus, lui lancer une déclaration de guerre
-qui ajoute à la force des nationalistes et des généraux ?
-Que s'est-il passé denouveau? Reprochent-ils au ministère d'avoir imposé silence aux généraux et aux colonels ? Reprochent-ils à Millerand d'avoir compris que
+qui ajoute à la force des nationalistes et des généraux?
+Que s'est-il passé denouveau? Reprochent-ils au ministère d'avoir imposé silence aux généraux et aux colonels? Reprochent-ils à Millerand d'avoir compris que
 le plus urgent pour le salut de la République était de
 rendre au monde ouvrier, au monde syndical confiance
-en la vertu réformatrice de la République ? Par sa fidé-
+en la vertu réformatrice de la République? Par sa fidé-
 lité au peuple, et par son esprit de décision, par les
 décrets qui assurent les conditions de travail depuis si
 longtemps attendues, par son intervention heureuse au
@@ -2731,13 +2731,13 @@ reprenant les facteurs congédiés pour faits de grève,
 par toute une attitude amie envers les syndicats et les
 Bourses de travail, Millerand a fait rentrer bien des travailleurs découragés dans la grande espérance républicaine.
 
-Est-ce là ce que des socialistes lui reprochent ? Ne
-voient-ils pas que là est la garantie durable contre le
-césarisme et les coups d'État ; et ne sont-ils pas heureux
+Est-ce ce que des socialistes lui reprochent? Ne
+voient-ils pas que est la garantie durable contre le
+césarisme et les coups d'État; et ne sont-ils pas heureux
 que ce soit un socialiste qui, sans excéder le mandat
 général de défense républicaine reçu par le cabinet,
 renouvelle ainsi, pour la classe ouvrière lassée, la
-figure de la République ?
+figure de la République?
 
 Le même jour La Petite République publiait les protestations suivantes
 Lettre du citoyen Ferroul
@@ -2749,7 +2749,7 @@ Les explications qu'elle contient sont, je crois, nécessaires.
 
 vous,
 
-Éloigné de Paris, je n'ai pu assister à la rédaction du manifeste au bas duquel figure mon nom en ma qualité de
+Éloigné de Paris, je n'ai assister à la rédaction du manifeste au bas duquel figure mon nom en ma qualité de
 membre du Conseil national du parti ouvrier.
 
 Si j'avais été là, après avoir accepté le rappel de toutes
@@ -2773,7 +2773,7 @@ Nous sommes en communion de doctrine avec un grand
 nombre de socialistes qui ont, sur la tactique, d'autres idées
 que nous.
 
-Cela suffit-il pour les écarter ?
+Cela suffit-il pour les écarter?
 
 Quelle que soit notre foi, elle ne nous donne pas l'infaillibilité.
 
@@ -2805,7 +2805,7 @@ Recevez, mon cher Landrin, l'assurance de ma meilleure
 Le manifeste qui a mis la division dans le Parti socialiste
 porte ma signature comme membre de la commission administrative du Parti socialiste révolutionnaire.
 
-Si j'en avais eu une communication préalable et si j'en
+Si j'en avais une communication préalable et si j'en
 avais fait une lecture plus approfondie, je ne l'aurais pas
 signé, demeurant partisan d'une union étroite de toutes les
 fractions socialistes en face de la réaction militariste et
@@ -2842,12 +2842,12 @@ longtemps sans pour cela paraître trop vieux — l'arrivée,
 
 dans le Parti socialiste, des Jaurès, Millerand, Viviani et
 autres intellectuels. Combien de fois j'ai dit dans diverses
-réunions : La blouse et le paletot ont compris qu'il y avait
+réunions: La blouse et le paletot ont compris qu'il y avait
 un prolétariat intellectuel et un prolétariat manuel. Cet
 acte est un grand pas de fait pour l'avènement de la République sociale.
 Si ces derniers savaient ce qu'il en coûte de misères d'être
 un militant et de subir en atelier l'oppression patronale —
-oh ! certes je ne conteste pas l'abnégation qu'ils ont pu
+oh! certes je ne conteste pas l'abnégation qu'ils ont
 faire de leurs intérêts particuliers pour celui de l'intérêt
 collectif — mais ils verraient que les travailleurs ont le
 droit d'être parfois sceptiques, de ne pas admettre l'entrée
@@ -2860,7 +2860,7 @@ franchise qui doit caractériser tout militant.
 
 À Jaurès, je dis
 Je reconnais exactement les paroles que j'ai prononcées
-il y a eu samedi huit jours à Gentilly. En quoi voyez-vous,
+il y a samedi huit jours à Gentilly. En quoi voyez-vous,
 comme vous le dites, que notre manifeste condamne votre
 attitude dans l'affaire Dreyfus et que mon nom mis au bas
 d'un manifeste essaie de vous déshonorer, quand il dit
@@ -2869,14 +2869,14 @@ devenir sous peine de suicide un parti ministériel; il n'a
 pas à partager le pouvoir avec la bourgeoisie. » Quoi de
 plus juste. Je ne vois pas pourquoi vous prenez fait et
 cause pour Millerand puisque, paraît-il, il a agi sous sa
-responsabilité personnelle. Serait-ce par solidarité des intellectuels ? Je n'incrimine pas. Mais de quel droit, je vous le
+responsabilité personnelle. Serait-ce par solidarité des intellectuels? Je n'incrimine pas. Mais de quel droit, je vous le
 demande, Millerand at-il accepté de faire partie d'une combinaison ministérielle sans consulter le groupe socialiste
-de la Chambre. Il croit avoir bien fait; pour moi, il a eu tort.
+de la Chambre. Il croit avoir bien fait; pour moi, il a tort.
 
 Quand vous dites dans votre article d'hier, l'action gouvernementale pourrait être discutée dans un congrès géné-
 ral, mais les groupes hostiles la tranchent en quelques
 phrases sommaires, au hasard de leurs rivalités. Donc
-Millerand aurait pu attendre cette décision.
+Millerand aurait attendre cette décision.
 
 J'estime que quand on appartient à un grand parti comme
 
@@ -2884,10 +2884,10 @@ le nôtre, on est tout entier à la démocratie et que l'initiative,
 dans la question qui nous intéresse, devrait sortir des
 représentants du monde du travail.
 
-Millerand, oui ou non, devait-il consulter le groupe socialiste avant d'accepter une collaboration avec Galliffet ?
+Millerand, oui ou non, devait-il consulter le groupe socialiste avant d'accepter une collaboration avec Galliffet?
 
 Je n'admets pas la diversion que veulent faire certains
-de nos concitoyens quand ils disent : Pourquoi chercher
+de nos concitoyens quand ils disent: Pourquoi chercher
 dans la conquête des municipalités l'action parlementaire,
 puisque vous ne voulez pas, pour le parti socialiste, l'action
 gouvernementale. Il y a entre ces deux actions un fossé
@@ -2896,9 +2896,9 @@ très large qui les sépare et qu'il me serait facile d'expliquer.
 A Millerand je dis
 Ne croyez-vous pas que M. Waldeck-Rousseau, en vous
 offrant le portefeuille du commerce, conséquemment de collaborer avec Galliffet, ministre de la guerre, n'a pas agi
-dans l'intention de diviser le parti socialiste ? Ne vous
+dans l'intention de diviser le parti socialiste? Ne vous
 seriez-vous pas laissé prendre dans le piège du grand protecteur du grand syndicat patronal qui voulait, en 1898,
-terrasser le socialisme ? Quoi de déshonorant de l'avouer
+terrasser le socialisme? Quoi de déshonorant de l'avouer
 et de reprendre sa place de combat au milieu des siens
 dans les rangs socialistes.
 
@@ -2913,7 +2913,7 @@ qu'il ramène tout le débat à l'entrée de Millerand dans le
 cabinet Waldeck-Rousseau. Il s'y déclare opposé et reproche
 à Jaurès de professer une opinion contraire.
 
-Cependant il ne va point jusqu'à excommunier notre ami.
+Cependant il ne point jusqu'à excommunier notre ami.
 
 le déclare formellement; il s'étonne même que celui-ci se
 sente visé par le manifeste.
@@ -2961,7 +2961,7 @@ La preuve? je la trouve dans l'attitude contradictoire de
 Vaillant et de Guesde avant et après le meeting du Tivoli.
 Vaillant fut des premiers qui encouragèrent Jaurès dans sa
 campagne en faveur de Dreyfus. Guesde, de son côté, prodiguait à notre ami les félicitations, et je me rappelle
-avoir eu avec lui des entretiens à la Chambre à la suite desquels je me reprochais mes hésitations.
+avoir avec lui des entretiens à la Chambre à la suite desquels je me reprochais mes hésitations.
 
 Ce n'est qu'après le meeting où nous fimes acclamer par
 six mille socialistes présents l'œuvre d'unification du Parti
@@ -2971,7 +2971,7 @@ encourus par le socialisme dans la campagne Dreyfus.
 partir de ce moment notre compte fut ouvert. Le manifeste d'excommunication dont on nous frappe n'en est que
 le règlement.
 
-Coutant n'a pas vu ou n'a pas pressenti toute la portée
+Coutant n'a pas ou n'a pas pressenti toute la portée
 de l'opération à laquelle il s'associait; ni Sembat, ni Breton,
 ni Pastre, ni les autres. Car je ne peux croire une seule
 minute qu'ils aient le moindre motif de nous condamner, de
@@ -2993,13 +2993,13 @@ comme un prétendu socialiste, un dupeur du prolétariat, et
 comme ayant méconnu la lutte de classe, qui ont arboré
 aussi franchement le drapeau communiste de l'expropriation capitaliste et de la lutte de classe, lèvent la main!
 
-Il est vrai que j'ai été battu. Ça m'apprendra à ne pas af-
+Il est vrai que j'ai été battu. m'apprendra à ne pas af-
 
 ficher les articles de députés radicaux recommandant ma
-candidature! Ça m''apprendra à ne consentir dans un intérêt
+candidature! m''apprendra à ne consentir dans un intérêt
 électoral aucune compromission avec les partis bourgeois
 ni aucune diminution de la doctrine socialiste. Mon échec
-aurait dù me valoir au moins les circonstances atténuantes.
+aurait me valoir au moins les circonstances atténuantes.
 
 Ce qui me console, c'est la certitude que, à part les trois
 rédacteurs du bref d'excommunication dont je suis frappé
@@ -3042,7 +3042,7 @@ eux-mêmes leur volonté. Voyez cette Fédération des Ardennes. Voyez aussi nos
 Et l'on veut continuer de maintenir dans l'obéissance passive, dans le mutisme religieux des chapelles cette démocratie socialiste qui est majeure, qui est capable, à l'heure
 présente, de gouverner le monde.
 
-Il y a là un anachronisme que le prochain congrès effacera. Militants socialistes de France, émancipez-vous!
+Il y a un anachronisme que le prochain congrès effacera. Militants socialistes de France, émancipez-vous!
 
 La Petite République du jeudi 20 publiait de Gustave
 Rouanet cette Lettre ouverte au Citoyen Bénézech, dé-
@@ -3057,11 +3057,11 @@ Vous, citoyen Bénézech, qui, jusqu'à ces derniers temps,
 vous réclamiez du socialisme seul, sans acception de chapelle ou d'église, vous, militant de la première heure, qui
 connaissez la somme de dévouement infatigable apportée
 la propagande socialiste par ceux que votre manifeste appelle les « dupeurs » du prolétariat, — comment avez-vous
-pu flétrir ces camarades de lutte de vingt ans et, sans respect pour le souvenir des batailles livrées ensemble, les
-dénoncer au mépris du peuple ?
+flétrir ces camarades de lutte de vingt ans et, sans respect pour le souvenir des batailles livrées ensemble, les
+dénoncer au mépris du peuple?
 
 Que des jeunes gens comme Carnaud, co-signataire du
-manifeste, s'arrogent le droit de penser que nous avons dû
+manifeste, s'arrogent le droit de penser que nous avons
 
 « accepter » sa doctrine pour venir au socialisme et qu'il
 condamne notre attitude tout en condescendant jusqu'à ne
@@ -3074,7 +3074,7 @@ qu'inflexiblement républicaine de Jaurès, Gérault-Richard,
 
 Citoyen Bénézech, en signant le document qui a la pré-
 tention de nous mettre au ban du socialisme, vous avez
-commis plus qu'une erreur : une faute grave que vous aurez
+commis plus qu'une erreur: une faute grave que vous aurez
 à cœur de réparer, j'en suis convaincu, quand vous vous
 serez rendu compte du tort qu'elle fait au socialisme dans
 la région que vous représentez.
@@ -3125,7 +3125,7 @@ jouerait à la Chambre les tentatives criminelles d'un ÉtatMajor clérical et c
 Et aujourd'hui, vous condamnez Jaurès qui ne fut pas
 seulement l'ouvrier du Droit et de la Justice, mais encore la
 sentinelle vigilante de la démocratie, par qui les attentats
-projetés furent rendus impossibles! Vous condamnez Millerand, qui reprend et consolide l'œuvre de Jaurès, en acceptant de collaborer à la défense de la République ! Et
+projetés furent rendus impossibles! Vous condamnez Millerand, qui reprend et consolide l'œuvre de Jaurès, en acceptant de collaborer à la défense de la République! Et
 cela brutalement, sans discussion, sans que ni vous ni vos
 commettants aient été consultés, sans que le parti socialiste se soit prononcé, avant aucun acte de Millerand, à
 l'heure où de toutes parts arrivent à notre camarade socialiste, porté au ministère par la force des événements autant
@@ -3161,7 +3161,7 @@ La Petite République publiait le même jour les protestations suivantes:
 jai formellement déclaré à Zévaès, en présence de té-
 moins, que je me refuserais à signer tout manifeste dont
 on ne m'aurait pas donné lecture au préalable, déclaration
-que j'avais déjà faite avec Carnaud, au sein du conseil ”
+que j'avais déjà faite avec Carnaud, au sein du conseil
 national, en présence de Guesde et de Lafargue.
 
 Je désapprouve toutes les critiques qui ont été faites
@@ -3169,7 +3169,7 @@ contre certains membres du parti socialiste, puisque l'ancienne tactique de la l
 jamais contracter d'alliance avec les partis bourgeois, a été
 abandonnée depuis bien longtemps déjà par tous les signataires de ce manifeste, sans qu'aucun d'eux ait jamais
 
-Cordiale poignée de mains, ‘
+Cordiale poignée de mains,
 
 Déclaration du citoyen Pastre et de son comité
 
@@ -3183,7 +3183,7 @@ Député du Gard
 Déclaration de Maxence Roldes
 Montceau-les-Mines, 18 juillet, 3 h. 55, soir,
 
-Oui, merci pour l'avoir aflirmé : Je suis, comme aux premiers jours de la glorieuse « déviation », avec vous en communauté absolue de conscience et de pensée.
+Oui, merci pour l'avoir aflirmé: Je suis, comme aux premiers jours de la glorieuse « déviation avec vous en communauté absolue de conscience et de pensée.
 
 Puisque le débat est ouvert, je sors de l'impasse, je demande la parole, et j'adresse au journal une déclaration
 qui me libère de la torture morale qui m'était infligée par
@@ -3196,9 +3196,9 @@ La Petite République du vendredi 21 publiait les
 protestations et communications suivantes
 
 Par les batailles du Creusot et de Montceau-les-Mines éloigné de
-Paris, où je n'ai fait, en juin et juillet, que de très courtes apparitions, je n'ai pu assister à aucune des réunions au cours desquelles
-fut rédigé, discuté et adopté le « Manifeste à la France ouvrière »,
-manifeste dont je n'ai eu connaissance, avant sa publication dans la
+Paris, où je n'ai fait, en juin et juillet, que de très courtes apparitions, je n'ai assister à aucune des réunions au cours desquelles
+fut rédigé, discuté et adopté le « Manifeste à la France ouvrière
+manifeste dont je n'ai connaissance, avant sa publication dans la
 presse, que par une lecture rapide.
 
 Cette lecture m'a cependant suffi à le juger.
@@ -3211,7 +3211,7 @@ que dans la mesure de mes forces — et je remercie Jaurès de l'avoir
 rappelé — à ses côtés, et dès la première heure, j'ai résolument
 
 Ce fut, je l'avoue, l'une des heures les plus angoissantes de ma vie
-de militant que celle où se posa pour moi le dilemme : ou me
+de militant que celle où se posa pour moi le dilemme: ou me
 séparer de bons et sincères camarades de lutte ou paraître de ma
 signature désapprouver une tactique dont je m'étais affirmé — ce
 que je suis plus que jamais — partisan convaincu, prononcer avec la
@@ -3242,7 +3242,7 @@ groupe, a l'impérieux devoir de se prononcer hardiment. En ce qui
 me concerne, voilà qui est fait.
 
 Le citoyen Carnaud nous adresse la lettre suivante, en
-réponse à l'article du citoyen Rouanet paru hier matin :
+réponse à l'article du citoyen Rouanet paru hier matin:
 
 Je ne saurais me plaindre des quelques lignes paternelles que vous
 consacrez à ma jeunesse, dans la Petite République du 20 courant,
@@ -3251,19 +3251,19 @@ avez involontairement commise, et de présenter au Parti le rameau
 d'olivier.
 
 Je ne me suis pas arrogé le droit de penser — ainsi que vous l'af-
-firmez — que vous avez dû accepter ma doctrine pour venir au
+firmez — que vous avez accepter ma doctrine pour venir au
 
 C'est moi, au contraire, qui suis un disciple obscur mais fidèle de
 la doctrine que Guesde a répandue sans compter, autour de lui,
-avec son ardeur infatigable et sa foi d'apôtre. Je n'ai eu à me trouver
+avec son ardeur infatigable et sa foi d'apôtre. Je n'ai à me trouver
 rigide, ni sévère, ni même indulgent envers aucun membre du
 parti socialiste. Je me suis contenté de faire entendre que des
 
 hommes qui sont liés par une commune doctrine ne doivent pas se
 diviser sur une question de tactique. Dès la première minute, j'ai
-désapprouvé les termes offensants que j'ai souffert d'avoir vu employer contre des militants que je respecte et que j'aime. Je suis
+désapprouvé les termes offensants que j'ai souffert d'avoir employer contre des militants que je respecte et que j'aime. Je suis
 sûr que les partis bourgeois en seront, une fois de plus, pour leurs
-espoirs détruits, parce que l'entente va sortir plus forte que jamais
+espoirs détruits, parce que l'entente sortir plus forte que jamais
 du conflit qui a jeté momentanément la division dans nos rangs.
 
 Je ne crois pas que ce soit trop demander à tous nos amis, dans
@@ -3284,7 +3284,7 @@ organisation, afin de lui demander d'observer la trêve nécessaire
 que je propose à tous.
 
 Recevez, mon cher Rouanet, les amiliés d'un jeune homme, un
-peu âgé déjà, qui a toujours eu la plus grande estime pour votre
+peu âgé déjà, qui a toujours la plus grande estime pour votre
 caractère et pour votre talent.
 
 Lettre du citoyen Légitimus
@@ -3303,7 +3303,7 @@ du conseil général de la Guadeloupe
 
 Lettre du citoyen Brunellière
 
-J'ai été péniblement affecté jeudi soir quand j'ai lu dans
+J'ai été péniblement affecté jeudi soir quand j'ai dans
 les journaux de Nantes le manifeste à la France ouvrière
 et socialiste, auquel mon nom a été apposé comme membre
 du Conseil national du Parti ouvrier français.
@@ -3322,8 +3322,8 @@ plusieurs de nos amis.
 D'ailleurs, étant secrétaire général de la Fédération socialiste nantaise, mon adhésion à un acte politique de l'importance du manifeste l'engageait aussi bien que moi, et je
 n'avais pas le droit de le faire sans la consulter.
 
-La Fédération se réunit mercredi prochain ; la question
-est posée, elle sera discutée et résolue. Jusque-là, je n'ai pu
+La Fédération se réunit mercredi prochain; la question
+est posée, elle sera discutée et résolue. Jusque-là, je n'ai
 faire qu'une chose, c'est d'écrire à Jules Guesde pour lui
 demander de ne pas engager ma signature sans me consulter,
 étant donnée ma situation vis-à-vis de la Fédération socialiste nantaise.
@@ -3352,10 +3352,10 @@ parisiens que dans ceux de la région nantaise m'en donnent
 la conviction profonde.
 
 De plus, il me semble que nous touchons au moment où
-Vunité d'action des organisations socialistes va passer dans
+Vunité d'action des organisations socialistes passer dans
 les faits. Est-ce que le courant irrésistible de la prochaine
 révolution prolétarienne et socialiste laissera le temps aux
-discussions intestines de se propager ?
+discussions intestines de se propager?
 
 Vous me considérez peut-être comme optimiste, et, certes,
 je le suis comme tous ceux qui ont une foi absolue dans
@@ -3371,7 +3371,7 @@ lui demander de rectifier le poft-scriptum de cette lettre, qui ne
 pouvait être que le fait d'une erreur.
 
 « La signature de Lavigne au bas du manifeste a été apposée
-malgré ses protestations », disait Camelle! Je ne peux pas m'expliquer comment Camelle a pu écrire cette affirmation, qui ne tend
+malgré ses protestations disait Camelle! Je ne peux pas m'expliquer comment Camelle a écrire cette affirmation, qui ne tend
 à rien moins qu'à accuser Jules Guesde d'une malhonnéteté, et qui
 est une inexactitude. Camelle s'est trompé, et il sera le premier à le
 
@@ -3379,14 +3379,14 @@ J'affirme, moi, que lorsque Guesde s'est servi de ma signature il
 en avait pleinement le droit, en vertu de l'usage consacré par tous
 les précédents dans notre parti: que tout document émanant du
 Conseil national doit être signé de la totalité des membres qui le
-composent, qu'ils aient été ou non présents à la séance où ils ont ‘
-été convoqués pour l'adopter ou le discuter. ,
+composent, qu'ils aient été ou non présents à la séance où ils ont
+été convoqués pour l'adopter ou le discuter.,
 
 Que cet usage n'offre pas d'inconvénients dans la pratique, ceci
-est une question à examiner, et l'incident du manifeste est de nature ,
+est une question à examiner, et l'incident du manifeste est de nature,
 à y faire réfléchir. Mais jusqu'à ce que le Congrès national ait décidé
 
-d'y apporter une modification, l'usage persiste ; et quel que soit mon
+d'y apporter une modification, l'usage persiste; et quel que soit mon
 sentiment sur le manifeste lui-même, ce serait déloyal de ma part
 de reprocher à Guesde d'y avoir mis ma signature alors qu'il en
 avait le droit.
@@ -3402,7 +3402,7 @@ interprétées par le public comme malveillantes à l'adresse de Millerand ou d'
 que je déplorerais.
 
 Je regrette certainement que ma lettre n'ait pas été écrite plus
-tôt, peut-être eût-elle eu pour effet de modifier le projet arrêté.
+tôt, peut-être eût-elle pour effet de modifier le projet arrêté.
 C'est ma faute. Mais je le répète, Guesde ne peut pas être accusé
 d'avoir passé outre à une protestation qu'il ne connaissait pas.
 
@@ -3448,7 +3448,7 @@ socialiste » tant caressée.
 Il y a longtemps, depuis le meeting du Tivoli Vaux Hall même,
 que je pressentais votre projet de « briser les organisations existantes » — dont la prudence gêne un peu vos magnifiques élans —
 pour renfermer la totalité du socialisme dans « un grand et beau
-navire », comme vous disiez l'autre jour, qui, galère unique, laisserait un total désastre si elle venait à chavirer!
+navire comme vous disiez l'autre jour, qui, galère unique, laisserait un total désastre si elle venait à chavirer!
 « Les organisations particulières sont devenues incapables de fixer
 avec autorité la méthode du parti. son intérêt et son devoir. C'est
 donc le parti tout entier qui doit être consulté. » Voilà ce que vous
@@ -3468,27 +3468,27 @@ en combattant de toutes mes forces votre projet de dislocation et de
 débandade aussi bien que « le système des faits accomplis avec lesquels on veut faire marcher le monde socialiste, bon gré, mal gré! »
 Cela ne m'empêche pas et ne m'empêchera jamais d'avoir pour
 votre personne, ainsi que pour Millerand, la sympathie affectueuse
-ja et la confiance que vous méritez, aussi bien que l'admiration que
+et la confiance que vous méritez, aussi bien que l'admiration que
 commande votre beau talent.
 Le prochain congrès d'Epernay — où je souhaiterais voir arriver
-en masse précisément les protestataires contre le manifeste — va
+en masse précisément les protestataires contre le manifeste —
 permettre de vider à fond les graves questions soulevées par ce
 document dont les auteurs, j'en suis persuadé, contrairement
 toutes les mauvaises intentions que les passionnés leur imputent,
-ont eu surtout pour but de frapper un grand coup en en exagérant
+ont surtout pour but de frapper un grand coup en en exagérant
 la brutalité, pour forcer le monde socialiste à réfléchir et à examiner
 s'il n'y a pas lieu de s'arrêter dans la voie où on voudrait le lancer.
 Je fais des vœux pour que de cette agitation des esprits, à mon
 avis salutaire, sorte pour le socialisme une nouvelle force d'expansion en même temps qu'une sécurité plus grande, et je vous prie
 
--  d'agréer, mon cher Jaurès, mes affectueuses salutations.
+- d'agréer, mon cher Jaurès, mes affectueuses salutations.
 
 La Petite République du dimanche 23 publiait la
 Lettre du citoyen Ferrero, député
 Mon cher Gérault-Richard,
 
 Je viens d'adresser à Guesde la lettre ci-jointe. Les travailleurs qui nous ont donné mission de défendre leurs
-intérêts ne peuvent comprendre les querelles d'écoles; abattons d'abord le vieux monde capitaliste ; la société nouvelle
+intérêts ne peuvent comprendre les querelles d'écoles; abattons d'abord le vieux monde capitaliste; la société nouvelle
 ne peut surgir des spéculations des philosophes, mais de la
 réalité des faits.
 
@@ -3515,7 +3515,7 @@ tactique, de doctrine, d'école, passent au second plan; on
 aime les socialistes qui luttent pour la bonne cause; Gé-
 rault-Richard et Jaurès sont de ceux-là.
 Le peuple, qui veut sincèrement l'unité socialiste, la veut
-complète et ne peutcomprendre nos divisions : par son bon
+complète et ne peutcomprendre nos divisions: par son bon
 sens, il nous contraindra à une fraternelle étreinte... et
 ainsi sera terminée cette querelle que je n'aurais jamais
 voulu voir surgir.
@@ -3535,11 +3535,11 @@ indépendante du Parti.
 
 L'entrée d'un des nôtres dans un ministère qui compte
 dans son sein un Galliffet est la cause de ma protestation,
-toute légitime il me semble, vu que je ne saurais admettre
+toute légitime il me semble, que je ne saurais admettre
 aucune compromission avec le fusilleur de mai.
 
 Le sang de nos pères, de nos sœurs, de nos frères, non
-encore refroidi, est toujours là pour nous obliger à avoir la
+encore refroidi, est toujours pour nous obliger à avoir la
 plus grande répulsion à l'égard de l'auteur de la semaine
 
 Applaudissant à l'organisation d'un grand congrès socialiste, seul moyen à mon avis de trancher les différends existants, j'ose espérer qu'après discussion l'entente se fera
@@ -3557,7 +3557,7 @@ filles mineures et des femmes dans les établissements
 
 Suite de la séance du jeudi 21 décembre
 
-M. MEsurREUR. — Monsieur Cadenat, voulez-vous me permettre un mot ?.. Lorsque j'ai eu l'honneur d'être ministre
+M. MEsurREUR. — Monsieur Cadenat, voulez-vous me permettre un mot?.. Lorsque j'ai l'honneur d'être ministre
 du commerce, j'ai fait appliquer la loi. /Très bien! très
 bien! à gauche)
 
@@ -3574,10 +3574,10 @@ M. Lasres. — Les préfets sont capables de tout! /Nouveaux rires)
 M. CApENAT. — Messieurs, ce sont les paroles textuelles
 d'un ancien ministre du commerce...
 
-Plusieurs membres. — Quel est-il ? Faites-le connaître !
+Plusieurs membres. — Quel est-il? Faites-le connaître!
 
 M. CADENAT. — Je ne suis pas à la tribune pour dénoncer
-le collègue qui a bien voulu me dire cela ; s'il veut se nommer, il le fera lui-même.
+le collègue qui a bien voulu me dire cela; s'il veut se nommer, il le fera lui-même.
 M. Louis Ricarp (Seine-Inférieure). — Le ministre dont
 ù parle M. Cadenat n'est pas un ancien ministre du commerce,
 c'est un ancien ministre de la justice.
@@ -3588,7 +3588,7 @@ la thèse qui a été brillamment défendue à la tribune par le
 ministre du commerce d'aujourd'hui, M. Millerand, et je
 disais qu'il y avait un grand intérêt pour les ouvriers à faire
 voter le projet de la commission, parce que la loi de 1892
-était inapplicable et inappliquée ; qu'à mon passage au ministère, ayant M. Mesureur pour collègue, j'avais voulu faire
+était inapplicable et inappliquée; qu'à mon passage au ministère, ayant M. Mesureur pour collègue, j'avais voulu faire
 appliquer la loi, que des procès-verbaux avaient été dressés,
 et les tribunaux saisis.
 Je n'ai pas dit que des préfets s'étaient « arrangés pour
@@ -3600,9 +3600,9 @@ M. Louis Ricarp (Seine-Inférieure). — Je n'étais plus ministre lorsque je l'
 M. CaneNAT. — Messieurs, il se peut que j'aie mal entendu,
 mais il me semble bien, mon cher collègue, que vous avez
 prononcé le mot de « préfet ». Admettons que je me sois
-je n'ai pas l'habitude dé contredire en public ce que j'ai dit
+je n'ai pas l'habitude contredire en public ce que j'ai dit
 dans une conversation, bien qu'elle ne fût pas destinée
-être rapportée à la tribune /Très bien ! très bien!)
+être rapportée à la tribune /Très bien! très bien!)
 Mais enfin, puisque vous introduisez ce nouvel usage, il
 est très heureux que, dans l'habitude journalière de chacun
 de nous, et dans la mienne notamment — puisque vous
@@ -3618,7 +3618,7 @@ cher collègue. /On rit}
 M. Louis Ricarp (Seine-Inférieure). — Faudra-t-il donc
 que, désormais, lorsque nous aurons des conversations avec
 des collègues, nous ayons le soin d'indiquer qu'elles ne sont
-pas faites pour être rapportées à la tribune ? Pour ma part,
+pas faites pour être rapportées à la tribune? Pour ma part,
 je ne prendrai pas plus cette précaution dans l'avenir que
 je ne l'ai prise dans le passé. J'ai dit hier et je le répète que
 j'avais prescrit de poursuivre et qu'un fonctionnaire administratif, un préfet, est intervenu pour contredire les ordres
@@ -3628,8 +3628,8 @@ füt pas poursuivi, comme je l'avais voulu, et ne füt condamné que beaucoup pl
 le ministre du commerce, je le sais, est au courant des
 faits auxquels vous venez de faire allusion; je n'ai pas
 voulu ies dévoiler à la tribune. Je ne croyais pas qu'une
-indiscrétion les y apporterait ; mais il n'y a aucun inconvé-
-nient à ce qu'on le sache. {Très bien ! très bien!)
+indiscrétion les y apporterait; mais il n'y a aucun inconvé-
+nient à ce qu'on le sache. {Très bien! très bien!)
 
 M. CapenaT. — Messieurs, j'aurais commis, paraît-il, une
 indiscrétion parce que j'ai fait allusion à des propos qui ont
@@ -3643,19 +3643,19 @@ M. CADENAT... — Dans ce cas, ce que vous avez bien
 voulu certifier vous-même, j'aurais évité de l'apporter à la
 
 tribune. Mais, par le raisonnement que vous avez tenu, vos
-paroles ont pu convaincre une vingtaine de collègues qui
+paroles ont convaincre une vingtaine de collègues qui
 les ont entendues. Dans tous les cas, je ne vous avais pas
 nommé, vous pouviez ne pas vous nommer vous-même,
-M. CADENAT. — Ou plutôt, si vous voulez, vous n'étiez $
+M. CADENAT. — Ou plutôt, si vous voulez, vous n'étiez
 pas visé, puisque je parlais d'un ancien ministre du commerce et que vous étiez ministre de la justice. /On rit)
-M. Louis RicArpD (Seine-Inférieure). — Jamais je ne contredis en public ce que j'ai pu dire en particulier.
+M. Louis RicArpD (Seine-Inférieure). — Jamais je ne contredis en public ce que j'ai dire en particulier.
 M. LE PRÉSIDENT. — Chacun tirera de l'incident la moralité
 qu'il comporte. /Très bien! très bien!)
 M. CADENAT. — Je crois qu'il n'y a rien d'immoral dans
 ce que jai dit /Rires) à moins que l'on ne voie dans mes
 paroles autre chose que ce qu'elles signifient.
 Je dis donc qu'il n'a tenu qu'à la volonté des patrons que
-la loi ne füt pas appliquée ; elle aurait pu l'être, s'il y avait
+la loi ne füt pas appliquée; elle aurait l'être, s'il y avait
 eu, depuis qu'elle a été votée, des ministres tels que celui
 que nous avons aujourd'hui /Ah! Ah! sur divers bancs) Eh
 bien, pour faire en sorte que les enfants mineurs n'aient
@@ -3672,13 +3672,13 @@ jusqu'à présent. Toutes les fois qu'une loi faite dans l'intérêt des ouvrier
 toujours il y ait empêchement de la partdes industriels et
 des patrons”? /Dénégations au centre)
 
-Nous l'avons bien vu pour la loi sur les accidents ! Si nous
+Nous l'avons bien pour la loi sur les accidents! Si nous
 avions écouté MM. les industriels, elle ne serait pas encore
 
 Plusieurs membres au centre. — Les patrons ne se sont
 pas plaints.
 
-M. CADENAT. — Aujourd'hui on nous dit : les ouvriers
+M. CADENAT. — Aujourd'hui on nous dit: les ouvriers
 eux-mêmes ne veulent pas de l'application de la loi de 1892.
 Je sais de quelle façon MM. les industriels agissent pour
 arracher à leurs ouvriers des signatures qui sont contraires
@@ -3695,15 +3695,15 @@ part des patrons; mais lorsqu'il s'agit d'une loi qui frappe
 les ouvriers, lorsqu'il s'est agi, par exemple, comme on le
 rappelait tout à l'heure, des lois qualifiées à juste titre de
 « scélérates » dans la Chambre, vous n'avez pas attendu
-longtemps pour les appliquer ; et encore de quelle façon !..
+longtemps pour les appliquer; et encore de quelle façon!..
 {Applaudissements à l'extrême gauche. — Interruptions au
 
 Est-ce que quelqu'un en douterait? Faudrait-il vous
 donner quelques exemples? Je ne vous en citerai qu'un,
 pour votre mortification. /Exclamations au centre. — Très
-bien ! très bien! à l'extrême gauche)
+bien! très bien! à l'extrême gauche)
 
-Un père de famille a deux enfants : l'un d'eux est
+Un père de famille a deux enfants: l'un d'eux est
 condamné dans le procès des anarchistes espagnols à Montjuich, pendant que l'autre, le cadet, fait son service militaire. Ce père de famille, âgé de soixante ans, après quarante ans de résidence à Marseille, est expulsé par suite de
 
 ( Vapplication de vos lois scélérates. /Applaudissements
@@ -3717,7 +3717,7 @@ Vous vous tromperiez étrangement. Ce malheureux est
 encore sur la terre d'éxil à l'heure où je vous parle.
 
 Un membre au centre. — Quelle était la nationalité de cet
-homme ?
+homme?
 
 M. CapexaAT. — C'est un Italien.
 
@@ -3734,9 +3734,9 @@ enfants et de ces jeunes filles et d'améliorer ainsi le projet
 de loi que vous présente votre commission. {Très bien!
 très bien! à l'extrême gauche et sur divers bancs à gauche)
 
-M. Vaillant a déposé un amendement qui vise le $ 1°.
+M. Vaillant a déposé un amendement qui vise le 1°.
 
-« $ 1°. — Les enfants ne peuvent être employés par les
+« 1°. — Les enfants ne peuvent être employés par les
 patrons ni être admis dans les établissements énumérés
 dans l'article 1° avant l'âge de seize ans révolus. »
 
@@ -3744,9 +3744,9 @@ Cet amendement porte les signatures de MM. Édouard
 
 La parole est à M. Vaillant.
 
-M. Épouarp VAILLANT. — Mon premier amendement a .
+M. Épouarp VAILLANT. — Mon premier amendement a.
 pour objet l'admission des enfants dans les usines; il est
-ainsi formulé : « Les enfants ne peuvent être employés par
+ainsi formulé: « Les enfants ne peuvent être employés par
 les patrons ni être admis dans les établissements énumérés
 dans l'article 1“ avant l'âge de seize ans révolus. »
 
@@ -3761,7 +3761,7 @@ effets nuisibles de la loi; celle-ci pourrait alors être admise,
 puisque les enfants ne seraient plus frappés.
 
 L'amendement que je propose en ce moment, je le proposerais, en tout état de cause, quelle que füt la durée de la
-journée de travail, parce qu'ily a là une raison majeure. En
+journée de travail, parce qu'ily a une raison majeure. En
 effet, il ne s'agit pas seulement ici de l'intérêt de l'individu,
 mais de l'intérêt de la race, compromis par un travail, un
 surmenage prématuré par l'admission au travail industriel
@@ -3778,7 +3778,7 @@ vise l'article 2 de la loi de 1892. La Chambre vient de
 prendre une décision contraire.
 
 M. ÉnouarD VAILLANT. — L'amendement que j'ai déposé
-hier comprend dans son $ 1” la disposition que je viens
+hier comprend dans son 1” la disposition que je viens
 de lire.
 
 devais évidemment chercher, par un amendement, à réduire
@@ -3795,15 +3795,15 @@ qu'au point de vue de la race, il ne faut pas qu'il soit soumis
 être admis dans les ateliers qu'à un âge plus avancé.
 Je faisais à ce propos remarquer qu'en France plus que
 dans les pays voisins on fait entrer l'enfant de bonne heure
-dans les ateliers : en Allemagne, par exemple, la Gewerbe
+dans les ateliers: en Allemagne, par exemple, la Gewerbe
 Ordnung n'admet l'enfant dans les ateliers qu'à partir de
 treize ans; mais en même temps la loi scolaire interdit
 qu'on fasse entrer une quantité d'enfants dans les ateliers
 avant quatorze ans, de sorte qu'en Prusse et dans l'Allemagne du Nord l'enfant n'entre à l'atelier qu'à treize, ou
 plutôt à quatorze ans. Quand il y est entré à treize ans, la
-journée de travail est réduite à six heures ; à partir de qua-
+journée de travail est réduite à six heures; à partir de qua-
 torze ans, elle dure dix heures.
-Eh bien ! je demande que l'enfant n'entre dans les ateliers
+Eh bien! je demande que l'enfant n'entre dans les ateliers
 qu'à partir de seize ans, si vous changez la durée de la
 journée de travail.
 Les observations qui ont été faites montrent que si vous
@@ -3814,22 +3814,22 @@ sance, au développement et à la force de son organisme.
 En effet, à partir de treize ans le développement d'un enfant exige, non moins que pour l'enfant plus jeune, des
 ménagements considérables. Si vous examiniez la santé de
 vos propres enfants qui sont dans les collèges, je vous demande si vous accepteriez qu'ils entrassent à l'âge de treize
-ans dans les ateliers pour travailler ? et surtout pour travailler pendant onze heures !
+ans dans les ateliers pour travailler? et surtout pour travailler pendant onze heures!
 
 M. ÉpouarD VAILLANT. — Il est certain que vous hésiteriez, parce que vous vous rendriez aussitôt compte que ce
-serait là un réel danger pour leur santé, un empêchement
+serait un réel danger pour leur santé, un empêchement
 certain pour leur croissance. En effet, à cet âge, le squelette
 n'est pas encore formé, c'est alors surtout que les organes
 internes du thorax prennent avec lui leur accroissement. Et
 c'est à ce moment-là que vous allez faire subir à un enfant
 un travail exagéré qui enraye sa croissance et détruit dans
-son germe toute sa force organique ?
+son germe toute sa force organique?
 
 Voilà pourquoi je considère qu'il ne faut pas que vous
 puissiez admettre l'enfant dans les ateliers avant l'âge de
 seize ans, et surtout pour ce travail exagéré que vous voulez lui imposer.
 
-Il faut songer aussi que l'enfant n'est pas comme l'adulte : il
+Il faut songer aussi que l'enfant n'est pas comme l'adulte: il
 n'a pas de tissus de réserve qu'il puisse consommer; il faut,
 au contraire, qu'il acquière sans cesse pour assurer son dé-
 veloppement et sa croissance physiques. Le faire travailler
@@ -3873,7 +3873,6 @@ N'ont pas pris part au vote les citoyens Chassaing et Narbonne.
 
 Tous les autres citoyens ont voté pour.
 M. LE PRÉSIDENT. — Je donne lecture du deuxième para-
-graphe
 
 jeune ouvrière de seize à vingt ans ne pourra jamais
 excéder la moitié de la durée de la journée de travail fixée
@@ -3913,11 +3912,11 @@ en Angleterre, la loi qui règle les conditions du travail, la
 partie de la loi relative à l'industrie textile, a réduit la du-
 
 rée du travail des adolescents et des femmes à cinquante-six
-heures et demie par semaine ; et, pour mettre la durée du
+heures et demie par semaine; et, pour mettre la durée du
 travail de l'enfant en rapport avec la durée du travail des
 adolescents et des femmes, la même loi décide que la durée
 du travail de l'enfant sera la moitié de la durée du travail
-des adolescents et des femmes, soit vingt-huit heures par semaine. On a pu établir ainsi dans de meilleures conditions
+des adolescents et des femmes, soit vingt-huit heures par semaine. On a établir ainsi dans de meilleures conditions
 ce rapport exact que je demande et permettre le fonctionnement normal de cette industrie.
 
 Sans préjuger de la décision ultérieure que vous prendrez relativement à la durée de la journée de travail, je
@@ -3930,7 +3929,7 @@ l'une sur l'autre, déterminer une durée de travail régulière.
 Vous ne pouvez le nier, la solution qui consiste à proté-
 ger à la fois l'enfant et l'ouvrier adulte répond complète-
 ment au problème que la commission nous invite à ré-
-soudre : elle le résout à l'avantage de l'ouvrier et de l'enfant.
+soudre: elle le résout à l'avantage de l'ouvrier et de l'enfant.
 
 Je vous demande done d'adopter cet amendement et de
 décider que, quelle que soit la durée de la journée de tra
@@ -3942,9 +3941,9 @@ M. LE PRÉSIDENT. — Je mets aux voix le second paragraphe de l'amendement de M
 
 Il y a une demande de scrutin signée de MM. Walter,
 
-Nombre des votants. .".,.11 0101. AN ONENNNNSES
+Nombre des votants..".,.11 0101. AN ONENNNNSES
 
-Pour adoption: eee MO OUEIERE
+Pour adoption: eee OUEIERE
 
 La Chambre des députés n'a pas adopté.
 
@@ -3962,7 +3961,7 @@ M. Énouarp VAILLANT. — Je défendrai en même temps
 3.— Les jeunes ouvriers et ouvrières, jusqu'à l'âge de
 dix-huit ans, ne peuvent être employés à un travail effectif
 de plus de quaire heures par jour coupées par un ou plusieurs repos dont la durée totale ne pourra être inférieure
-à une heure. » $ 4. — Les ouvriers et ouvrières adultes ne peuvent être
+à une heure. » 4. — Les ouvriers et ouvrières adultes ne peuvent être
 employés à un travail de plus de huit heures par jour et
 de plus de trente-quatre heures par semaine comptées par
 l'entrée et la sortie de l'usine, du chantier, etc. » Ces huit heures de travail seront coupées par un ou
@@ -3983,13 +3982,13 @@ La parole est à M. Vaillant.
 M. ÉpouARD VAILLANT. — Messieurs, je reviens, comme
 en 1806, défendre devant vous la cause de la journée de…
 huit heures. C'est la revendication essentielle, en régime
-capitaliste, de la classe ouvrière ; c'est la revendication pour
+capitaliste, de la classe ouvrière; c'est la revendication pour
 laquelle se renouvellent chaque année, le 1° mai, les
 grandes assises du prolétariat où il inscrit cette revendication en tête de toutes les autres, la journée de huit heures,
 que je demande pour les adultes, en même temps que je
 demande la journée moitié moindre pour les enfants.
 La journée de huit heures est, on peut le dire, sur le point
-d'être acceptée dans le monde entier, non d'une manière ‘1
+d'être acceptée dans le monde entier, non d'une manière
 générale et légale, comme nous la voudrions voir établie
 par une loi qui protège le travail et les travailleurs, mais
 par la force même des choses.
@@ -4004,7 +4003,7 @@ Les effets en ont été excellents, et chaque rapport fait
 par les gouvernements des États, aussi bien que par le gou-
 vernement des États-Unis, montre qu'on n'a qu'à se louer
 tous les points de vue, soit à celui du travail national, soit
-à celui de l'ouvrier, de cet établissement de la journée de !
+à celui de l'ouvrier, de cet établissement de la journée de!
 huit heures. D'ailleurs, les États-Unis n'ont pas été les premiers à l'établir chez eux. La colonie de Victoria en Australie l'a établie et a démontré, par les faits, l'excellence de
 cette réforme. Elle l'a fait même dans des conditions peut-
 être difficiles. La colonie de Victoria avait été, en effet, un
@@ -4040,16 +4039,16 @@ pour tous les ateliers la journée de huit heures et à en réaliser l'applicati
 
 Je sais bien qu'à l'époque où il l'a fait, la journée de
 travail, dans les ateliers anglais, n'était pas aussi longue
-que dans les ateliers du gouvernement français ; cependant
+que dans les ateliers du gouvernement français; cependant
 il n'a pas hésité, je le répète, à établir cette journée de
 huit heures, et il a obtenu le plus grand succès.
 
 Mais ce n'est pas seulement dans les ateliers publics, dans
 les chantiers de la marine et de la guerre, que la journée
-de huit heures reçoit son application : l'usage s'en introduit
+de huit heures reçoit son application: l'usage s'en introduit
 également dans de nombreux ateliers de l'industrie privée.
 
-En 1896, au cours de la discussion qui a eu lieu à cette tribune, on vous a rappelé l'expérience célèbre qui avait été
+En 1896, au cours de la discussion qui a lieu à cette tribune, on vous a rappelé l'expérience célèbre qui avait été
 faite dans les ateliers de construction mécanique de
 MM. Mather et Platt. Le rapport de M. Mather au Parlement anglais a démontré que dans ses ateliers privés de
 construction mécanique il avait retiré un grand avantage
@@ -4057,7 +4056,7 @@ de la journée de huit heures, sans réduction de salaires,
 tant pour lui-même, patron, que pour ses ouvriers. À ce
 propos, je dirai que l'introduction de cette journée de huit
 heures dans l'industrie est non seulement d'intérêt privé
-mais aussi réellement d'intérêt national, que c'estune vraie ‘4
+mais aussi réellement d'intérêt national, que c'estune vraie
 réforme d'intérêt public sans dommage pour personne.
 
 Telle qu'elle est établie maintenant dans les cas particu-
@@ -4073,12 +4072,12 @@ fait exécuter le travail aux pièces. C'est contre ce procédé
 que nous protestons.
 Dans tous les cas, il est certain qu'on réaliserait déjà un
 progrès très considérable si on réduisait le travail en durée, à
-ei nous vous demandons — sans insister aujourd'hui sur la
+nous vous demandons — sans insister aujourd'hui sur la
 question d'intensité de travail — de réduire la journée de
 La démonstration qui a été faite dans les ateliers publics
 de l'État anglais et de l'État américain, en Australie, dans
-des ateliers privés en Angleterre, dans certains ateliers Fe
-allemands et jusqu'en Russie, prouve que la production, .
+des ateliers privés en Angleterre, dans certains ateliers
+allemands et jusqu'en Russie, prouve que la production,.
 n'a pas été réduite quand on a réduit seulement la durée de
 la journée de travail. Ce n'est pas seulement dans les ateliers de construction mécanique, de chimie, mais aussi dans
 les ateliers de tissage que la journée de huit heures donne
@@ -4086,7 +4085,7 @@ de bons effets.
 
 Vous vous rappelez l'expérience que j'ai citée ici d'une
 maison de tissage de Brünn, dont le patron a déclaré que
-la réduction de la journée de dix heures à huit heures, bien ee
+la réduction de la journée de dix heures à huit heures, bien
 loin de causer aucun préjudice, avait procuré de nombreux
 avantages à ses ouvriers, sans aucun dommage pour lui.
 
@@ -4107,18 +4106,18 @@ journée de huit heures par la loi un avantage considérable,
 car la réduction du travail, quand elle n'est pas établie
 pour une seule industrie, mais pour toutes, a pour effet
 
-s immédiat de relever les salaires.
+immédiat de relever les salaires.
 
 Ce relèvement résulterait de ce que la marchandise force
 de travail se raréfierait sur le marché, les bras inoccupés
 devenant occupés. C'est absolument évident.
 
 Déjà l'expérience de la loi de 1892, si peu appliquée cependant, faisait déclarer à la commission supérieure du travail,
-dans l'extrait du rapport que je vous ai lu hier, que la
+dans l'extrait du rapport que je vous ai hier, que la
 réduction à dix heures de la journée de travail, dans nombre
 d'industries et la réduction à dix heures de la journée
 de travail des enfants n'avaient amené aucune diminution
-des salaires ; et cependant, par suite de l'inobservation de
+des salaires; et cependant, par suite de l'inobservation de
 la loi, cet effet n'est que partiel. Il en aurait été bien autrement si la réduction avait été générale, ordonnée par la loi
 et appliquée par le fait de la volonté gouvernementale. Non
 seulement les salaires auraient été maintenus, mais ils
@@ -4130,7 +4129,7 @@ privée, non pas seulement que telle ou telle industrie éta-
 blisse la journée réduite de travail, mais que la loi l'établisse dans toutes les industries. Le relèvement individuel
 des salaires obtenu par la diminution des heures de travail
 dans telle ou telle industrie serait certes un progrès, mais ce
-ne serait qu'une expérience. Or, l'expérience est faite maintenant : la journée de huit heures est bonne, nécessaire,
+ne serait qu'une expérience. Or, l'expérience est faite maintenant: la journée de huit heures est bonne, nécessaire,
 tant au point de vue national qu'au point de vue des ouvriers,
 tant au point de vue de la production nationale qu'au point
 
@@ -4142,15 +4141,15 @@ tion à venir, d'une promesse de réduction dans la durée de
 la journée de l'adulte, que le Sénat repousserait, mais de
 décider que la journée sera réduite à huit heures pour
 l'adulte et à moitié pour l'enfant. Vous montrerez ainsi
-votre bonne volonté, et vous pouvez être certains que, si !
+votre bonne volonté, et vous pouvez être certains que, si!
 vous prenez celte décision par un vote, la classe ouvrière
-vous répondra ; elle vous appuiera de ses suffrages; elle .
+vous répondra; elle vous appuiera de ses suffrages; elle.
 fera tous ses efforts pour réaliser dans les faits les pres-
-criptions que vous aurez édictées ; vous pouvez être assurés
+criptions que vous aurez édictées; vous pouvez être assurés
 que, soutenus par elles, vous vaincrez les résistances du
 Sénat, les résistances patronales et les résistances gouver- à
 Cette réforme est la plus importante que nous puissions
-faire ; c'est une réforme sociale, politique et ouvrière: ce
+faire; c'est une réforme sociale, politique et ouvrière: ce
 sera l'affermissement définitif de la République, et an
 moment où l'on parle de mesures de défense républicaine,
 on ne peut en prendre de plus efficace. En associant ainsi
@@ -4189,7 +4188,7 @@ dix heures l'année suivante. »
 
 Sur plusieurs bancs. — À demain!
 
-Sur d'autres bancs. — Non ! non!
+Sur d'autres bancs. — Non! non!
 
 M. LE PRÉSIDENT. — Vous allez statuer, messieurs.
 
@@ -4208,7 +4207,7 @@ délai pour les catégories qui font en ce moment plus de
 dix heures, j'ai indiqué moi-même, dans une mesure tran-
 sitoire, que les catégories qui, en ce moment, font onze
 heures feront dix heures et demie, puis dix heures dans un )
-temps déterminé. La seule différence essentielle qui existe ,
+temps déterminé. La seule différence essentielle qui existe,
 entre mon amendement et le texte de la commission c'est
 que, alors qu'on peut considérer quatre catégories de tra-
 vailleurs, qui, d'après la commission, feraient toutes onze
@@ -4220,7 +4219,7 @@ trois autres catégories, c'est-à-dire les jeunes gens de seize
 à dix-huit ans, les femmes et les adultes travailler onze
 heures, cette durée de onze heures devant être réduite
 dix heures dans un délai à fixer.
-C'est là un texte transactionnel entre le désir de la com-
+C'est un texte transactionnel entre le désir de la com-
 mission et du Gouvernement qui entendent laisser un délai
 pour arriver à la journée de dix heures, et, d'autre part, le
 désir d'un très grand nombre de nos collègues qui veulent
@@ -4230,27 +4229,27 @@ j'ose espérer que la Chambre voudra bien prendre notre
 amendement en considération. /Applaudissements à l'extrème gauche et à gauche)
 M. LE RAPPORTEUR. — Le bénéfice de la loi que nous
 demandons à la Chambre de voter est tout entier dans
-des nine Mi LE UT
+des nine LE
 Vunification du travail à un nombre d'heures déterminé
 pour tous les ouvriers d'un même établissement industriel.
-La proposition de notre collègue M. Groussier va à l'encontre de cetintérêt puisqu'elle crée deux catégories d'ouvriers avec une durée légale différente de travail et qu'elle
+La proposition de notre collègue M. Groussier à l'encontre de cetintérêt puisqu'elle crée deux catégories d'ouvriers avec une durée légale différente de travail et qu'elle
 rend impossible l'unification que nous cherchons à réaliser.
 Dans ces conditions la commission ne peut que repousser
-l'amendement. /Très bien ! très bien!)
+l'amendement. /Très bien! très bien!)
 
 M. DeseantTe. — Messieurs, la raison pour laquelle nous
 faisons une opposition au projet de loi qui vous est soumis,
 c'est qu'il opère un recul pour le travail des enfants. Nous
 
-i demandons précisément qu'on conserve le bénéfice de la
+demandons précisément qu'on conserve le bénéfice de la
 loi de 1892 au point de vue du travail des enfants, et qu'on
 détermine le temps de onze heures seulement pour les
 
-Il est certain qu'ici on se préoccupe purement el simplement des patrons qui ont résisté à la loi de 1892, jusqu'à ce
+Il est certain qu'ici on se préoccupe purement simplement des patrons qui ont résisté à la loi de 1892, jusqu'à ce
 jour, mais onnese préoccupe pas des patrons qui ont appliqué
 cette loi dans leur industrie. Quelle sera la situation de ces
 patrons si demain vous reconnaissez qu'ils auront le droit
-de faire travailler pendant onze heures ?
+de faire travailler pendant onze heures?
 
 Quant à moi j'estime que, du moment qu'il y a un béné-
 fice acquis pour l'enfant, nous devons le conserver.
@@ -4259,9 +4258,9 @@ Pour les adultes, nous pouvons parfaitement limiter
 dix heures la durée de la journée de travail et déterminer
 l'époque de l'application.
 
-Mais, je vous en prie, ne nous préoccupons pas des critiques qui ont pu être soulevées par les patrons contre la
+Mais, je vous en prie, ne nous préoccupons pas des critiques qui ont être soulevées par les patrons contre la
 loi votée en 1892. De grâce, ne montrons pas que nous
-sommes plus réactionnaires aujourd'hui qu'en 1892 : conservons le bénéfice de cette loi.
+sommes plus réactionnaires aujourd'hui qu'en 1892: conservons le bénéfice de cette loi.
 
 On vous limite à une année l'application de la journée de
 dix heures. Vous pouvez bien accepter cette limitation pour
@@ -4278,11 +4277,11 @@ M. CuaRLes Ferry, président de la commission. — La com- À
 mission, d'accord avec le Gouvernement, repousse l'amendement.
 de MM. Groussier, Walter, Vaillant, Renou, Poulain, Paschal Grousset, Lamendin, Laloge, Fournière, Florent,
 La Chambre des députés n'a pas adopté.
-Nombre des votants," IE CENTRE ASS
+Nombre des votants," CENTRE ASS
 La Chambre des députés n'a pas adopté.
 Tous les citoyens ont voté pour.
 Ce cahier est composé par des ouvriers syndiqués
-Suresnes. — Imprimerie G.-A. RicHarD & C!*, 9, rue du Pont. — 1950
+Suresnes. — Imprimerie G.-A. RicHarD C!*, 9, rue du Pont. — 1950
 
 qui nous servirions utilement des abonnements éventuels
 ou des abonnements gratuits payés d'ailleurs
@@ -4301,7 +4300,7 @@ vendons pour la propagande
 Administration et rédaction le lundi et le jeudi, de
 heures à 7 heures. — Envoyer toute la correspondance à M. Charles Péguy. 19, rue des Fossés-SaintJacques.
 
-Nous publions vraiment notre état de situation : nous
+Nous publions vraiment notre état de situation: nous
 avons tiré ce troisième cahier à Soo exemplaires
 outre 198 exemplaires d'abonnements annuels gratuits et 17 exemplaires d'abonnements annuels gratuits
 
@@ -4314,19 +4313,19 @@ Nous continuerons sans doute et nous finirons de
 publier. dans le prochain cahier, les principaux do:uments commentés de la préparation du Congrès socia-
 
 liste national et la discussion, à la Chambre, de la
-proposition de loi sur le travail des enfants, des filles Fe
+proposition de loi sur le travail des enfants, des filles
 mineures et des femmes dans les établissements indus
 Nous publions le 5 de chaque mois l'état de notre
 situation Jinancière à la fin du mois précédent.
 Au 31 janvier les souscriptions mensuelles régu=
 _lières, les souscriptions extraordinaires, les abonnements fermes et les abonnements gratuits payés
-d'ailleurs nous avaient donné. . . . . 1,580 fr.
-la même date le premier établisse- er
-ment et l'établissement des deux pré- £ Emiers cahiers nous avaient coûté . . . 2,140 fr.
-Nos recettes montaient donc à 73 °|,
+d'ailleurs nous avaient donné..... 1,580 fr.
+la même date le premier établisse-
+ment et l'établissement des deux pré- Emiers cahiers nous avaient coûté... 2,140 fr.
+Nos recettes montaient donc à
 de nos dépenses.
-. Nous avions donc à cette date un “+
-égal environ à 27 °|, de nos -dépenses.
+. Nous avions donc à cette date un
+égal environ à 27 de nos -dépenses.
 Pour établir l'équilibre, il ne dépend plus de nous de
 faire baisser les dépenses, car nous les avons réduites
 au moins possible: mais il dépend de nos correspondants
@@ -4334,10 +4333,10 @@ de faire monter les recettes.
 Je dois à plusieurs correspondants des réponses prie
 vées. Je prie ces correspondants de vouloir bien me
 pardonner si je fais passer devant la rédaction,
-fabrication et l'administration de ces cahiers. * “4
+fabrication et l'administration de ces cahiers. “4
 
 Nous prions nos correspondants de vouloir bien nous « pardonner si le quatrième cahier paraît en retard Ou
-ne paraît pas : la première moitié de ce troisième cahier
+ne paraît pas: la première moitié de ce troisième cahier
 ‘était déjà roulée quand une grippe soudaine immobilisa
 la rédaction et l'administration. Nous continuerons sans
 doute ensuite régulièrement. Ce troisième cahier "est

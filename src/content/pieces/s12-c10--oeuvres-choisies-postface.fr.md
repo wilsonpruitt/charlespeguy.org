@@ -8,25 +8,25 @@ isAvertissement: false
 wordCount: 6024
 ocrSource: "Existing s12-c10-ocr.txt vision OCR (charlespeguy.com), pp.149-174, 2026-05-25"
 ---
-*Œuvres choisies de Charles Péguy* 1900-1910. — Sous ce titre vient de paraître chez Bernard Grasset, éditeur, en vente à la *librairie des cahiers,* un très fort volume de viii+416 pages très denses, in-16 jésus, marqué trois francs cinquante.
+*Œuvres choisies de Charles Péguy* 1900-1910. — Sous ce titre vient de paraître chez Bernard Grasset, éditeur, en vente à la *librairie des cahiers,* un très fort volume de viii+416 pages très denses, jésus, marqué trois francs cinquante.
 
-J'étais bien incapable d'établir ce livre moi-même. L'ami et le confident de vingt ans, *amicus et frater et consilium et auctor et salutis custos ac rerum temporalium,* Pesloüan seul était capable d'établir ce livre. Il y pensait depuis plusieurs années. Je ne me rendais que peu à peu. A quel point il a aujourd'hui réussi, c'est-à-dire quel volume il a obtenu, c'est-à-dire quelle *construction* il a obtenue, c'est-à-dire à quel point il a été *heureux,* (et c'est tout dans les entreprises), à quel point il a réussi, sans rien sacrifier de l'*ordre* organique, de l'organisation interne, de l'organisation première, à trouver, à créer, en même temps, à instituer ensemble un ordre de composition, je dirai presque une ordonnance, à quel point il a pu faire un livre *ordonné,* presque plus que *composé,* j'en ai été
+J'étais bien incapable d'établir ce livre moi-même. L'ami et le confident de vingt ans, *amicus et frater et consilium et auctor et salutis custos rerum temporalium,* Pesloüan seul était capable d'établir ce livre. Il y pensait depuis plusieurs années. Je ne me rendais que peu à peu. A quel point il a aujourd'hui réussi, c'est-à-dire quel volume il a obtenu, c'est-à-dire quelle *construction* il a obtenue, c'est-à-dire à quel point il a été *heureux,* (et c'est tout dans les entreprises), à quel point il a réussi, sans rien sacrifier de l'*ordre* organique, de l'organisation interne, de l'organisation première, à trouver, à créer, en même temps, à instituer ensemble un ordre de composition, je dirai presque une ordonnance, à quel point il a faire un livre *ordonné,* presque plus que *composé,* j'en ai été
 
 saisi moi-même et quiconque ouvrira le livre en sera saisi.
 
-Et quiconque l'aura lu en demeurera saisi.
+Et quiconque l'aura en demeurera saisi.
 
 Il a su, il a admirablement évité le grand danger de ces sortes d'entreprises, qui est d'émietter, de vouloir donner de tout, par amitié, par amitiés particulières, de faire des éminentements, et finalement d'arriver à grand peine à constituer à grands frais une (pauvre) flotte d'échantillons. Révérence gardée, nous avons fait comme ce ministre de la marine que nous avons enfin. Nous nous sommes proposé de constituer une flotte homogène et une flotte de haut bord. Quelques puissantes unités, (je parle de celles de M. Delcassé), bien carrées, bien rangées à leur bord de la cinq, par divisions, par escadres. Bien alignées. Le convoi lui-même, en bon ensemble, non entier, la flotte coupée selon cette ordonnance quintuple qui n'a pas été constituée en cinq et investie comme la haute, comme la grande ordonnance classique, tragique (et comique) française.
 
 Aussi le simple énoncé de ces cinq actes, de ces cinq parties permettra-t-il de voir d'un regard ce qu'est le livre. Première partie, *portraits d'hommes*. Deuxième partie, *philosophie et méthode.* Troisième partie, *la chronique et l'histoire.* Quatrième partie, *les tragiques.* Cinquième partie, *la mort, la misère, le mystère de la charité de Jeanne d'Arc.* Telle est cette ordonnance classique même et ordonnamcement. C'est dans le tragique, dans le comique, et comme dans le classique et comme dans le français et comme dans le tragique et comme dans le comique, on voit tout de suite où l'on est, où l'on va, de quoi on parle.
 
-On voit ce que ça veut dire et notamment, (si j'ai le droit de le dire), qu'il s'agit bien ici d'un livre et que ce n'est pas seulement un volume.
+On voit ce que veut dire et notamment, (si j'ai le droit de le dire), qu'il s'agit bien ici d'un livre et que ce n'est pas seulement un volume.
 
-Nous avons été impitoyables, et l'on m'a rendu généralement cette justice que j'ai été plus impitoyable que les autres. Nous avons coupé tout ce qui ne tenait pas. Nulles tendresses particulières, les plus légitimes, les plus authentiques, n'ont été respectées. N'ont été sauvées, je puis me vanter qu'il n'y a pas dans tout le volume un seul plan incliné ; ni une seule dégradation. Je me vante qu'il n'y a pas dans tout le volume un *morceau* qui ne commence et qui ne finisse en falaise.
+Nous avons été impitoyables, et l'on m'a rendu généralement cette justice que j'ai été plus impitoyable que les autres. Nous avons coupé tout ce qui ne tenait pas. Nulles tendresses particulières, les plus légitimes, les plus authentiques, n'ont été respectées. N'ont été sauvées, je puis me vanter qu'il n'y a pas dans tout le volume un seul plan incliné; ni une seule dégradation. Je me vante qu'il n'y a pas dans tout le volume un *morceau* qui ne commence et qui ne finisse en falaise.
 
-Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie* : en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essen-
+Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie*: en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essen-
 
-tiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, (à isoler), (à trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
+tiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, isoler), trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
 
 C'est dans le même esprit que je me suis permis d'écrire, pour ces membres anciens, des titres nouveaux. C'est que mes titres nouveaux sont eux-mêmes en réalité les titres anciens mêmes, les titres anciens propres, retrouvés, les titres que ces membres eussent portés si dans les anciens cahiers nous avions fait des sommaires où ces membres eussent été représentés. Ce sont les titres mêmes que ces chapitres, que ces membres porteront ou eux-mêmes ou dans des sommaires si je suis conduit quelque jour à écrire des sommaires pour des réimpressions plus complètes.
 
@@ -37,145 +37,145 @@ giques. Et ainsi nous avons peut-être découpé. (Peut-
 
 Cela étant, voici, sous le titre, par parties et par
 chapitres, par les cinq parties et par les quarante-trois
-chapitres, le livre que nous avons obtenu :
+chapitres, le livre que nous avons obtenu:
 
 Œuvres choisies de Charles Péguy.
 *Il a été tiré de ce volume.*
 1900-1910.
 portrait, par Pierre Laurens.
 
-  7. — Deux fragments du projet d'un grand portrait
+7. — Deux fragments du projet d'un grand portrait
 
-  8. — Un trait de M. Alfred Dreyfus ; quelques traits
-       de notre maître M. Gabriel Monod ;
+8. — Un trait de M. Alfred Dreyfus; quelques traits
+de notre maître M. Gabriel Monod;
 
-II. — philosophie et méthode ;
+II. — philosophie et méthode;
 
-        une deuxième loyauté de la guerre ;
+une deuxième loyauté de la guerre;
 
-  11. — Sur l'art. — De l'initiation à la connaissance
-        des arts plastiques, fragment de confessions,
-        confidences du docteur, et de cet aperçu bergso-
-        nien qu'il y a sans doute entre le génie et le talent
-        une différence de nature même ;
+11. — Sur l'art. — De l'initiation à la connaissance
+des arts plastiques, fragment de confessions,
+confidences du docteur, et de cet aperçu bergso-
+nien qu'il y a sans doute entre le génie et le talent
+une différence de nature même;
 
-  12. — Sur la science. — Que la science même est
-        révolutionnaire, en ce sens que le progrès de
-        l'acquisition scientifique n'est point une capitali-
-        sation morte ; et sur ce point le témoignage
-        personnel de Duclaux ;
+12. — Sur la science. — Que la science même est
+révolutionnaire, en ce sens que le progrès de
+l'acquisition scientifique n'est point une capitali-
+sation morte; et sur ce point le témoignage
+personnel de Duclaux;
 
-        un langage politique parlementaire propre d'où
-        viennent, pour ainsi dire, tous nos malentendus ;
+un langage politique parlementaire propre d'où
+viennent, pour ainsi dire, tous nos malentendus;
 
-  15. — Que nous aurons un jour, comme les Madé-
-        casses, une métaphysique d'État ;
+15. — Que nous aurons un jour, comme les Madé-
+casses, une métaphysique d'État;
 
-  16. — Et subsidiairement que cette métaphysique
-        d'État sera fondée sans aucun doute sur quelque
+16. — Et subsidiairement que cette métaphysique
+d'État sera fondée sans aucun doute sur quelque
 
-  17. — Que les métaphysiques inavouées, notamment
-        celles que nous font les savants modernes, sont
-        des métaphysiques tout de même ;
+17. — Que les métaphysiques inavouées, notamment
+celles que nous font les savants modernes, sont
+des métaphysiques tout de même;
 
-        philosophe remonte et d'où tous les autres
-        ensemble, notamment l'historien, descendent ;
+philosophe remonte et d'où tous les autres
+ensemble, notamment l'historien, descendent;
 
-  19. — Qu'il y a dans l'événement même de la race
-        une mystérieuse responsabilité remontante ;
+19. — Qu'il y a dans l'événement même de la race
+une mystérieuse responsabilité remontante;
 
-  20. — Qu'il y a non point un dépassement des
-        anciennes philosophies qui serait un progrès,
-        mais, au contraire, une oblitération irrévocable,
-        cahier dit de l'ensevelissement d'Hypatie ;
+20. — Qu'il y a non point un dépassement des
+anciennes philosophies qui serait un progrès,
+mais, au contraire, une oblitération irrévocable,
+cahier dit de l'ensevelissement d'Hypatie;
 
-  21. — Qu'il n'y a point une succession linéaire des
-        métaphysiques et des philosophies, mais qu'il y
-        a, au contraire, dans toute grande philosophie
-        une race irréductible ; et que la métaphysique
-        seule fait une connaissance directe ;
+21. — Qu'il n'y a point une succession linéaire des
+métaphysiques et des philosophies, mais qu'il y
+au contraire, dans toute grande philosophie
+une race irréductible; et que la métaphysique
+seule fait une connaissance directe;
 
-  22. — Que la méthode moderne en matière d'histoire
-        est une méthode métaphysique qui tient avant
-        tout à ne point saisir ni une œuvre ni aucune
-        autre réalité dans son texte ; qu'il faudrait la
-        nommer proprement la méthode de la grande
+22. — Que la méthode moderne en matière d'histoire
+est une méthode métaphysique qui tient avant
+tout à ne point saisir ni une œuvre ni aucune
+autre réalité dans son texte; qu'il faudrait la
+nommer proprement la méthode de la grande
 
-  23. — Qu'il y a une Sorbonne qui fait trop parler
-        d'elle, pour une honnête Sorbonne ; et qu'une fois
-        de plus, cette fois sous le nom de sociologie, la
-        Sorbonne est tombée dans la scholastique ;
+23. — Qu'il y a une Sorbonne qui fait trop parler
+d'elle, pour une honnête Sorbonne; et qu'une fois
+de plus, cette fois sous le nom de sociologie, la
+Sorbonne est tombée dans la scholastique;
 
-III. — la chronique et l'histoire ;
+III. — la chronique et l'histoire;
 
-  24. — De ce jeune homme qui vint me voir et qui,
-        sans le faire exprès, l'innocent, dans un éclair me
-        révéla ce que c'est que l'événement historique,
-        notamment que cet événement tombe une fois, et
-        ne retombe jamais plus ;
+24. — De ce jeune homme qui vint me voir et qui,
+sans le faire exprès, l'innocent, dans un éclair me
+révéla ce que c'est que l'événement historique,
+notamment que cet événement tombe une fois, et
+ne retombe jamais plus;
 
-  25. — Que particulièrement l'amitié, qui elle aussi
-        est un événement, tombe une fois, et ne retombe
-        jamais plus ;
+25. — Que particulièrement l'amitié, qui elle aussi
+est un événement, tombe une fois, et ne retombe
+jamais plus;
 
-  26. — O drapeaux du passé, si beaux dans les
+26. — O drapeaux du passé, si beaux dans les
 
-  27. — Que le monde moderne avilit ; qu'il avilit
-        même la mort ; notamment comment il enterra
+27. — Que le monde moderne avilit; qu'il avilit
+même la mort; notamment comment il enterra
 
-  28. — Qu'il y a une politique juive, mais aussi qu'il
-        y a une mystique d'Israël ;
+28. — Qu'il y a une politique juive, mais aussi qu'il
+y a une mystique d'Israël;
 
-  30. — O soldats de l'an deux ! ô guerres ! épopées !
+30. — O soldats de l'an deux! ô guerres! épopées!
 
-  31. — Qu'il y a dans le monde moderne une hypo-
-        crisie du pacifisme ; Hugo et Napoléon ;
+31. — Qu'il y a dans le monde moderne une hypo-
+crisie du pacifisme; Hugo et Napoléon;
 
-  32. — Comment notre bon peuple était sorti pour
-        voir passer le roi d'Espagne. Des mœurs singu-
-        lières de ce peuple de Paris ;
+32. — Comment notre bon peuple était sorti pour
+voir passer le roi d'Espagne. Des mœurs singu-
+lières de ce peuple de Paris;
 
-  33. — Mais que Hugo aussi était dans tout ce
+33. — Mais que Hugo aussi était dans tout ce
 
-  34. — D'un saisissement que nous eûmes dans le
-        même temps ;
+34. — D'un saisissement que nous eûmes dans le
+même temps;
 
-  35. — Épître votive pour engager quelque jour dans
-        le parti des hommes de quarante ans notre ami
-        et notre frère Ernest Psichari, sous-lieutenant
-        d'artillerie coloniale hors cadre, à Moudjéria,
-        Mauritanie, par Saint-Louis, Afrique Occidentale
+35. — Épître votive pour engager quelque jour dans
+le parti des hommes de quarante ans notre ami
+et notre frère Ernest Psichari, sous-lieutenant
+d'artillerie coloniale hors cadre, à Moudjéria,
+Mauritanie, par Saint-Louis, Afrique Occidentale
 
-IV. — les tragiques ;
+IV. — les tragiques;
 
-  36. — Sur une traduction de Sophocle, fragment de
-        confessions ; et que toute oblitération de la culture
-        grecque est un crime irrévocable ;
+36. — Sur une traduction de Sophocle, fragment de
+confessions; et que toute oblitération de la culture
+grecque est un crime irrévocable;
 
-  37. — Qu'il y a dans le tragique une représentation
-        des caractères ;
+37. — Qu'il y a dans le tragique une représentation
+des caractères;
 
-  39. — Des vers et du rite de l'intercession dans
+39. — Des vers et du rite de l'intercession dans
 
-  40. — De la triple promotion des tragédies
+40. — De la triple promotion des tragédies
 
-     charité de Jeanne d'Arc ;
+charité de Jeanne d'Arc;
 
-  41. — De la mort, premiers propos ;
+41. — De la mort, premiers propos;
 
 *Amicus et auctor,* dans le plein sens latin de ce mot.
 *Hujus libri auctor et permultorum aliorum.* —
-« *Augere,* dit Bréal et Bailly, augmenter ; créer.
-*Auctor,* qui augmente, qui crée, *d'où* : 1° auteur,
-cause ; *particulièrement* (en parlant d'un projet),
+« *Augere,* dit Bréal et Bailly, augmenter; créer.
+*Auctor,* qui augmente, qui crée, *d'où*: 1° auteur,
+cause; *particulièrement* (en parlant d'un projet),
 2° conseiller (en parlant d'un projet). » Et dans l'expli-
 cation « le verbe *augeo* « accroître, enrichir » est
 employé dans les sens les plus divers. Ainsi dans la
-langue religieuse il signifie « honorer par des dons » :
-*augere aram donis.* On dit de même : *augere aliquem
+langue religieuse il signifie « honorer par des dons »:
+*augere aram donis.* On dit de même: *augere aliquem
 divitiis, auctus filio,* (1) *augere aliquem nominibus impe-
 ratoris. Augeo* signifie aussi « créer ». Lucrèce,
-*Nam quodcunque alias ex se res auget alitque, Deminui
+*Nam quodcunque alias se res auget alitque, Deminui
 debet.* — Ces différents sens se retrouvent dans *auctor.* Il
 signifie « fondateur, père ». Virgile, vii, 49. *Isque paren-
 tem Te, Saturne, refert, tu sanguinis ultimus auctor.* —
@@ -185,7 +185,7 @@ parlant d'un acte, « conseiller, instigateur, garant ».
 *Auctor legis, pacis, belli.* La même diversité de sens
 se retrouve dans *auctoritas,* qui marque la qualité
 
-  (1) Quel mot admirable.
+(1) Quel mot admirable.
 
 dans ce livre, (je ne parle plus seulement du Bréal et
 Bailly, je parle du Pesloüan et Péguy), il est si vrai que
@@ -204,12 +204,12 @@ partie, et ainsi tout le livre, s'achève en cette prière du
 
 Combien n'avons-nous pas été particulièrement
 heureux, et pour ainsi dire préliminairement, d'avoir
-pu mettre en tête de ce livre une reproduction du
+mettre en tête de ce livre une reproduction du
 profond et grave portrait que Pierre Laurens peignit de
 moi quand j'avais trente-cinq ans. C'est avant le
-plus creusé, où le peintre a su mettre tout ce que nous
+plus creusé, où le peintre a mettre tout ce que nous
 autres nous ne parvenons pas à écrire. Quelle profonde
-joie, et sérieuse, que d'avoir pu mettre, en tête d'un
+joie, et sérieuse, que d'avoir mettre, en tête d'un
 volume entièrement composé, entièrement constitué
 par un ami, une reproduction d'un portrait peint par
 un ami, pour aller à tant d'amis connus et inconnus, à
@@ -222,21 +222,21 @@ filiale de la grande stature de notre Jean-Paul-
 Laurens. Depuis que le père, depuis que le patron,
 depuis que le peintre, depuis que Jean-Paul-Laurens,
 depuis trois et quatre ans que ce grand peintre m'a
-introduit dans son foyer et dans son cœur ; depuis que
+introduit dans son foyer et dans son cœur; depuis que
 s'est ouverte pour moi maison parfaite aux murs de
 briques, aux larges baies claires, toute nourrie de
-silence plein et de déférence ancienne ; depuis que par
+silence plein et de déférence ancienne; depuis que par
 et avec la merveilleuse complicité des deux fils peintres,
 de toi, Paul et Albert, par droit d'aînesse, et de toi,
-Pierre, notre peintre ordinaire ; depuis que sous la
+Pierre, notre peintre ordinaire; depuis que sous la
 merveilleuse complicité, sous la complicité fraternelle
 des deux fils peintres j'ai été introduit comme un
 troisième fils, comme un enfant prodigue de lettres,
-perdu, retrouvé dans cette famille de peintres ; depuis
+perdu, retrouvé dans cette famille de peintres; depuis
 que je participe à cette dynastie, au sens plein, au
 grand sens, au sens antique de ce mot, c'est-à-dire au
 sens corporatif et ouvrier, au sens de la filiation
-d'œuvre ; au sens où nous disons encore dans nos
+d'œuvre; au sens où nous disons encore dans nos
 humanités *la dynastie des Estienne,* ces trois et
 ces quatre ans on ne saurait croire et moi-même je m'en
 saisi, je m'émerveille de regarder combien je dois,
@@ -248,7 +248,7 @@ porains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui à qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
-gnements d'expérience, de carrière ; d'amitié ; un cœur
+gnements d'expérience, de carrière; d'amitié; un cœur
 si jeune, le plus jeune cœur que je connaisse actuel-
 lement. Je dirai quelque jour, j'essaierai de donner
 quelque idée de tout cela, je n'y réussirai que très
@@ -268,7 +268,7 @@ grands éclairements de ma vie. Je dirai, j'essaierai de
 rendre ce que je vous dois, je vous dois tant, à vous
 trois, tant d'enseignements jusqu'à vous insoupçonnés,
 antérieurement à vous tant de leçons non données,
-reçues tout de même, (d'autant mieux reçues) ; enfin une
+reçues tout de même, (d'autant mieux reçues); enfin une
 connaissance par l'intérieur, nullement littéraire, une
 pénétration de la peinture, et du dessin, et de tous les
 arts du dessin, et de tous les arts plastiques. Et ainsi,
@@ -344,11 +344,11 @@ arrière, sur moi-même, et sur quelques autres, je me
 
 surprenais à me dire, à me redire, de même beau
 métier je l'exerce, que de même office je l'exerce depuis
-déjà douze et treize ans ; que je l'accomplis ; que ce
-beau métier est aussi mon métier ; que cet office est
-mon office ; que ce métier, que cet office je l'ai accompli
-moi-même ; depuis douze ans, depuis treize ans ; que
-pour deux cents volumes ou cahiers ; que tout ce qu'il faisait
+déjà douze et treize ans; que je l'accomplis; que ce
+beau métier est aussi mon métier; que cet office est
+mon office; que ce métier, que cet office je l'ai accompli
+moi-même; depuis douze ans, depuis treize ans; que
+pour deux cents volumes ou cahiers; que tout ce qu'il faisait
 pour ce volume je l'avais fait pour deux cents volumes
 ou cahiers, c'était mon métier, je le continuais de
 le faire, comme un métier quotidien, que tout ce qu'il
@@ -411,13 +411,13 @@ avec laquelle, sans rien sacrifier du travail, il a réussi
 à établir en quelques semaines un volume typographi-
 
 Comme les découvertes vont par paquets et comme
-il paraît que les joies, quand il y en a, et que les bonnes
+il paraît que les joies, quand il y en et que les bonnes
 nouvelles vont au moins par plusieurs, de même que
-par ce volume j'avais vu pour la première fois, j'avais
+par ce volume j'avais pour la première fois, j'avais
 appris, j'avais découvert ce que c'était que d'être édité
 par un autre, au lieu d'éditer les autres ou de m'éditer
 soi-même, de même et ensemble j'ai découvert, j'ai
-connu, par ce volume j'ai vu pour la première fois ce
+connu, par ce volume j'ai pour la première fois ce
 que c'est que de gagner de l'argent. J'avance que c'est
 une grande joie. Pour le premier tirage à 3.000
 M. Grasset m'a versé 1.500 francs de droits d'auteur.
@@ -462,10 +462,10 @@ que les bonnes nouvelles vont par trois je voulais me
 payer une grande joie, (j'en avais envie depuis long-
 temps), une joie troisième ensemble, si je sais compter,
 une grande et merveilleuse nouveauté, une grande troi-
-sième découverte : (l'homme est insatiable) : celle
+sième découverte: (l'homme est insatiable): celle
 d'envoyer enfin ce volume à toutes les personnes à qui
 
-j'avais si bonne envie de l'envoyer ; en envoi d'auteur ;
+j'avais si bonne envie de l'envoyer; en envoi d'auteur;
 à tant d'amis avérés à qui je dois tant. Je commençais
 à composer des listes dans ma tête, et j'avoue que ces
 listes croissaient à vue d'œil quand les décemvirs, qui
@@ -547,7 +547,7 @@ greur, avec l'âcreté haineuse du Parti Intellectuel).
 Il faut penser que sans ces décemvirs ni les cahiers
 ni assurément moi nous ne marcherions pas trois
 semaines. Ils sont l'amitié avertie, éprouvée, toujours
-vigilante, ancienne ; inébranlable. Ils sont la sagesse
+vigilante, ancienne; inébranlable. Ils sont la sagesse
 même. Ils sont le conseil, et l'action après le conseil.
 Il fallait se rendre. A eux et à ce ferme propos qu'ils
 avaient formé de n'en point recevoir un seul exem-
@@ -573,7 +573,7 @@ qu'elles font de la vente ou plutôt de l'achat de ce
 volume à la librairie des cahiers une sorte de souscrip-
 tion permanente, littéralement une souscription perma-
 nente conjointe de M. Grasset, de l'acheteur et de moi
-aux *Cahiers de la Quinzaine.* Or de ces souscriptions
+aux *Cahiers de la Quinzaine.* de ces souscriptions
 permanentes aux *Cahiers* nous avons besoin aujour-
 d'hui autant et peut-être plus que jamais.
 
@@ -602,7 +602,7 @@ confident, le plus grave. Et comment ne pas donner le
 nom d'ami à ce jeune éditeur qui s'est jeté dans cette
 bataille avec toute la fougue d'une ardente et d'une
 conquérante audace. Les premières fois que je parlais
-de M. Grasset j'avais coutume de dire : *Il a une grande*
+de M. Grasset j'avais coutume de dire: *Il a une grande*
 
 *vertu.* — Ici un temps, parce que je suis un homme de
 théâtre, M. le Grix lui-même ne l'ignore point. — Les
@@ -618,12 +618,12 @@ pas, (il ne faut jamais le dire aux hommes jeunes), je
 me rappelais, non sans quelque mélancolie, une ancienne
 audace, une ancienne bravoure qui était il y a douze
 quinze ans celle d'un nommé Péguy, je riais en moi-
-même et je lui disais : *Taisez-vous, jeune homme.*
+même et je lui disais: *Taisez-vous, jeune homme.*
 Comme dans *les Burgraves,* s'il est vrai toutefois que
 ce soit dans *les Burgraves,* car il y a en ce moment
 sur Paris une épidémie de citations qui tombent de
-travers. Je lui disais : *Laissez parler un vieux comme
-moi.* Il clignait de l'œil et me répondait : *Un vieux
+travers. Je lui disais: *Laissez parler un vieux comme
+moi.* Il clignait de l'œil et me répondait: *Un vieux
 comme vous, il ne faut pas s'y fier.* Il avait peut-être
 
 *Amicitiae et fidei sacrum* tout dans ce livre est un

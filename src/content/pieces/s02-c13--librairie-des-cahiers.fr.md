@@ -7,7 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 4405
 ---
-André Bourgeois a fait les envois suivants :
+André Bourgeois a fait les envois suivants:
 Dans ces nombres comptent beaucoup d'abonnés
 éventuels. Nous continuons en effet à recenser dans le
 Bulletin officiel de la Ligue des Droits de l'Homme les
@@ -17,16 +17,16 @@ dans la Paix par le Droit les citoyens qui agissent
 contre la guerre et nous leur envoyons éventuellement
 nos cahiers. Nous prions tous ces abonnés éventuels de
 vouloir bien nous manifester sans retard leurs inten-
-Nous avons dû supprimer nos abonnements gratuits
+Nous avons supprimer nos abonnements gratuits
 (44 (1) Jean Coste ou l'instituteur de village.
 treisième cahier de la deuxième série
 Variant de cent cinquante à deux cent cinquante à peu
 près depuis la fondation de nos cahiers, ils nous coû-
 taient au moins de deux à trois cents francs par mois.
 
-k Pour nous aider à supporter cette charge, Les Journaux
+Pour nous aider à supporter cette charge, Les Journaux
 pour tous nous versaient une souscription mensuelle de
-cinquante francs. Ils ont dû eux-mêmes supprimer cette
+cinquante francs. Ils ont eux-mêmes supprimer cette
 subvention. Nous avons alors, mais seulement alors,
 supprimé nos abonnements gratuits.
 
@@ -39,7 +39,7 @@ gratuits qu'un expédient provisoire où nous sommes
 contraints par l'excès de la pauvreté. Nous avons
 vraiment épuisé nos finances et le moment est venu de
 
-ÿ jeter un peu de lest. En maintenant aussi longtemps
+jeter un peu de lest. En maintenant aussi longtemps
 que nous l'avons fait des abonnements gratuits qui
 nous étaient aussi onéreux, nous avons vraiment
 donné tout ce que l'on pouvait nous demander.
@@ -47,7 +47,7 @@ donné tout ce que l'on pouvait nous demander.
 Le plus gros avantage que nous puissions désormais
 faire à nos abonnés pauvres est l'abonnement de propagande, à huit francs. Nous acceptons que ces huit
 francs soient payés par mensualités de un ou deux
-francs. Déjà plusieurs de nos anciens abonnés gratuits !
+francs. Déjà plusieurs de nos anciens abonnés gratuits!
 ont souscrit des abonnements de propagande payables
 par mensualités. Plusieurs de nos anciens abonnés
 gratuits ont aussi organisé des abonnements collectifs,
@@ -56,7 +56,7 @@ ils sont des rendez-vous de bafouillage, d'envie et
 d'autorité, autant ils sont précieux quand ils sont des
 {oyers de travail, de lecture, de liberté.
 
-Nous avons pu reconstituer avec nos retours quelques
+Nous avons reconstituer avec nos retours quelques
 premières séries complètes. Nous les vendons au prix
 d'un abonnement ordinaire. Nous ne les vendons qu'à
 nos abonnés.
@@ -71,7 +71,7 @@ mineures et des femmes dans les établissements industriels, compte rendu sténo
 plusieurs articles, allocutions et discours d'Anatole
 consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand
 dans les cahiers 5, 6, 8, ensemble 3 francs
-et dans le cahier II épuisé
+et dans le cahier épuisé
 le socialisme et les intellectuels, — conférence faite
 par M. Paul Lafargue à l'Hôtel des Sociétés Savantes le
 non reou non mis dans le commerce
@@ -79,10 +79,10 @@ socialisme et collectivisme, — conférence faite par
 M. Émile Vandervelde à l'Hôtel des Sociétés Savantes
 le mardi 6 mars 1900, compte rendu sténographique
 
-treizième cahier _ de la deuxième série
+treizième cahier de la deuxième série
 Les cahiers épuisés de la première série ne sont plus
 vendus que dans les quelques collections complètes que
-nous avons pu reconstituer.
+nous avons reconstituer.
 Nos collections de la deuxième série sont presque
 entièrement épuisées. Nous prions instamment ceux de
 nos abonnés qui auraient des cahiers en double de vouloir
@@ -112,7 +112,7 @@ Dans leur deuxième série les Cahiers de la Quinzaine
 ont publié
 le programme de l'École des Hautes Études Sociales
 pour l'année scolaire 1900-1907 épuisé
-le discours lu par M. Boutroux et l'allocution prononcée par M. Duclaux le lundi 12 novembre 1900,
+le discours par M. Boutroux et l'allocution prononcée par M. Duclaux le lundi 12 novembre 1900,
 pour l'inauguration de l'École des Hautes Études
 René Salomé, — vers l'action 2 francs
 le théâtre social, — conférence faite par Jaurès le dimanche 22 juillet 1900 au théâtre de la République,
@@ -123,18 +123,18 @@ Lionel Landry, — courriers de Chine épuisé
 Romain Rolland, — Danton 3 francs
 les intellectuels devant le socialisme, — réponses de
 MM. Paul Mantoux et Charles Guieysse au cahier de
-cahier d'annonces : les journaux pour tous
+cahier d'annonces: les journaux pour tous
 la société des visiteurs
 le Mouvement Socialiste
 la Revue d'Art Dramatique
-s société nouvelle de librairie et d'édition
-programme de l'école socialiste pour l'année scolaire 1900-1901 I franc
-‘ quelques éléments d'un dossier du récent mouvement
-pour la liberté en Russie I franc
+société nouvelle de librairie et d'édition
+programme de l'école socialiste pour l'année scolaire 1900-1901 franc
+quelques éléments d'un dossier du récent mouvement
+pour la liberté en Russie franc
 
-treizième cahier j de la deuxième série
+treizième cahier de la deuxième série
 le programme du collège libre des sciences sociales
-pour l'année scolaire 1900-1901 > I franc
+pour l'année scolaire 1900-1901 franc
 Dans la même série les Cahiers publieront
 un dossier complet du mouvement russe depuis
 l'excommunication de Tolstoi
@@ -144,15 +144,15 @@ Les Cahiers de la Quinzaine ont fait sténographier
 par les sténographes habituels du Comité général et du
 Parti socialiste français exactement toutes les paroles
 Cette sténographie a une incontestable valeur historique
-a) parce que la plupart des orateurs ont parlé en
-b) parce que les dévoués traducteurs officiels choisis
+parce que la plupart des orateurs ont parlé en
+parce que les dévoués traducteurs officiels choisis
 parmi les délégués ont traduit valablement en français
 les discours prononcés dans les autres langages.
 Nous n'avons pas demandé pour ce compte rendu
 sténographique l'investiture officielle
-a) parce qu'elle était usurpée pour un compte rendu
+parce qu'elle était usurpée pour un compte rendu
 analytique établi sans la connaissance des textes
-b) parce que nous ne voulons soumettre à l'autorité
+parce que nous ne voulons soumettre à l'autorité
 de personne, individu ou comité, un texte historique
 La sténographie établie par les soins des cahiersaété
 relue par celui des socialistes français qui connaît le
@@ -178,17 +178,17 @@ Les cahiers épuisés de la deuxième série ne sont
 envoyés qu'aux nouveaux abonnés fermes à la
 Depuis le premier juin nous n'avons maintenu sur
 nos listes que
-a) les abonnés qui ont payé une somme égale ou
+les abonnés qui ont payé une somme égale ou
 supérieure à huit francs pour leur abonnement à la
-b) les abonnés qui paient régulièrement leur abonnement par mensualités ou fractions.
+les abonnés qui paient régulièrement leur abonnement par mensualités ou fractions.
 treizième cahier de la deuxième série
 
 Nous tenons gratuitement à la disposition de nos
-Marcel et Pierre Baudouin : Jeanne d'Arc, drame en
+Marcel et Pierre Baudouin: Jeanne d'Arc, drame en
 
-Jérôme et Jean Tharaud : la lumière ; ! .
+Jérôme et Jean Tharaud: la lumière;!.
 
-Pierre Baudouin : Marcel, premier dialogue de la
+Pierre Baudouin: Marcel, premier dialogue de la
 Envoyer un franc pour les frais d'envoi.
 
 La grosse importance industrielle et commerciale des
@@ -199,20 +199,20 @@ fin juillet ou commencement d'août. Dès à présent nous
 pouvons croire que ce bilan ne sera pas mauvais.
 
 - L'appel très sérieux que nous avons adressé naguère
-à nos amis et à nos abonnés a eu ce résultat singulier
+à nos amis et à nos abonnés a ce résultat singulier
 que nos amis et que nos abonnés ont redoublé de zèle
-efficace pour nous. Aucun ne s'est dit : Puisque ça devient difficile, je m'en vais. Maïs la plupart se sont dit
-Puisque ça devient difficile, travaillons. Par ce résultat
+efficace pour nous. Aucun ne s'est dit: Puisque devient difficile, je m'en vais. Maïs la plupart se sont dit
+Puisque devient difficile, travaillons. Par ce résultat
 nous avons connu que les froussards vulgaires n'avaient
 pas attendu ce moment pour nous abandonner.
 
 Nous renouvelons aujourd'hui cet appel et nous ne
-voulons pas qu'il y ait malentendu sur le sens que .
+voulons pas qu'il y ait malentendu sur le sens que.
 nous lui donnons.
 
 Tout nous fait croire que dès la troisième série les
 Cahiers se suffiront financièrement à eux-mêmes. Ils
-vivront par les moyens du bord. J'entends par là que le
+vivront par les moyens du bord. J'entends par que le
 produit des souscriptions extraordinaires et des souscriptions mensuelles régulières, des abonnements de
 souscription, des abonnements ordinaires et des abonESS LIBRAIRIE DES CAHIERS
 - nements de propagande, renforcé des bénéfices que
@@ -222,11 +222,11 @@ vrira les dépenses. Le progrès de l'abonnement a été
 merveilleux. Nous avions 263 abonnés fermes à la fin de
 la première série. Nous en avons aujourd'hui environ
 1.200. Nous avons ainsi gagné au moins 1.000 abonnés,
-puisque nous avons eu au commencement de la
+puisque nous avons au commencement de la
 
 Le taux des abonnements a fort honnêtement pro- à
 gressé. Nous avons cinq ou six abonnements de souscription, à peu près 600 abonnements ordinaires, à peu
-près 600 abonnements de propagande. ‘
+près 600 abonnements de propagande.
 
 Les souscriptions mensuelles régulières s'accroissent
 régulièrement. Les anciennes souscriptions mensuelies
@@ -260,7 +260,7 @@ véritables amis que la librairie des cahiers sauverasans doute les cahiers, fou
 André Bourgeois me communique les premiers résultats de la librairie. Ces résultats passent mon espé-
 rance. Et pourtant on m'accuse d'avoir l'espérance
 La première opération date du 15 février 1907.
-En 3 mois et demi. . 464 volumes 1.334 francs
+En 3 mois et demi.. 464 volumes 1.334 francs
 Les nombres de la première colonne sont ceux des
 volumes que nous avons achetés chez les éditeurs pour
 - nos abonnés. Les nombres de la deuxième colonne
@@ -291,7 +291,7 @@ généraux nous pouvons faire la commission detousles
 livres pour tous nos abonnés. Le personnel en fonctions
 est librement et entièrement dévoué aux cahiers.
 L'administrateur ponctuel qui a si parfaitement orga-
-î nisé l'administration de nos éditions a non moins
+nisé l'administration de nos éditions a non moins
 ponctuellement organisé l'administration de la librairie.
 Nous recevons sans frais les abonnements à toutes
 les repues. Et cette opération nous est fort avantageuse.
@@ -309,11 +309,11 @@ tement aux prix de l''Odéon, pour toute commande
 Notre service de librairie est rigoureusement réservé
 à nos abonnés.
 N'ayant aucune avance, nous ne pouvons opérer qu'au
-comptant ou sur provision déposée. '
+comptant ou sur provision déposée.
 Nos abonnés de Paris, de la province ou de l'étranger
 qui veulent recevoir leurs livres franco à domicile n'ont
 qu'à envoyer à M. André Bourgeois l'énoncé de la commande. Les livres français partiront par le courrier du
-même jour. Les livres étrangers partiront par un courrier de la même semaine. ,
+même jour. Les livres étrangers partiront par un courrier de la même semaine.,
 Ceux de nos abonnés qui ont l'intention de nous faire
 de fortes commandes peuvent déposer à M. André
 Bourgeois des sommes qui sont ainsi en compte courant.
@@ -378,17 +378,17 @@ Je prie instamment ceux de nos abonnés qui demeu-
 rent en province et qui passeront à Paris pendant les
 vacances de vouloir bien venir me voir. Je serai aux
 cahiers le jeudi de deux à cinq. Un entretien sérieux
-vaut mieux qu'un an de correspondance. :
+vaut mieux qu'un an de correspondance.:
 Nous prions ceux de nos abonnés qui ne changent de
 résidence que pour la durée des vacances de vouloir
 bien ne nous demander aucun changement d'adresse.
 Nous les prions qu'ils donnent chez eux les instructions
 pour que les cahiers suivent.
 
-Vient de paraître chez Fasquelle, éditeur, en un ‘
+Vient de paraître chez Fasquelle, éditeur, en un
 volume de la Bibliothèque Charpentier.
 Pris dans nos bureaux ou franco
-Franco à domicile en province ou à l'étranger : AS
+Franco à domicile en province ou à l'étranger: AS
 Seul ou dans une commande inférieure
 Dans une commande égale ou supérieure
 Les anciens dreyfusards voudront avoir ce livre.
@@ -399,31 +399,31 @@ Les événements qui se sont déroulés autour du procès
 de 1894 et dans les années suivantes, en France, me
 sont restés inconnus jusqu'au procès de Rennes.
 
-treizième cahier r 5 de la deuxième sé
+treizième cahier 5 de la deuxième
 Pour ces raisons nous pouvons croire que nos cahiers
 vivront dès la troisième série et que l'amortissement
 de la dette initiale pourra commencer peu après. Il
 n'en reste pas moins cette dette. J'en donnerai une
 idée en disant que le déficit n'existerait pas
-a) si nous n'avions jamais servi d'abonnements
-b) si nous avions fondé la librairie des cahiers en
+si nous n'avions jamais servi d'abonnements
+si nous avions fondé la librairie des cahiers en
 même temps que les cahiers;
-c) si nous n'avions pas eu à faire le lancement de la
-Je dirai ailleurs ou j'ai dit ?
-a) pourquoi nous avons servi des abonnements
-b) pourquoi nous n'avons pas fondé la librairie des
+si nous n'avions pas à faire le lancement de la
+Je dirai ailleurs ou j'ai dit?
+pourquoi nous avons servi des abonnements
+pourquoi nous n'avons pas fondé la librairie des
 cahiers en même temps que les cahiers;
-c) pourquoi nous avons fait le lancement de la
+pourquoi nous avons fait le lancement de la
 Provisoirement il suffit que l'on sache
-a) que nous ne servons plus d'abonnements gratuits
-b) que la librairie des cahiers marche bien
-c) que nous n'aurons plus jamais à faire un grand
-Il reste qu'il ya pour le présentun déficit, pourlequelje
+que nous ne servons plus d'abonnements gratuits
+que la librairie des cahiers marche bien
+que nous n'aurons plus jamais à faire un grand
+Il reste qu'il pour le présentun déficit, pourlequelje
 me suis engagé corps et biens. Je demande s'il est juste
 qu'on m'en laisse porter toute la responsabilité jusqu'à
 l'amortissement. Tel est le sens exact de l'appel que
 j'adresse pour la dernière fois aux amis de ces cahiers.
-Je ne veux apitoyer personne. Je n'ai à demander .
+Je ne veux apitoyer personne. Je n'ai à demander.
 aucune charité. Je ne dirai pas qu'il s'agit de la vie de
 nos cahiers. Le moment est passé où l'on avait à se
 demander si les cahiers vivraient ou si l'on réussirait
@@ -441,7 +441,7 @@ contribuent quelque peu à nous rémunérer. On ne peut
 demander que nos cahiers travaillent pour un salaire
 de famine. Toutes les fois que dans les campagnes et
 dans les villes de province nos cahiers sont lus en com-
--  mun, que nos lecteurs s'entendent pour s'abonner et
+- mun, que nos lecteurs s'entendent pour s'abonner et
 pour souscrire en commun, sans aucunes formalités.
 Outre qu'elle produit beaucoup plus, la souscription
 mensuelle régulière a cet avantage moral incomparable
@@ -468,7 +468,7 @@ la deuxième contre la Coopération des idées;
 la troisième contre les Temps nouveaux;
 la quatrième contre le Mouvement Socialiste.
 Je me permets de nommer ici boycottage l'affamement
-concerté de camarades faibles par des camarades forts. “E
+concerté de camarades faibles par des camarades forts.
 Pour des raisons que nous donnerons ailleurs, nous
 sommes résolus à ne pas publier dans les séries de nos
 cahiers le dossier du boycottage que nous subissons.
@@ -480,7 +480,7 @@ exercé contre les Temps nouveaux et un dossier de la
 Coopération des idées.
 
 Nous lisons dans le Socialiste, organe central du
-Parti ouvrier français, numéro du 9-16 juin : Le
+Parti ouvrier français, numéro du 9-16 juin: Le
 Orléans. — Le citoyen Lucien Roland, membre du
 Conseil national, a fait, au groupe d'études sociales, une
 _causerie sur la situation du parti socialiste en France.
@@ -488,7 +488,7 @@ Après cette causerie, il a été donné lecture d'un factum dans lequel un nomm
 l'esprit en critiquant les membres du groupe d'études
 sociales d'Orléans. L'ordre du jour suivant, proposé, à
 été voté à l'unanimité
-Les membres du groupe d'études sociales, après avoir ae
+Les membres du groupe d'études sociales, après avoir
 pris connaissance d'une publication quelconque où un
 M. Charles Péguy donne libre cours à sa méchanceté en
 critiquant d'une manière stupide les militants, déclarent
@@ -501,12 +501,12 @@ Le groupe décide, en outre, de soutenir aux prochaines
 élections législatives, une candidature nettement socialiste
 et révolutionnaire.
 
-nous à SIg na
+nous à SIg
 sumé de tout
 que fut Proud
-pas avoir limit sg
+pas avoir limit
 dhon de pet
-de le comprend .
+de le comprend.
 les lecteurs des
 aises de sa
 fargue, dit
@@ -515,21 +515,19 @@ sur son tombeau
 servateurs et
 Si Proudhon est
 En jetant les yeux
-spécial pour le socialisme !
+spécial pour le socialisme!
 fait bourgeois, d'aprés
-Nous avons reçu cette lettre : : Ÿ x .
+Nous avons reçu cette lettre::.
 PARIS C'est moi qui ai rendu
 Téléphone 801-04 tration de la Société Nouvelle du
 roman de M. Lavergne. Je suis obligé
 d'opposer un démenti catégorique aux propos que vous
 Veuillez insérer cette lettre dans votre prochain cahier. De
 Je prépare un mémoire pour assurer définitivement
-ma défense personnelle et celle des cahiers. F à
+ma défense personnelle et celle des cahiers. à
 Ce mémoire ne sera pas publié dans les séries des
 Ceux de nos abonnés qui suivent nos indications se
 sont abonnés à la Bibliothèque Socialiste commencée
 par la Société Nouvelle de librairie et d'édition, publi
 cation momentanément suspendue. Ils ont donc en mains
 le Proudhon de M. Hubert Bourgin.
-
----

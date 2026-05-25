@@ -149,6 +149,69 @@ def strip_leading_marginalia(line: str) -> str:
     return line
 
 
+_SAFE_2CHAR = {
+    "le", "la", "de", "du", "et", "ou", "ce", "se", "me", "te", "ne", "ni",
+    "on", "en", "au", "si", "il", "je", "tu", "ma", "ta", "sa", "où",
+    "oh", "ah", "eh", "ai", "as", "es", "an", "un", "à", "y", "ne",
+}
+_SAFE_1CHAR_ALPHA = {"a", "à", "y", "o", "ô", "é", "è", "ê", "ï", "ù"}
+
+
+def strip_inline_junk(line: str) -> str:
+    """Strip whitespace-bounded OCR-junk tokens from within a line. Targets
+    short tokens that paragraph reading misses but rendered typography exposes —
+    " 5e ", " '42 ", " x ", " RU ", " dl ", " I] " — while preserving real
+    French prose, page numbers ("52 pages"), addresses ("8 rue"), dates
+    ("10 mars 1903"), and proper-noun initials ("M. Dupont").
+    """
+    # Strip leading `#` and `>` (OCR margin marks misread as markdown blocks).
+    line = re.sub(r"^[#>]+\s*", "", line)
+    parts = re.split(r"(\s+)", line)
+    out = []
+    for part in parts:
+        if part == "" or part.isspace():
+            out.append(part)
+            continue
+        has_digit = any(c.isdigit() for c in part)
+        has_alpha = any(c.isalpha() for c in part)
+        # Mixed alphanumeric short token — almost always OCR debris.
+        # (Pure digits like "52" or "1903" lack alpha and survive.)
+        if has_digit and has_alpha and len(part) <= 5:
+            continue
+        # Apostrophe-prefixed short digit tokens like " '42 ", " '03 " —
+        # OCR artifacts from page corner / running header digits with
+        # adjacent quotation marks.
+        if re.fullmatch(r"['‘’`]\d{1,4}[.,;:'‘’`]?", part):
+            continue
+        # Mixed letter-and-symbol 2-char tokens like "\J", "I]" — but NOT
+        # "M." or other initials (handled by the period-keeps-it rule below).
+        if (len(part) == 2 and has_alpha and not part.isalpha()
+                and not part.isalnum() and "." not in part):
+            continue
+        # Tokens containing a period (likely abbreviation/initial) are kept.
+        if "." in part:
+            out.append(part)
+            continue
+        # Pure punctuation/symbol residue surrounded by spaces.
+        if not has_alpha and not has_digit:
+            # Keep common punctuation that legitimately appears mid-line.
+            if part in {",", ";", ":", "!", "?", "—", "–", "-", "...", "…", "«", "»", "(", ")"}:
+                out.append(part)
+            # Drop bare `|`, `_`, `<`, `>`, `%`, `&`, `+`, `*` and similar.
+            continue
+        # Single alpha — drop unless it's a safe one-letter word.
+        if len(part) == 1 and part.isalpha() and part.lower() not in _SAFE_1CHAR_ALPHA:
+            continue
+        # 2-char pure-alpha — drop unless safe French short word.
+        if len(part) == 2 and part.isalpha() and part.lower() not in _SAFE_2CHAR:
+            continue
+        out.append(part)
+    cleaned = "".join(out)
+    cleaned = re.sub(r" {2,}", " ", cleaned)
+    cleaned = re.sub(r"\s+([.,;:!?])", r"\1", cleaned)
+    return cleaned.strip()
+
+
 def strip_trailing_marginalia(line: str) -> str:
     """Strip trailing OCR margin junk: digits, digit-containing fragments, or
     single letters preceded by whitespace/punctuation.
@@ -200,8 +263,9 @@ def denoise_text(text: str) -> tuple[str, int, int]:
         if is_noise(line):
             dropped += 1
             continue
-        # Trim leading + trailing OCR margin artifacts (page numbers, sig marks).
+        # Trim leading + inline + trailing OCR margin artifacts.
         line = strip_leading_marginalia(line)
+        line = strip_inline_junk(line)
         line = strip_trailing_marginalia(line)
         # collapse runs of blank lines to at most 1
         if not line.strip():

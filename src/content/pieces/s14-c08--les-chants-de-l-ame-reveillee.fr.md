@@ -12,13 +12,13 @@ ocrSource: "Existing charlespeguy.com vision OCR (raw/s14-c08-ocr.txt); ingested
 
 *de l'âme réveillée*
 
-            A la mémoire de
-        Charles Bourgault-Ducoudray
+A la mémoire de
+Charles Bourgault-Ducoudray
 
-                    ... et lux perpetua luceat eis.
+... et lux perpetua luceat eis.
 
 JE te vois marchant à petits pas au jardin
-    Qu'un jardinier sage et méthodique a tracé
+Qu'un jardinier sage et méthodique a tracé
 Rectiligne avec des parterres en gradin
 Sur la pente où tu vas au soir te délasser,
 Avec le buis épais qui longe les massifs,
@@ -26,7 +26,7 @@ Avec les carrés de gazon d'où, soudains,
 Les jets d'eau concertés frisent et s'ébouriffent,
 Pendant qu'à petits pas tu vagues au jardin.
 
-                    *les chants*
+*les chants*
 
 Sur la pente où tu vas au soir te délasser,
 Au vieux soir qui te fait sa cour en plein silence,
@@ -56,15 +56,15 @@ Et je sens remonter de leur cœur à mon cœur
 Ton âme parfumée de modestes vertus.
 
 LA route fuit entre deux murs sous cette porte
-    Monumentale, que la mousse et le lierre décorent
+Monumentale, que la mousse et le lierre décorent
 Et dont tu entrevois les joints que le temps creuse.
 Par elle on pénétrait dans les allées mystérieuses
 D'un parc domanial où cheminaient des nonnes
 Jadis, en un jadis taciturne où revolent
 Quelques âmes nourries à l'ombre du passé.
-Là par les oraisons dès le matin bercées,
+par les oraisons dès le matin bercées,
 
-                    *les chants*
+*les chants*
 
 Ces âmes blanches se mêlaient aux cheminements
 De la lumière parmi les sous-bois dormants
@@ -81,7 +81,7 @@ Dans les sous-bois, dans le sanctuaire des oraisons
 Où se sont effeuillées tant d'arrière-saisons
 Aux battements des cœurs qui prient et qui espèrent.
 N'espère plus entrer aux domaines du Père
-Qui accueillit là tant d'âmes, après tant d'erreurs.
+Qui accueillit tant d'âmes, après tant d'erreurs.
 Car ce n'est plus ici la grand porte où le siècle meurt,
 Mais au delà tu vois la route qui, sournoise,
 Serpente entre les petites maisons bourgeoises
@@ -110,16 +110,16 @@ Et nous gardons en vain des profanes rumeurs...
 Ce n'est plus ici la porte où le siècle meurt.
 
 UN instant détaché du livre grand ouvert,
-    Enfant je pense à toi dans ces heures d'hiver,
+Enfant je pense à toi dans ces heures d'hiver,
 Pendant que la rumeur lointaine de la ville
 Circule aux alentours, monotone et tranquille,
-Pendant que le vieux temps va d'un train de limace,
+Pendant que le vieux temps d'un train de limace,
 Pendant que des clartés baignent mes paperasses
 Qui prennent à mes yeux des airs de parchemin,
 Pendant que luit dans l'ombre un buste de Romain,
 Que la bouillote chante et que craque la bûche...
 
-                    *les chants*
+*les chants*
 
 Les contes que disait l'aïeule au coin des huches
 Ce serait le moment de te les rappeler,
@@ -139,8 +139,8 @@ En un bel ordre juste où se plaît la raison;
 Autour de toi, les vieux, blottis près des tisons,
 Et ceux qui rentrent las à la fin des journées
 Et les âmes d'enfants, vers l'inconnu tournées,
-Aiment cet ordre net et lumineux des choses :
-Ils trouvent là entre ces quatre murs encloses
+Aiment cet ordre net et lumineux des choses:
+Ils trouvent entre ces quatre murs encloses
 La logique de France et sa fine douceur...
 
 Je ne te dirai plus les vieux contes berceurs
@@ -158,7 +158,7 @@ Parmi les bêtes assoupies et ruminant
 Et parmi l'air où chantaient les cloches lointaines,
 Ta voix, ayant le fin murmure des fontaines
 
-                    *les chants*
+*les chants*
 
 Qui jadis étaient fées, a cheminé en moi
 Et m'a réveillé dans une aube d'autrefois,
@@ -175,19 +175,19 @@ Les simples chants que nos aïeules ont chéris.
 
 Ta voix est le ruisseau de la jeune prairie...
 
-                *Dans cette solitude...*
+*Dans cette solitude...*
 
 DANS cette solitude et parmi ce silence,
-    Dans la buée d'hiver où pointe une espérance,
+Dans la buée d'hiver où pointe une espérance,
 Des âmes sont venues des lointaines années,
 Elles ont murmuré des chants graves et tendres
 Et depuis je ne cesse plus de les entendre;
 
-                    *les chants*
+*les chants*
 
 Dans le travail longtemps ingrat de nos journées,
 Dans nos peines toujours d'autres peines bornées,
-Des âmes sont venues des lointaines souffrances :
+Des âmes sont venues des lointaines souffrances:
 Et les chants résolus qu'elles nous ont chantés
 Cadencent depuis lors nos bonnes volontés;
 
@@ -199,19 +199,19 @@ Sont venues me chanter leur éternelle attente;
 
 Chez ces enfants qui sont boudeurs et qui soupirent
 Quand à l'obstacle dur se cogne leur désir,
-Des âmes sont venues, du temps de nos grand mères :
+Des âmes sont venues, du temps de nos grand mères:
 Elles nous ont chanté les enfances dociles
 Qui s'essayaient gaîment aux tâches difficiles;
 
 Dans la tiédeur, dans les parfums de l'atmosphère
 Où tu cherchais des vibrations pour tes nerfs,
-Des âmes sont venues de rudes capitaines :
+Des âmes sont venues de rudes capitaines:
 Elles t'ont fait sonner des cuivres militaires
 Pour chasser ta rêvasserie humanitaire;
 
 Dans le hameau qui dort au chant de la fontaine,
 Dans la chaumière où rêve une aïeule en mitaines,
-J'ai retrouvé les bonnes âmes d'autrefois :
+J'ai retrouvé les bonnes âmes d'autrefois:
 Elles m'ont conté la patience éternelle
 De ceux qui pourvoient aux nourritures charnelles;
 
@@ -221,7 +221,7 @@ J'ai rencontré de fortes âmes d'artisans
 Qui m'ont conté leur vie pieusement étroite
 Sous l'image en bois peint d'une sainte benoîte;
 
-Dans l'école de haine où l'on va dégoisant
+Dans l'école de haine où l'on dégoisant
 Que tout ce long passé fut âcre et malfaisant,
 Des âmes sont venues de l'antique misère
 Dire la charité qui passe en eau courante
@@ -241,10 +241,10 @@ Dans la forge qui souffle et dans les blés qui penchent,
 
 Nous avons retrouvé les âmes de la Race.
 
-                *Nous avons aimé...*
+*Nous avons aimé...*
 
 NOUS avons aimé le silence de la maison,
-    Le défilé calme et régulier des saisons,
+Le défilé calme et régulier des saisons,
 Les travaux que l'on fait toujours aux mêmes heures,
 Les matins blancs, les volets clos, les jours qui meurent,
 Les songeries du soir, les causeries d'hiver,
@@ -252,7 +252,7 @@ L'intimité des porcelaines et des verres
 D'autrefois, décorant nos murs et nos dressoirs,
 Cette absence de bruit, de tumulte et de gloire
 
-                    *les chants*
+*les chants*
 
 Qui rend la vie si douce à l'ombre des clochers,
 Et les ombres qu'on voit lentement s'approcher
@@ -270,7 +270,7 @@ Et les germes à peine éclos de tant d'espoirs,
 Nous exerçons notre âme à souffrir les tourmentes.
 
 TU emploies au foyer tes journées et tes veilles
-    Afin que les vieux temps renaissent bien pareils
+Afin que les vieux temps renaissent bien pareils
 En sagesse, en labeurs, en douce gravité,
 A ce que dans cette ombre ils ont toujours été,
 Depuis qu'il y a des foyers sur nos terroirs.
@@ -278,7 +278,7 @@ Pendant que tu vis en fourmi, loin de l'Histoire
 Dont un vague murmure à peine entre chez toi,
 Effleurant les meubles dociles de tes doigts
 
-                    *les chants*
+*les chants*
 
 Qui sans cesse font l'ordre où les âmes se calment,
 J'ai rêvé que moi, loin des foyers et des femmes,
@@ -306,10 +306,10 @@ Et j'ai rêvé qu'un soir en fourbissant mes armes
 Près d'un feu de bois mort fumant dans l'air glacé,
 Je sentais près de moi tes prières glisser.
 
-                *Nous avons parlé...*
+*Nous avons parlé...*
 
 NOUS avons parlé tous deux près de la bouilloire
-    Pendant qu'au loin régnait le silence du soir
+Pendant qu'au loin régnait le silence du soir
 Sur le vieux pays dont les morts vivent en nous.
 La lumière filtrée venait baigner ta joue
 Et tu sortais de l'ombre ainsi que d'un passé.
@@ -319,7 +319,7 @@ Des malheurs qui pendaient sur nos rares foyers,
 Des quelques âmes qui demeuraient à veiller
 Pendant que les foules s'enfonçaient dans la torpeur.
 
-                    *les chants*
+*les chants*
 
 L'horloge ramenait la cadence des heures
 D'autrefois qui tintaient sur de mâles soucis;
@@ -331,7 +331,7 @@ Un souffle venu par des forêts matinales,
 Ta voix glissant parmi les ombres de la salle
 Me redit cet aïeul dont nous savions l'histoire,
 Celui qui marcha si obscur dans la gloire
-Et dont nos grand mères n'ont jamais pu nous dire
+Et dont nos grand mères n'ont jamais nous dire
 En quel temps ni en quel pays il était mort.
 Mais nous sentions bien que son âme vivait encore
 En nous parmi tant d'autres âmes de jadis,
@@ -350,10 +350,10 @@ Pendant qu'au loin régnait le silence du soir
 Sur le vieux pays dont les âmes vivent en nous
 Et que la lumière filtrée baignait ta joue.
 
-                    Dans cette même salle…
+Dans cette même salle…
 
 Dans cette même salle où nous causons ce soir,
-    Le soldat, qui fut un grand oncle, vint s'asseoir
+Le soldat, qui fut un grand oncle, vint s'asseoir
 Près de la flamme, quelquefois, entre deux guerres.
 
 N'entrevois-tu pas une veillée de naguère,
@@ -361,7 +361,7 @@ Là-bas, au fond de notre histoire de famille,
 Avec un grand cercle de garçons et de filles
 Autour du soldat qui tisonne et grommelle?
 
-                    *les chants*
+*les chants*
 
 Quelque grand mère tousse et mouche les chandelles;
 Au jardin les rameaux chuchotent doucement;
@@ -369,7 +369,7 @@ Dans son coin familier, le chien rêve en dormant
 Et s'éveille parfois lorsque le soldat jure…
 
 Il dit les joies qu'il a trouvées dans sa vie dure
-Et raconte le peu qu'il a vu des batailles.
+Et raconte le peu qu'il a des batailles.
 Les garçons, orgueilleux soudain, cambrent la taille.
 Les filles ont de petits rires nerveux,
 Et loin du vieux logis, ces nièces, ces neveux
@@ -377,10 +377,10 @@ Entrent vainqueurs dans les étranges capitales.
 
 La gloire à larges flots pénètre dans la salle.
 
-                    Jadis nous avons vu…
+Jadis nous avons vu…
 
-JADIS nous avons vu sous verre dans des cadres,
-    Au mur des chambres où vient le marchand de sable
+JADIS nous avons sous verre dans des cadres,
+Au mur des chambres où vient le marchand de sable
 De bonne heure fermer les paupières d'enfants,
 Ces croix d'honneur que l'Empereur triomphant
 Attacha sur la poitrine de quelque ancêtre.
@@ -390,7 +390,7 @@ Qui autrefois de leurs yeux de petites filles
 Avaient regardé le héros de la famille,
 Et qui le regardaient encore dans un songe.
 
-                    *les chants*
+*les chants*
 
 A l'heure où l'enfant choit, léger, parmi les mondes
 Du sommeil, la croix du grand oncle militaire
@@ -407,7 +407,7 @@ Informes qui étaient des musiques guerrières,
 L'enfant partait en bondissant dans la lumière,
 De l'élan qui porta la Grèce à Salamine.
 
-Jadis nous avons vu cette croix qu'illumine
+Jadis nous avons cette croix qu'illumine
 Toujours une lueur d'aube dans nos mémoires,
 Et bien d'autres que nous se figurent la voir
 Encore, lorsqu'ils se retournent vers les enfances.
@@ -415,10 +415,10 @@ Mais à présent elle a quitté les murs des chambres,
 Car Madame l'a déposée dans sa vitrine
 Parmi des bibelots de l'Inde et de la Chine.
 
-                    Bien d'autres soldats…
+Bien d'autres soldats…
 
 BIEN d'autres soldats en des siècles plus lointains,
-    En de vieux temps qui semblent des soleils éteints,
+En de vieux temps qui semblent des soleils éteints,
 Ont quitté ce logis pour s'en aller en guerre.
 Dans le livre où tu lis les choses de naguère
 Rien ne te parle d'eux ni de ce qu'ils ont fait,
@@ -426,15 +426,15 @@ Mais ils vivent sur les faïences du buffet
 Et dans les chansons que l'on chante le long des routes.
 Ceux-là n'ont pas connu la vieillesse et la goutte
 
-                    *les chants*
+*les chants*
 
 Dans un sûr logis, dans un fauteuil confortable
 Et dans la considération des notables.
 Depuis qu'ils ont suivi leurs inquiets désirs,
-La maison qui n'avait pas su les retenir,
+La maison qui n'avait pas les retenir,
 Des fois a rêvé d'eux par les soirs lents et tristes,
 Rêves éteints et rabâcheurs de vieux droguiste…
-Mais elle ne les a plus jamais abrités :
+Mais elle ne les a plus jamais abrités:
 Dans quelque fossé plein de vase ils sont restés
 Ou dans quelque hôpital grouillant et sans lumière.
 La petite ville, orgueilleuse sous sa poussière,
@@ -452,11 +452,11 @@ En des campagnes méthodiques et solennelles
 Qui ressemblaient à des parades sur la place,
 Jusqu'au jour où dans une soudaine bourrasque
 Les uniformes rouges et bleu de roi
-Couraient parmi les blés, les vignes & les bois
+Couraient parmi les blés, les vignes les bois
 Forcer brutalement le sort capricieux.
 C'est par eux qu'à la clarté fine de nos cieux
 Que portent ces coteaux nettement dessinés
-Nous nous sentons si bien là où nous sommes nés,
+Nous nous sentons si bien où nous sommes nés,
 Et travaillons, aimons, prions d'une âme égale.
 C'est par eux que paisiblement nos bourgs s'étalent
 
@@ -472,16 +472,16 @@ Tes souvenirs joyeux et tes simples espoirs.
 
 Aussi n'attendons pas que les choses soient noires
 Et perdues dans la nuit comme au fond des pensées
-Oublieuses qui ne gardent rien du passé :
+Oublieuses qui ne gardent rien du passé:
 Mais rentre dans la salle où l'énorme buffet
 De chêne bien lustré s'argente de reflets,
 Et vois se redresser et marcher en cadence
 Les soldats d'autrefois vernis sur les faïences.
 
-                    Vous êtes retournée…
+Vous êtes retournée…
 
 VOUS êtes retournée au poste où Dieu vous mit
-    Pour le garder nuit et jour contre l'ennemi
+Pour le garder nuit et jour contre l'ennemi
 Qui dévore vos sens, votre cœur, vos pensées.
 L'hiver dans la maison vous a cadenassée;
 La campagne en deuil se serre contre vos murs;
@@ -490,14 +490,14 @@ D'un matin de printemps et la paix de votre âme.
 Vous frissonnez malgré la caresse des flammes,
 Vous hésitez devant les contraintes sévères.
 
-                    *les chants*
+*les chants*
 
 Mais n'entendez-vous point parmi les voix d'hiver
 Qui glissent sur les toits et dans la cheminée,
 D'autres voix prononçant, du fin fond des années,
 Des appels graves et des mots brefs de chef de guerre.
 Car chacun, à chaque foyer de notre terre,
-Eut des aïeux qui allèrent se battre au loin :
+Eut des aïeux qui allèrent se battre au loin:
 Et beaucoup furent enfouis aux quatre coins
 Du monde… quelques-uns sont en terre natale…
 Mais tous, quand le présent dans sa lâcheté sale
@@ -523,7 +523,7 @@ La mort obscure loin des paroisses chrétiennes
 
 Dans quelque fossé noir où la vase croupit...
 Et les oiseaux de proie ont fait de la charpie
-Avec leur pauvre corps de soldats inconnus :
+Avec leur pauvre corps de soldats inconnus:
 
 Vous voyez bien qu'on n'a pas clamé dans les nues
 Leurs noms comme l'on fait pour d'infimes drôlesses,
@@ -538,11 +538,11 @@ Sans souci d'être vus que de Dieu, notre père.
 Ame lointaine qui languissez dans cet hiver
 Serré contre vos murs et tassé sur votre âme,
 Écoutez donc sortir de la bise qui râle
-Ces rudes voix de ceux dont nous sommes issus ;
+Ces rudes voix de ceux dont nous sommes issus;
 Écoutez-les traverser le ciel au-dessus
-De la maison qui somnole dans la buée ;
+De la maison qui somnole dans la buée;
 Écoutez-les parmi les flammes se ruer
-En une chevauchée de bataille et d'espoir ;
+En une chevauchée de bataille et d'espoir;
 Écoutez-les près de votre lampe, le soir,
 Dans votre cœur surpris de soudain rajeunir,
 Et riant au destin, sans larme et sans soupir,
@@ -550,7 +550,7 @@ Poussez la fine aiguille en chantant de vieux airs...
 
 Soyons dignes de ceux qui moururent en guerre.
 
-        Je prie tous les aïeux...
+Je prie tous les aïeux...
 
 Je prie tous les aïeux dont les vertus obscures
 Se sont encloses jadis entre d'humbles murs
@@ -586,8 +586,8 @@ En priant Dieu, Notre-Seigneur et Notre-Dame,
 Je les prie de sortir un peu de leur grand calme
 Et de s'approcher de leurs arrière-neveux...
 Et comme au soir, effleurant des doigts les cheveux
-De son enfant qui va s'endormir, une mère
-Lui fait balbutier doucement sa prière :
+De son enfant qui s'endormir, une mère
+Lui fait balbutier doucement sa prière:
 De même ces revenants tendres et austères
 Nous feront dire pieusement le *Pater*
 Et l'*Ave Maria* qui détruisent les doutes.
@@ -606,7 +606,7 @@ Dans leurs cœurs, pour nos cœurs misérables et seuls...
 
 Je prie tous nos aïeux et toutes nos aïeules.
 
-        Je songe à vous...
+Je songe à vous...
 
 Je songe à vous qui n'êtes plus dans la grand ville.
 Vous avez regagné les tâches difficiles,
@@ -631,13 +631,13 @@ Mais je crains d'entrevoir le fond de vos pensées.
 
 J'imagine les lieux dont vous êtes la reine,
 Le coteau, la maison, les fermes, le village,
-La rivière qui va d'un train de vierge sage,
+La rivière qui d'un train de vierge sage,
 Le dur clocher roman dont les cloches mesurent
 Les jours, les ans, la vie lente des créatures
 Attachées au vieux sol qu'ont fouillé leurs aïeux,
 Les fumées s'élevant, tranquilles, vers les cieux
 Et le jardin qui dévale sous vos fenêtres
-Et le verger où vous guettez ce qui va naître
+Et le verger où vous guettez ce qui naître
 Au bout des fins rameaux quand le printemps sourit,
 Enfin tout ce que vous m'avez un peu décrit
 Quand nous étions assis là-bas sous la chênaie.
@@ -667,7 +667,7 @@ De ces deux grands enfants purs comme des fontaines...
 
 *Ayez pitié, mon Dieu, de cette âme lointaine!*
 
-        A la fin d'un long jour...
+A la fin d'un long jour...
 
 A la fin d'un long jour d'ombre et de désespoir
 N'avez-vous pas tiré de votre vieille armoire
@@ -676,7 +676,7 @@ Un voile un peu jauni, plié dans une gaîne
 De soie, le voile saint des jeunes épousées!
 
 Il est un frais jardin plein d'aube et de rosée
-Où vous semez parfois des graines de sagesse :
+Où vous semez parfois des graines de sagesse:
 C'est l'âme de la douce enfant qui vous caresse
 
 *les chants*
@@ -701,7 +701,7 @@ Qui ne pèse pas plus que vos jours de bonheur;
 Il est un clair visage au fond de votre cœur...
 Et vous songez au matin où vos mains peu sûres
 Et lentes, poseront sur cette chevelure
-Que vous aurez vu s'accroître en fuseaux de soie,
+Que vous aurez s'accroître en fuseaux de soie,
 Un voile tout pareil à celui que vos doigts
 Soupèsent tristement à la tombée du soir,
 Vous qui ne pouvez plus ressaisir les espoirs
@@ -710,7 +710,7 @@ Parmi de frais jardins pleins d'ombre et de rosée.
 
 Me voici revenu dans le pays de France.
 Je passe un mois près des forêts de pins. Je pense
-A tout ce que j'ai vu dans les brumes du Nord
+A tout ce que j'ai dans les brumes du Nord
 Et je me sens heureux parmi les sables d'or,
 Le long des promptes eaux que le soleil épuise,
 Sous les cieux purs, voûte éternelle de l'Église
@@ -742,7 +742,7 @@ Nourris aux fortes disciplines d'autrefois.
 Mon Dieu, pourquoi errer si loin d'ici? pourquoi,
 Sinon pour désirer le chemin du retour,
 Sinon pour éprouver des regrets chaque jour
-Tandis qu'on va parmi des étranges figures,
+Tandis qu'on parmi des étranges figures,
 Sinon pour savourer la joie profonde et pure
 De retrouver au bout du clocher qui domine
 Les châtaigniers de la grand place et les chaumines,
@@ -763,10 +763,10 @@ Le plateau choit en pente douce vers la plaine.
 J'y écoute jaser une proche fontaine
 Et la voix des enfants du bourg chanter les vêpres.
 Le visage noueux et barbu d'une chèvre
-Perce les feuilles là où la haie s'entrebâille.
+Perce les feuilles où la haie s'entrebâille.
 
 Les morts, gens de labour, d'oraison, de bataille,
-Sont groupés là près de leur église robuste
+Sont groupés près de leur église robuste
 En attendant leur place au royaume des justes,
 Car leur âme fut droite et leur vie selon Dieu.
 
@@ -786,12 +786,12 @@ La campagne se vêt de couleurs toutes neuves,
 L'eau gémit, j'aperçois le rire de la chèvre
 Et j'entends les enfants du bourg chanter les vêpres.
 
-        Dans le calme du parc...
+Dans le calme du parc...
 
 Dans le calme du parc où la lune pénètre,
 Au bruissement de l'eau qui rôde au pied des hêtres,
 Au lent murmure de la cloche du couvent,
-Nous avons eu de doux entretiens, bien avant
+Nous avons de doux entretiens, bien avant
 Dans la nuit qui joignait nos cœurs et nos pensées.
 
 Nous parlions du bonheur grave d'être fixés
@@ -801,7 +801,7 @@ Près d'un champ, d'une vigne, ou du jardin qu'on toise
 *les chants*
 
 Pour qu'il ait des allées nobles et raisonnables...
-D'être fixés là pour la vie, comme aux arbres
+D'être fixés pour la vie, comme aux arbres
 Géants des bois se fixe la montée du lierre.
 
 Dans le calme du soir où la pâle lumière
@@ -821,14 +821,14 @@ De ces morts qui n'ont pas perdu en vains efforts
 Leur vie dans les cités troubles et maladives,
 Mais au même logis et sur les mêmes rives,
 Dans la même paroisse et près des mêmes saints,
-Ont su régler leur tâche et borner leurs desseins
+Ont régler leur tâche et borner leurs desseins
 A l'exemple de Notre Seigneur ici-bas...
 
 Les morts nous ont murmuré ces choses tout bas,
 Sortant des brumes du mystère à notre approche,
 Pendant que se mourait le tintement des cloches.
 
-        Dans la crypte...
+Dans la crypte...
 
 Dans la crypte éclairée de falotes veilleuses
 Où parmi les piliers des abîmes se creusent,
@@ -859,7 +859,7 @@ Madame, pourquoi mes frères s'éloignent-ils?
 Pourquoi n'en vois-je pas un seul en cet asile
 De calme et de bonté où vous êtes présente?
 Il n'est point de journée maussade et rebutante
-Quand dès l'aurore on vous la donne avec amour :
+Quand dès l'aurore on vous la donne avec amour:
 Vous aimez ces présents qu'à la pointe du jour
 Vous fait une âme fraîche au sortir du sommeil.
 
@@ -871,11 +871,11 @@ Leur gîte et les vêtements dont ils s'enveloppent,
 Afin que dans la crypte aux lumières falotes
 Ils se sentent un jour attirés doucement
 Et qu'ils vous offrent leur journée d'un cœur aimant
-Et simple comme les artisans d'autrefois :
+Et simple comme les artisans d'autrefois:
 
 Et presque tous sauront vous prier mieux que moi.
 
-        Vous que j'aime...
+Vous que j'aime...
 
 Vous que j'aime, chers incroyants, chers infidèles,
 Le soir et le matin je supplie l'Éternel
@@ -888,11 +888,11 @@ Lorsqu'il ne fut jamais plus brûlant ni plus tendre.
 *les chants*
 
 Je prie pour vous afin que Dieu vienne lui-même
-Vous dire : Heureux celui qui me connaît et m'aime
+Vous dire: Heureux celui qui me connaît et m'aime
 Et qui fait succéder la prière au blasphème.
 
 Je prie Dieu, sachant que nous nous convertissons
-Grâce aux prières qui germent où nous passons :
+Grâce aux prières qui germent où nous passons:
 La prière est semence et la grâce est moisson.
 
 Pensez-vous que jamais en de vaines parlotes
@@ -963,13 +963,13 @@ Et ne sonnera plus les heures solennelles
 De joie et de malheur qui partagent la vie...
 Cependant, sirotant quelque vieille eau-de-vie,
 
-        En marchant par les rues...
+En marchant par les rues...
 
 En marchant par les rues boueuses ce matin
 Dans le suaire gris tombant du ciel éteint,
 J'ai songé au temps où cette ville des villes
 Tenait ou peu s'en faut en deux petites îles
-Sur le fleuve qui va d'un train de bête lasse.
+Sur le fleuve qui d'un train de bête lasse.
 
 Et j'ai songé que des quatre coins de l'espace
 Alors s'acheminaient vers cette humble cité
@@ -1003,7 +1003,7 @@ Ne connaîtrez-vous pas le repos du Seigneur?
 Vous faudra-t-il veiller sans fin le long des heures
 Qui glissent sur tant de sécheresse et de crime,
 Pour empêcher de s'éteindre les clartés fines
-Tremblotant çà et là dans la brume fumeuse?
+Tremblotant et dans la brume fumeuse?
 
 O pauvres vieux patrons, pour nos âmes lépreuses
 Vous faudra-t-il sans fin supplier à genoux,
@@ -1023,7 +1023,7 @@ Qui portèrent les premiers feux de la grand ville
 Sur le fleuve passant d'un train de bête lasse,
 Lorsque les premiers saints cheminaient dans l'espace.
 
-        Nous avons parlé..
+Nous avons parlé..
 
 Nous avons parlé de ces bons saints, nés du sol,
 Qui furent autrefois de petits dieux champêtres
@@ -1040,7 +1040,7 @@ Venus au jour avec les premiers éléments,
 Ont tressailli de joie au son des Évangiles.
 
 Nos apôtres les ont baptisés gravement,
-Ils ont eu des chapelles et des images,
+Ils ont des chapelles et des images,
 Ils ont transmis là-haut des vœux et des serments,
 
 Ils ont reçu de rustiques pèlerinages,
@@ -1069,7 +1069,7 @@ Tous ceux qu'on voit guetter les souffles de la bise,
 
 Tous les chrétiens poussés et taillés à la dure
 Ont honoré comme de vieux saints canoniques
-Ces enfants convertis de la vieille nature :
+Ces enfants convertis de la vieille nature:
 
 On leur donna des robes ecclésiastiques,
 Des bonnets, des anneaux, des crosses et des chapes,
@@ -1093,10 +1093,10 @@ Les vignobles tordus et la glèbe mouvante...
 
 Et le Seigneur sourit à leur humilité.
 
-        C'est un vieux curé de...
+C'est un vieux curé de...
 
 C'est un vieux curé de la France d'autrefois,
-Un vieux curé du vieux Paris : je le revois
+Un vieux curé du vieux Paris: je le revois
 En rêve après cette lecture de Nicole.
 Il est docte, il retient ce qu'il sut à l'école,
 Ses harangues, son Aristote, son Virgile,
@@ -1105,7 +1105,7 @@ Dans les in-folio des Pères de l'Église.
 
 C'est le soir; la chandelle est allumée; la bise
 D'hiver se plaint; le chat près du foyer somnole;
-La bouilloire crachote un peu : sur la console
+La bouilloire crachote un peu: sur la console
 
 *les chants*
 
@@ -1119,7 +1119,7 @@ Protégez le sommeil tout proche des fidèles.
 
 Le vieux curé s'est tenu coi dans les querelles
 Qui partagent les docteurs de la sainte Église,
-Vu que les uns, trop indulgents, le scandalisent
+que les uns, trop indulgents, le scandalisent
 Par les facilités qu'ils donnent aux pécheurs
 Et que les autres sont armés d'une rigueur
 Qu'il blâme au nom du tendre amour que Dieu nous porte.
@@ -1153,7 +1153,7 @@ Et qui vogue, elle aussi, de péril en péril,
 Sous l'orage brutal, sur les bas-fonds subtils,
 Près des gouffres sans fond, près des rochers pointus,
 Et qui s'enfonce et qui monte et qui s'évertue,
-Qui va de choc en choc et d'angoisse en angoisse...
+Qui de choc en choc et d'angoisse en angoisse...
 O mon Église, ô ma cité, ô ma paroisse,
 Que Dieu, parmi tant de tempêtes, vous soutienne.
 Mon Dieu, sur cette nuit, versez la paix chrétienne,
@@ -1175,11 +1175,11 @@ Et connurent les vieux curés du temps jadis.
 
 *les chants*
 
-L'église est là qui se rappelle par sa voix
+L'église est qui se rappelle par sa voix
 (L'immuable soutien des âmes qui se noient,
 Le persistant rocher où s'accrochent les âmes),
 L'église de sa voix grave et lente lui clame
-Qu'elle est là tout debout et veille dans la nuit,
+Qu'elle est tout debout et veille dans la nuit,
 Avec ses tours, avec ses nefs, avec son huis
 Où figurent l'origine et la fin des choses,
 Avec sa crypte où des corps de martyrs reposent,
@@ -1205,7 +1205,7 @@ Pour que meure le doute et que vive la foi.
 
 C'est un vieux curé de la France d'autrefois.
 
-        Les prophètes, les saints...
+Les prophètes, les saints...
 
 Les prophètes, les saints, les saintes et les rois,
 Immobiles depuis des siècles et sans voix,
@@ -1240,7 +1240,7 @@ Et poursuivent, par-dessus les toits de la ville,
 L'oraison commencée au jour qu'on les bénit
 Et qu'ils jouèrent un rôle bien défini
 Dans le drame sacré que figure la pierre,
-Dans le drame qui va de la chute première
+Dans le drame qui de la chute première
 Jusqu'à la majesté du dernier jugement
 Dont on voit les acteurs et les événements
 S'étager au-dessus de la porte centrale.
@@ -1363,7 +1363,7 @@ L'oraison commencée au jour qu'on les bénit
 Et qu'ils jouèrent un rôle bien défini
 Dans le drame que la cathédrale figure,
 Dans le drame de la grâce et de la nature,
-Dans le drame qui va de la chute première
+Dans le drame qui de la chute première
 Jusqu'au grand jugement rendu dans la lumière,
 En passant par les patriarches, les prophètes,
 Jésus crucifié, Jésus domptant la Bête,
@@ -1481,7 +1481,7 @@ Les heures psalmodient, murmurent et se glissent,
 
 Au cloître d'autrefois où songe la novice.
 
-        Toutes deux près de moi...
+Toutes deux près de moi...
 
 Toutes deux près de moi dans la maison de Dieu,
 Tout debout près de moi, priant, baissant les yeux,
@@ -1496,7 +1496,7 @@ Qui m'étouffait le cœur et le tenait gisant.
 *les chants*
 
 Je me suis cru loin des ténèbres du présent,
-Dans un monde liturgique et spirituel :
+Dans un monde liturgique et spirituel:
 L'avenir... le passé... je ne sais pas lequel,
 Mais un monde où Jésus venait ou revenait,
 Où les chevaux ne mouraient plus sous le harnais,
@@ -1521,7 +1521,7 @@ Dans un bosquet sacré vierge de visiteurs...
 
 Et mon âme altérée en sentait la fraîcheur.
 
-        Vous m'avez toutes trois...
+Vous m'avez toutes trois...
 
 Vous m'avez toutes trois, le long des vieilles rues
 Qui chuchotent sans fin des âmes disparues,
@@ -1585,11 +1585,11 @@ De leur âme émergeant à peine de la nuit,
 Si pour les engager à suivre l'Évangile
 Vous leur parlez de l'évolution des styles.
 
-        Vous passez toutes trois...
+Vous passez toutes trois...
 
 *Vous passez toutes trois au jardin que traverse
-    La rivière... Bientôt par des routes diverses
-Vous partirez, suivant chacune son destin :
+La rivière... Bientôt par des routes diverses
+Vous partirez, suivant chacune son destin:
 Vous partirez vers le sourire des matins,
 Vers la tiédeur des foyers clos à l'infortune,
 Vers les roucoulements discrets au clair de lune,
@@ -1615,7 +1615,7 @@ Qui d'abord vous avaient prises par des caresses,
 Vers les nuits où l'on veille au sein de sa détresse,
 Vers l'aurore qui boude et le matin qui pleure...
 
-Vous passez au jardin, fleurs au milieu des fleurs :
+Vous passez au jardin, fleurs au milieu des fleurs:
 Vous vous acheminez vers la pointe de l'île
 D'où l'on voit se serrer les pignons de la ville
 Et la puissante église émerger des maisons
@@ -1630,8 +1630,6 @@ Vous n'avez pas cherché de vos yeux cois et doux
 La lourde croix de fer qui se tourne vers vous.*
 
 1911-1912
-
----
 
 *Nous avons donné le bon à tirer après corrections pour quinze cents exemplaires de ce huitième cahier et pour seize exemplaires sur whatman le mardi 11 mars 1913.*
 

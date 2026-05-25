@@ -7,6 +7,6 @@ author: paul-milliet
 isAvertissement: false
 wordCount: 28
 ---
-# XII-2: Les Milliet. III. "Les amis des cahiers".
-# Source: https://archive.org/stream/s12cahiersdelaqui01pg#page/n276/mode/1up
-# OCR: Tesseract 5 with French language pack
+XII-2: Les Milliet. III. "Les amis des cahiers".
+Source: https://archive.org/stream/s12cahiersdelaqui01pg#page/n276/mode/1up
+OCR: Tesseract 5 with French language pack

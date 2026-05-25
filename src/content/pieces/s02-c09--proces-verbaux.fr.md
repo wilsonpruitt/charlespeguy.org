@@ -7,9 +7,9 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3348
 ---
-K5 Le samedi 9 février dernier, quelques instants avant
+Le samedi 9 février dernier, quelques instants avant
 - le moment où je me décidai enfin à fonder une librairie
-pour subvenir aux besoins des cahiers, je reçus la convocation suivante :
+pour subvenir aux besoins des cahiers, je reçus la convocation suivante:
 Téléphone 801-04 extraordinaire le dimanche
 février à 10 heures à la librairie.
 Le dimanche 17 février, au commencement de la
@@ -18,7 +18,7 @@ sident de séance une lettre que je reproduis de mé-
 Monsieur le président de séance de l'Assemblée géné-
 rale de la Société Nouvelle de librairie et d'édition,
 ne Puisque vous êtes assemblés pour traiter de l'incident
-.  Péguy, permettez-moi de rappeler, une fois encore, aux (
+. Péguy, permettez-moi de rappeler, une fois encore, aux (
 neuvième cahier de la deuxième série
 sociétaires que je suis personnellement à leur entière
 disposition. S'ils veulent bien venir me voir le jeudi de
@@ -53,13 +53,13 @@ de présenter.
 La séance recommença le dimanche 24. Je ne fus pas
 convoqué pour ce deuxième dimanche. On y convoqua
 
-Ne __ mon ami. Solécisme juridique. On y vota un second
+Ne mon ami. Solécisme juridique. On y vota un second
 
 +4 rapport, beaucoup moins violent que le premier. J'ai
 
 reçu en ces termes communication de ce deuxième
 
-ÿ Directeur : Félix MALTERRE Mon cher Péguy,
+Directeur: Félix MALTERRE Mon cher Péguy,
 
 rue Cujas L'Assemblée. générale
 
@@ -73,7 +73,7 @@ venir le texte, comme j'en ai reçu mission en ma qualité de
 
 président de l'Assemblée.
 
-eo Bien à toi. Paul Fauconnet
+Bien à toi. Paul Fauconnet
 
 É L'assemblée générale des membres de la Société
 
@@ -88,11 +88,11 @@ commission spéciale instituée pour examen de linci-
 È Donne son approbation complète à la conduite du
 É Conseil d'administration exposée dans le rapport;
 Approuve le Conseil d'administration de s'être
-Û hi, nhsténu æ pouce les fégARRE de Péguy, qui,
+hi, nhsténu pouce les fégARRE de Péguy, qui,
 
 LE 4 depuis treize mois, visent la maison et ceux qui y don-
 
-M _ ment leur peine;
+ment leur peine;
 
 neuvième cahier de la deuxième série
 
@@ -103,11 +103,11 @@ répondait à la conscience de ses membres et des membres de la Société solida
 Regrette pour Péguy qu'il n'ait pas cru devoir se
 rendre à la présente réunion pour des explications
 contradictoires avec qui de droit sur les trois points
-r° A la page 23 du cahier en question, dont le bon
+A la page 23 du cahier en question, dont le bon
 tirer est daté du 28 janvier 1901, se trouvent, au sujet
 du compte rendu du Congrès socialiste international,
 plusieurs affirmations contraires aux faits qui, à
-lassemblée du 1o janvier précédent, avaient été,
+lassemblée du janvier précédent, avaient été,
 Péguy présent, établis par le rapport du Conseil
 d'administration et les explications fournies à la suite;
 aucune note ou post-scriptum n'indique que le texte,
@@ -116,9 +116,9 @@ peut-être composé avant le 10, est désormais inexact;
 Péguy, à la page 20 du même cahier, déclare ne
 pas avoir obtenu communication du rapport antérieur
 où il était mis en cause et (page 22) ne pas savoir s'il
-obtiendra. Or au 28 janvier il y avait douze jours que,
+obtiendra. au 28 janvier il y avait douze jours que,
 usant de l'autorisation que l'assemblée du 10 lui avait
-donnée, Péguy avait copie prise de ce rapport : aucun
+donnée, Péguy avait copie prise de ce rapport: aucun
 post-scriptum n'indique que sur ce point son incertitude
 a cessé. D'autre part, dans le récit qu'il donne du diffé-
 rend dont la publication des Cahiers de la Quinzaine a
@@ -130,24 +130,24 @@ omission, de la relation contemporaine — et alors non
 contestée — qu'en donnait le même rapport. Nul usage
 
 n'est fait ni annoncé du texte de ce rapport. — Voir
--_ annexe à la présente résolution.
-4 3 Péguy écrit (page 15) : « Ma finance était épuisée
-(au mois de décembre 1899), puisque les trois cin- »  quièmes qui m'en sont demeurés étaient immobilisés
-ë pour au moins deux ans dans la fondation de la même
+annexe à la présente résolution.
+4 3 Péguy écrit (page 15): « Ma finance était épuisée
+(au mois de décembre 1899), puisque les trois cin- » quièmes qui m'en sont demeurés étaient immobilisés
+pour au moins deux ans dans la fondation de la même
 h. Société Nouvelle. » Cette phrase donne à entendre que
 Péguy avait, lorsque la librairie fondée par lui s'est
-î transformée en société, perdu les deux cinquièmes de
+transformée en société, perdu les deux cinquièmes de
 son avoir, qu'un capital restant, égal aux trois cinquièmes, avait été engagé dans la nouvelle société et y
-était, pour une cause laissée obscure, rendu indisponible pour un long délai. Un rapport, lu à l'assemblée
+était, pour une cause laissée obscure, rendu indisponible pour un long délai. Un rapport, à l'assemblée
 du 10 janvier dernier, a rappelé, Péguy présent et sans
 observation contraire, que les actions de Péguy et de
 son prête-nom Bellais lui ont été reconnues « en repré-
 sentation d'apport » — et non contre versement de
-capital effectif — ; que « ces apports ont été établis dans
-des circonstances très particulières »; qu' « ils ont été
+capital effectif —; que « ces apports ont été établis dans
+des circonstances très particulières qu' « ils ont été
 fixés à la somme que Péguy, d'après sa déclaration (en
 juillet 1899), avait dépensée dans la librairie avant la
-Le constitution de la Société »; (la Société en outre pre-
+Le constitution de la Société (la Société en outre pre-
 à nait à sa charge un passif considérable). Ce même
 rapport rappelait, d'autre part, que les actions d'apport
 étaient frappées d'inaliénabilité par une disposition
@@ -163,10 +163,10 @@ Péguy et les circonstances du retrait opéré par lui,
 aucune mention n'est faite ni annoncée dans le cahier
 dont le bon à tirer est du 28 janvier;
 L'assemblée décide que la présente résolution avec
-ses annexes (A et B) sera envoyée à Péguy pour être
+ses annexes et sera envoyée à Péguy pour être
 insérée dans les Cahiers de la Quinzaine.
 
-Extrait du rapport lu à l'Assemblée du 10 janvier 1901
+Extrait du rapport à l'Assemblée du 10 janvier 1901
 
 et résumé des explications orales, données à la suite,
 
@@ -190,7 +190,7 @@ ment analytique pour les discours d'orateurs étrangers,
 
 à qui ne pourraient, en ce cas, être notés que d'après la tra-
 
-Û duction forcément abrégée et analytique des interprètes.
+duction forcément abrégée et analytique des interprètes.
 
 Nous répondimes donc au Comité général que l'orga-
 
@@ -222,11 +222,11 @@ avait demandé si nous ne jugions pas préférable de la
 substituer au compte rendu analytique; et que, sur nos
 
 explications renouvelées, la commission déléguée par
-ka le nouveau Comité général avait reconnu que le compte
-‘4 rendu analytique, élaboré comme il a été dit, méritait
+le nouveau Comité général avait reconnu que le compte
+rendu analytique, élaboré comme il a été dit, méritait
 seul la reconnaissance officielle.
 
-Extrait du rapport lu à l'Assemblée générale du 18 janvier 1900. — Au nom du Conseil d'administration.
+Extrait du rapport à l'Assemblée générale du 18 janvier 1900. — Au nom du Conseil d'administration.
 Il s'est produit il y a quelques jours un incident qui a
 été notre seul grand chagrin au cours de ces cinq mois.
 . Nous devons nous expliquer là-dessus sans réticences.
@@ -240,7 +240,7 @@ le souci du lendemain, le repos dont il avait besoin, et -
 de s'occuper de- ses travaux personnels. Il y a près de
 deux mois, lorsqu'il s'agit pour nous de contracter
 nouveau avec le Mouvement socialiste, nous fimes
-appel à Péguy : il était indispensable que nous eussions
+appel à Péguy: il était indispensable que nous eussions
 en temps utile les renseignements techniques qui nous
 permettraient, soit en nous adressant à un autre imprimeur, soit en demandant à l'imprimeur du Mouvement
 socialiste de nous faire de meilleures conditions, de
@@ -249,13 +249,13 @@ moins onéreuses. Péguy essaya de prendre pour nous
 ces renseignements; puis, au bout de huit jours, nous
 écrivit qu'il se sentait inapte à faire ce que nous attendions de lui, et qu'il renonçait à ses fonctions. Nous ne
 comprîmes rien à cette démission que rien ne motivait,
-et qui nous parut déraisonnable et insensée., J'ai su
+et qui nous parut déraisonnable et insensée., J'ai
 depuis que, dès ce moment, il estimait que sa place
 à n'était plus dans une maison qui n'était plus ce qu'il
 avait espéré qu'elle serait et qui prenait l'allure d'une
 simple maison de commerce. Je n'arrive pas à comprendre ce grief. Si le mot « commercial » veut dire que
 Von cherche, par tous les procédés usuels, à réaliser les
-_ gains les plus rapides et les plus considérables, le
+gains les plus rapides et les plus considérables, le
 reproche est absurde, puisque trop manifestement
 aucun de nous ne poursuit son intérêt personnel, et
 puisque, comme cet exposé vous l'a prouvé, notre administration a usé de méthodes honnêtes et faiblement
@@ -284,20 +284,20 @@ tion, le jeudi suivant, d'une proposition urgente. Le
 même jour ou le lendemain on nous dit qu'il allait publier un périodique, dont le premier numéro paraîtrait
 l'un des premiers jours de janvier, que ce périodique
 aurait la même impression, le même caractère typographique, le même prix, et, à des dates différentes,
-la même périodicité que Le Mouvement socialiste. I] vint
+la même périodicité que Le Mouvement socialiste. vint
 donc le jeudi suivant. Il nous dit qu'on le sollicitait de
 faire un périodique d'information qui donnerait, sous la
 forme authentique du document, les faits politiques
-essentiels de la quinzaine : que le besoïn d'un périodique
+essentiels de la quinzaine: que le besoïn d'un périodique
 de ce genre était urgent; que lui-même d'autre part
 avait hâte de pouvoir dire enfin ce qu'il pensait et pu-
- blier ce qu'il écrirait, sans avoir à craindre les refus
-ou les demandes d'atténuations et de coupures de rédactions trop prudentes ; qu'il s'était tu perdant la durée
+blier ce qu'il écrirait, sans avoir à craindre les refus
+ou les demandes d'atténuations et de coupures de rédactions trop prudentes; qu'il s'était tu perdant la durée
 du congrès, qu'il avait hâte de parler librement et de se
 révolter; qu'il ne voulait pas des contraintes hypocrites
 ni des tyrannies ouvertes ou occultes; que dès le premier numéro il dirait la vérité, pièces en mains, sur le
 cas Liebknecht, et, dans le second numéro, sur le cas
-Vaillant-Millerand ; que toutes les mesures étaient
+Vaillant-Millerand; que toutes les mesures étaient
 prises, que les frais de fabrication seraient couverts par
 des cotisations volontaires et par des abonnements,
 qu'il ne redoutait rien et ne demandait rien; — et il
@@ -313,19 +313,19 @@ quinzaine; qu'il faudrait donc choisir; que son choix,
 à à en juger par les exemples qu'il nous avait cités, se
 porterait sur tout ce qui divise, sur tout ce qui irrite;
 que cette ligne de conduite était en contradiction ouverte
-. _ avec celle sur laquelle nous étions d'accord lorsque
-nous étions unis ; que nous avions soutenu, dans la mesure où nous soutenons quelque chose, la politique
-Ë d'accord et d'union à tout prix ; que la discipline accep-
+. avec celle sur laquelle nous étions d'accord lorsque
+nous étions unis; que nous avions soutenu, dans la mesure où nous soutenons quelque chose, la politique
+d'accord et d'union à tout prix; que la discipline accep-
 tée comme nécessaire n'est ni de l'obéissance ni de la
 contrainte; qu'il entreprenait avec des intentions pures
 une œuvre qui aurait pour effet de jeter les hommes
-moins purs ou moins solides à l'anarchie violente ; que
+moins purs ou moins solides à l'anarchie violente; que
 s'arroger ce droit de justicier sur les personnes et sur
 à les choses, c'était pratiquer un personnalisme et un
 aristocratisme dont j'avais horreur, et que, pour ma
 part, je serai toujours hautement hostile à une œuvre
 entreprise dans cet esprit. J'ajoutai que c'était une
-É _ folie que de se lancer ainsi, sans ressources assurées,
+É folie que de se lancer ainsi, sans ressources assurées,
 dans une aventure périlleuse et coûteuse, et dont les
 chances de succès immédiat étaient ou nulles ou très
 faibles. Je lui dis encore tout ce que ceux qui l'aiment
@@ -336,13 +336,13 @@ répondit que c'était tout réfléchi, qu'il ne reviendrait
 pas sur sa résolution, et il partit.
 Votre Conseil d'administration s'est trouvé unanime
 partager mon sentiment. Nous avons fait ce que nous
-avons pu pour l'empêcher de nous quitter. Il était libre de
+avons pour l'empêcher de nous quitter. Il était libre de
 partir, il est parti, et il s'est jeté, en toute indépendance,
 
 neuvième cahier de la deuxième série
 dans une aventure qui n'engage que lui. Nous tenions
 
-à vous dire tout simplement les motifs de notre con- .
+à vous dire tout simplement les motifs de notre con-.
 duite dans une affaire qui a été pour nous une sérieuse
 souffrance. Et nous tenions à dire tout haut à ceux qui
 
@@ -360,11 +360,11 @@ sous cette réserve que je n'ai pas dit pour ma défense
 le cinquième de ce que je pouvais dire, que je n'aipas
 produit le cinquième de ce que je pouvais produire.
 
-Question préalable : Je prie nos abonnés, devant qui
+Question préalable: Je prie nos abonnés, devant qui
 je suis responsable et comptable, je prie le public de
 vouloir bien noter que cette résolution est scrupuleusement anonyme. La signature de M. Mario Roques au
 
-j bas de la convocation officielle n'implique pas ofliciellement que M. Roques a voté l'approbation du rapport.
+bas de la convocation officielle n'implique pas ofliciellement que M. Roques a voté l'approbation du rapport.
 La signature de M. Paul Fauconnet au bas de la com-
 munication officielle et courtoise n'implique pas non
 plus officiellement que M. Fauconnet a voté l'approbation du rapport. Ni le secrétaire du conseil d'administration ni le président de séance de l'assemblée
@@ -387,7 +387,7 @@ Mais il est quelqu'un que je défendrai tout de suite.
 Mon préte-nom Bellais était mon ami quand je fondai
 2) la librairie. Comme j'étais alors boursier d'études en
 A Sorbonne, je ne pouvais pas fonder la maison sous mon
-à ? nom. La plupart de mes amis étaient aussi des univer-
+à? nom. La plupart de mes amis étaient aussi des univer-
 sitaires. Mon ami Georges Bellais me donna tout ce
 Le qu'il avait, son nom, beaucoup de son temps, beaucoup
 po) de pas et démarches. Il signa des baux et tout ce que
@@ -395,8 +395,6 @@ je voulus. Quand il fut le maître dans ma maïson, il
 négligea de m'en chasser. Car il n'était pas hégélien.
 . Je tiens à l'en remercier publiquement.
 Mon ami Georges Bellais me charge amicalement de
-Ë demander à la Société Nouvelle que son nom ne figure
+demander à la Société Nouvelle que son nom ne figure
 plus dans la raison sociale, parce que la maison n'est
 plus la même.
-
----

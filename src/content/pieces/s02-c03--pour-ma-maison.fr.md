@@ -23,13 +23,13 @@ fice ne vient que des sous-produits, ainsi qu'il arrive pour
 En journalisme, le sous-produit, c'est la publicité.
 .… Contrairement à l'opinion courante, ce ne sont pas les
 journaux à bon marché qui ont le plus besoin des annonces
-pour équilibrer leur budget. Le Petit Journal, le Petit \
-Parisien, journaux à un sou, gagnent sur leur papier. Par \
+pour équilibrer leur budget. Le Petit Journal, le Petit
+Parisien, journaux à un sou, gagnent sur leur papier. Par
 
 troisième cahier de la deuxième série
 contre, voici le compte d'exploitation du Figaro pour l'exercice 1896
 Total des recettes. Irma 4.543.468
-Fabrication du journal : rédaction, papier, impression, affranchissement, ete. : + . : 2.503.526
+Fabrication du journal: rédaction, papier, impression, affranchissement, ete.:.: 2.503.526
 Ainsi, Le Figaro, journal à trois sous, ne réalise même
 pas, sur la vente et l'abonnement, de quoi subvenir à la
 moitié de ses frais généraux. Le surplus, et la totalité du
@@ -56,15 +56,15 @@ mal vient donc bien pour une grande part, comme
 
 les socialistes l'ont signalé, de ce que la presse, elle
 aussi, est soumise au régime de la concurrence
-bourgeoise : « La façon mercantile d'envisager les
-choses, arépondu M. Georges Renard, devait triompher, là comme ailleurs, dans une société où tout se
+bourgeoise: « La façon mercantile d'envisager les
+choses, arépondu M. Georges Renard, devait triompher, comme ailleurs, dans une société où tout se
 vend et s'achète, où tout, depuis le bras jusqu'au
 cerveau de l'homme, est devenu marchandise. »
 
 Le mal vient, pour une grande part aussi, et
 l'Union pour Faction morale Y'a signalé plus vigoureusement que la plupart des autres consultés, de ce
 que la conscience publique est faussée parce que
-beaucoup de consciences individuelles sont faussées (x) : « La source du mal est plus loin que là où
+beaucoup de consciences individuelles sont faussées (x): « La source du mal est plus loin que où
 la main de l'État peut atteindre; elle est dans les
 consciences. Espérons que celles-ci se reprendront
 et que le remède sortira de l'excès même du mal...
@@ -74,9 +74,9 @@ bon augure. Récemment, les membres ouvriers de
 la commission consultative de la Bourse du Travail
 ont fait fermer la salle de lecture des journaux quo-
 
-() Relire dans la Revue Socialiste du 15 juillet 1897 l'excellent article
+Relire dans la Revue Socialiste du 15 juillet 1897 l'excellent article
 de Charles Henry sur l'Union pour l'Action morale et le Socialisme. —
-Note de Pierre Deloire. -'
+Note de Pierre Deloire.
 
 troisième cahier de la deuxième série
 tidiens, parce qu'il en résultait, pour les lecteurs,
@@ -101,7 +101,7 @@ M. Georges Renard propose, entre autres, le
 « 1° Fonder des journaux qui ne seraient plus
 aux mains d'un financier ou d'actionnaires anonymes, mais qui, soutenus par les cotisations régu-
 
-() Il y a un intérêt à relire ce que tout le monde écrivait de
+Il y a un intérêt à relire ce que tout le monde écrivait de
 l'Angleterre il y a trois ans.
 
 lières d'un parti ou d'un groupe d'hommes se connaissant et professant les mêmes opinions, seraient
@@ -126,15 +126,15 @@ aux socialistes et aux bouïgeois convertissables,
 car un journal est un moyen d'enseignement, et on
 doit donner l'enseignement.
 
-Ce journal serait nourri par les socialistes ; ceux-
+Ce journal serait nourri par les socialistes; ceux-
 
-@) C'est-à-dire : tout article mercantile, et non, bien entendu, tout
+C'est-à-dire: tout article mercantile, et non, bien entendu, tout
 
 (2) On pardonnera cette expression à l'inadvertance de notre ami.
 
 troisième cahier de la deuxième série
 
-ci prendraient sur leur salaire, socialiste ou bour-
+prendraient sur leur salaire, socialiste ou bour-
 
 geois, pour assurer le salaire socialiste des socialistes qui travailleraient au journal.
 
@@ -147,12 +147,12 @@ un salaire socialiste, c'est-à-dire entre eux un salaire
 pour le bien du journal.
 
 Ce journal serait exactement socialiste en son
-texte : on n'y verrait aucune réclame commerciale.
+texte: on n'y verrait aucune réclame commerciale.
 
-Ce journal serait un : on n'y verrait pas, dans le
+Ce journal serait un: on n'y verrait pas, dans le
 même numéro, en première page un article exact
 contre les courses et en quatrième page les résultats
-complets et les pronostics des mêmes courses ; on
+complets et les pronostics des mêmes courses; on
 n'y verrait pas en première page des articles exacts
 contre les théâtres de passe et en quatrième page,
 fidèlement insérées, les communications de ces
@@ -160,8 +160,8 @@ fidèlement insérées, les communications de ces
 Ce journal ne serait pas rédigé par des journalistes professionnels, mais par les hommes de chaque
 métier; les moissonneurs y parleraient du blé, les
 
-maçons de la bâtisse ; les professeurs y parleraient
-de l'enseignement et les philosophes de la philosophie ; on ne serait pas journaliste, on serait, comme .
+maçons de la bâtisse; les professeurs y parleraient
+de l'enseignement et les philosophes de la philosophie; on ne serait pas journaliste, on serait, comme.
 on disait, un honnête homme qui aurait un métier
 
 et qui, au besoin, écrirait de ce métier dans le
@@ -171,7 +171,7 @@ espérances même.
 
 Enfin et surtout ce journal serait un journal de
 famille, s'adressant d'abord aux femmes et aux
-enfants, sans qui toute œuvre est vaine ; et il garderait envers tous ses lecteurs la très grande révé-
+enfants, sans qui toute œuvre est vaine; et il garderait envers tous ses lecteurs la très grande révé-
 rence, car elle est due aussi aux grands enfants.
 
 Quand Pierre Deloire écrivit cet article, on peut dire
@@ -231,15 +231,13 @@ Dans la cité socialiste les biens sociaux seront
 bien administrés.
 
 Les socialistes veulent remplacer autant que possible le gouvernement des hommes en société par
-l'administration sociale des choses, des biens : En
+l'administration sociale des choses, des biens: En
 effet, les hommes étant variés indéfiniment, ce qui
 est bon d'ailleurs, on ne peut pas organiser le gouvernement des hommes selon une exacte méthode
-scientifique ; tandis que, les biens n'étant pas indé-
+scientifique; tandis que, les biens n'étant pas indé-
 finiment variés, on peut organiser selon une exacte
-méthode scientifique l'administration des biens. Or
+méthode scientifique l'administration des biens.
 la plupart des difficultés, des souffrances qui
 paraissent tenir au mauvais gouvernement des
 troisième cahier de la deuxième série
 hommes tiennent à la mauvaise administration des
-
----

@@ -7,18 +7,18 @@ author: emile-moselly
 isAvertissement: false
 wordCount: 22152
 ---
-paraissant vingt fois par an LT
+paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nous mettons ce cahier dans le commerce; nous le
-M | vendons un franc
+vendons un franc
 
 l'aube fraternellte
 
 Je vous adresse quelques papiers que j'ai tout lieu de
 croire assez intéressants. C'est le journal d'un jeune
 dispensé de Farticle 23. Voici comment il est tombé dans
-mes mains :
+mes mains:
 
 Il y a deux mois, on amenait dans mon service à
 Phôpital militaire de X.. un soldat du 33° bataillon
@@ -27,7 +27,7 @@ la montagne, par un temps assez dur, il avait contracté
 une pneumonie, qui, dans une constitution appauvrie
 par le surmenage intellectuel, et déjà entamée par suite
 
-| Il faut vous dire que dans les hôpitaux, notre attitude à nous, médecins, est assez différente de la hauteur voulue des majors de corps de troupe. Tout en faisant la part des tempéraments et des humeurs particulières, il faut bien reconnaître que, n'ayant pas à faire
+Il faut vous dire que dans les hôpitaux, notre attitude à nous, médecins, est assez différente de la hauteur voulue des majors de corps de troupe. Tout en faisant la part des tempéraments et des humeurs particulières, il faut bien reconnaître que, n'ayant pas à faire
 face aux exigences de la discipline et à déjouer les
 subterfuges des fricoteurs, nous aimons à nous relâcher
 
@@ -51,25 +51,25 @@ Il n'avait plus de famille, ses parents étaient morts
 quand il était au collège, il ne lui restait qu'un vieil
 oncle, dans le midi, célibataire indifférent et médiocre,
 propriétaire de vignobles et grand chasseur, avec qui
-il n'avait pas deux idées en commun. {
-Il ne se faisait pas d'illusion sur son cas. Je ne vous |
+il n'avait pas deux idées en commun.
+Il ne se faisait pas d'illusion sur son cas. Je ne vous
 dirai pas qu'il attendit la mort avec la sérénité des
 sages antiques, discutant avec moi de l'immortalité de
 l'âme. Il était trop simple pour vouloir se hausser jusqu'à ce stoïcisme.
 Les premiers moments où il vit nettement l'anéantissement prochain furent pénibles et même terribles. Il
-était pris d'un grand frisson à la pensée de la destruc- {
-tion totale et ses mains maigres se Cramponnaient aux |
+était pris d'un grand frisson à la pensée de la destruc-
+tion totale et ses mains maigres se Cramponnaient aux
 choses avec une énergie farouche et des gestes de
 
-; k révolte. Les instants les plus durs étaient ceux où on le
+; révolte. Les instants les plus durs étaient ceux où on le
 
-| transportait sur un fauteuil d'osier dans une longue
+transportait sur un fauteuil d'osier dans une longue
 
-_ galerie vitrée qui entoure le premier étage du bâtiment.
+galerie vitrée qui entoure le premier étage du bâtiment.
 
 C'étaient de claires journées de septembre; les mon-
 
-$ tagnes à l'horizon étaient bleues, la lumière d'automne
+tagnes à l'horizon étaient bleues, la lumière d'automne
 coulait doucement sur les arbres en clartés blondes, et
 des vignes se teintaient de pourpre. Dans la cour, des
 malades en longue redingote grise, coiffés d'un bonnet
@@ -89,7 +89,7 @@ s'était détachée dans un souffle, tombant dans le néant
 d'une chute lente et silencieuse comme ces fils de la
 Vierge qu'il regardait longuement onduler dans le jour
 
-| tiède, aux derniers moments de son repos solitaire dans
+tiède, aux derniers moments de son repos solitaire dans
 la longue galerie vitrée.
 
 J'ai trouvé parmi ses effets dans son paquetage avec
@@ -104,8 +104,8 @@ lambeaux et se détachent. Vous remarquerez que la
 
 couverture en est salie par un assez long séjour que le
 soldat X... fit au camp d'Eaubonne. Il plut beaucoup
-cette année-là ; comme ils étaient logés sous la tente,
-leurs effets placés sur le sol, à la tête de leurs pail- :
+cette année-là; comme ils étaient logés sous la tente,
+leurs effets placés sur le sol, à la tête de leurs pail-:
 lasses, à l'endroit où la toile de la tente s'accroche aux
 piquets, étaient trempés par l'averse. Le petit carnet
 dut recevoir sa part des eaux du ciel, et faire un assez
@@ -124,12 +124,12 @@ grande chambre sous les combles, traversée par la cloison du bat-flanc qui mont
 bien tirées, bien carrées au bout, sur les pieds de fer
 des châlits. Sur la planche, les effets des hommes sont
 enveloppés dans des mouchoirs de couleurs éclatantes,
-où sont dessinés des canons, des armes. Pas d'autre :
+où sont dessinés des canons, des armes. Pas d'autre:
 mobilier qu'une table, une cruche de fer-blanc, une
 glace fixée au mur par des vis. C'est froid et plein
 d'ordre, cela rappelle la prison ou la cellule monastique, immensément agrandie.
 
-| Sur des pancartes, les écritures du fourrier contournent leurs paraphes compliqués, les arabesques
+Sur des pancartes, les écritures du fourrier contournent leurs paraphes compliqués, les arabesques
 savantes de la bâtarde.
 
 Les fenêtres sont mansardées. Je m'approche.
@@ -146,7 +146,7 @@ taches noires, disposées en rangs symétriques. Dans
 la ramure grêle des peupliers plus proches, des masses
 enchevêtrées de branchettes se détachent, ce sont les
 nids de corbeaux et de pies qui sont invisibles l'été,
-dans les feuilles. .
+dans les feuilles..
 
 Vers le couchant, si près de moi, que je pense
 presque la toucher à bout de bras, une cathédrale
@@ -160,11 +160,11 @@ l'orgue, elle amusera mes yeux par ses clartés matinales, son essor dans l'air 
 confuse, son dessin hardiment simplifié, dans les soirs
 
 Au pied, dans l'ombre humide des arcs-boutants,
-un petit jardin public, sous des allées de tilleuls, |
-exhale un parfum d'ennui. |
+un petit jardin public, sous des allées de tilleuls,
+exhale un parfum d'ennui.
 
 Nous sommes dans la chambre une vingtaine de nouveaux venus. Des blouses, des vestons, des gilets de
-laine, des casquettes de loutre, et des melons clairs; et |
+laine, des casquettes de loutre, et des melons clairs; et
 sur le plancher, dans un curieux déballage, des valises
 de toute couleur, de toute taille; un Auvergnat même
 se promène d'un pas lourd, tenant sous son bras une
@@ -173,24 +173,22 @@ provisions de route. Tous stupides, mornes, effarés.
 
 Dès que j'ai le dos tourné, je devine derrière moi un
 mouvement de curiosité. On cherche à me connaître
-je suis différent, avec mes mains blanches, mes vête- |
+je suis différent, avec mes mains blanches, mes vête-
 
-10
+ments plus soignés. Maître d'école, employé ou sémina-
 
-| ments plus soignés. Maître d'école, employé ou sémina-
-
-j riste ? Une curiosité ironique se lève sur mes pas.
+riste? Une curiosité ironique se lève sur mes pas.
 
 ; Voilà mon lit, ma place sur la planche à paquetage,
 mes crochets dans le bat-flanc, en face de la fenêtre
-étroite. Deux mètres carrés où va tenir ma vie perdant
+étroite. Deux mètres carrés où tenir ma vie perdant
 de longs mois.
 
 Déjà mon ancien s'est emparé de moi. Cest un
 ouvrier serrurier, un visage franc, énergique. Je crois
 que nous ferons bon ménage tous les deux. Quand
 il a appris que j'étais étudiant, un rire entendu a plissé
-ses lèvres : Alors un an à faire. Ça se tirera, va, mon
+ses lèvres: Alors un an à faire. se tirera, va, mon
 
 Le soir tombe. Le ciel bas et noir crève soudain, la
 pluie cingle les carreaux et la rafale siffle dans les longs
@@ -206,11 +204,11 @@ mauvaises vous frôlent ces soirs-là.
 J'ai la gorge trop serrée pour pouvoir manger et je me
 couche, aussitôt la lampe allumée.
 
-| Mon ancien a relevé les planches du châlit, les a mises
+Mon ancien a relevé les planches du châlit, les a mises
 en bateau, pour que je ne tombe pas la nuit. — Il se
-penche sur moi : « Tiens, voilà un foulard, les nuits sont
+penche sur moi: « Tiens, voilà un foulard, les nuits sont
 fraîches, sous les combles. Mets-le autour de ton cou. »
-C'est dit d'une voix rude et maladroite, mais cela me va
+C'est dit d'une voix rude et maladroite, mais cela me
 
 l'Aube fraternelle
 
@@ -220,17 +218,17 @@ remercie gauchement, mais j'ai la sensation très nette
 qu'il me comprend, et que mes paroles en disent plus
 qu'elles n'expriment.
 
-Des pas sonnent sur le plancher. On va on vient, puis
+Des pas sonnent sur le plancher. On on vient, puis
 le calme descend dans la pièce où montent des soufiles.
 Le lit est étroit et dur, j'ai peur de me remuer, de glisser.
 Je flotte dans un demi-sommeil, d'où me tirent des sursauts brusques, qui font dans ma conscience des éveils
 brutaux et rapides. Je me débats contre le passé qui
 revient en lambeaux de rêves, des visions tournoient
-brillantes ou effacées, des phrases décousues : la figure
+brillantes ou effacées, des phrases décousues: la figure
 blonde et fine, d'un de mes maîtres sous son binocle
 d'or, dans un couloir vitré, les moulages des marbres
 d'Égine, les grands quais, des bois, des pans de fleuve
-aux moires brillantes de soleil ; les pignons aïgus de la
+aux moires brillantes de soleil; les pignons aïgus de la
 
 Tout à coup, une sonnerie dans la cour du quartier
 m'éveille tout à fait. J'écoute, le cœur battant.
@@ -247,7 +245,7 @@ emportés, sur quelque monstrueux vaisseau, poussé par
 des souflles noirs, dans l'épouvante, et que les grands
 oiseaux de mer jettent leurs rauques clameurs dans le
 vent, et frôlent de leurs ailes immenses, ouvertes dans
-la nuit, les flancs du navire. |
+la nuit, les flancs du navire.
 
 Après tout, elle n'est pas si différente, cette vie, de
 ma vie passée, au moins pour le confort et le luxe. La
@@ -259,27 +257,27 @@ Mais si le dehors était pauvre, avec quel soin jaloux
 je parais ma vie intérieure, je la rehaussais de sensations artistiques.
 
 Vous souvient-il, à mon ami lointain, de cette cour du
-musée où sous les platanes et les eucalyptus nous éprouvions un plaisir délicat à relire du Sophocle ? Vous souvient-il du bronze florentin, de l'Hermès gracile, dont
+musée où sous les platanes et les eucalyptus nous éprouvions un plaisir délicat à relire du Sophocle? Vous souvient-il du bronze florentin, de l'Hermès gracile, dont
 les membres fins se mêlaient à la chevelure d'un saule
 pleureur, et du sarcophage transformé en fontaine, dont
 l'eau tombait dans une vasque, parmi des iris et des
 glaïeuls. Les bruits du dehors mouraient sur le seuil et
 Vadieu d'Antigone à la lumière du soleil n'était pas profané par les rumeurs de la rue. Sous le promenoir en
-arcades, des monuments funéraires répétaient pieusement la même inscription : Diis manibus! Nous marchions dans la cendre des morts !
+arcades, des monuments funéraires répétaient pieusement la même inscription: Diis manibus! Nous marchions dans la cendre des morts!
 
 C'étaient les galeries, où nous allions admirer l'étoffe
 somptueuse d'un brocard, dans un tableau de Véronèse,
 leffrayante rigidité d'un cadavre dans une toile de Zurbaran, ou bien encore l'immense fresque qui déroulait
 sur la mer bleue de Sicile la blanche procession des
 
-l'Aube fraternelle |
+l'Aube fraternelle
 cavaliers, et les membres grêles d'un jeune pâtre jouant
 de la syrinx parmi ses chèvres.
 La nuit venue, nous allions sur les quais, le long de
 l'eau noire qui roulait de l'argent et de l'or. — Nous
 aimions les mêmes poètes que nous lisions dans de
 d'espoir. — Nous recherchions les rythmes subtils et les
-| vocables bizarrement somptueux. — La poésie était une
+vocables bizarrement somptueux. — La poésie était une
 essence précieuse qui ne se vendait qu'en flacons de
 cristal taillés à facettes. — D'autres fois, nous mettions
 des tendresses ingénues, des voluptés adolescentes dans
@@ -287,28 +285,28 @@ la syntaxe rudimentaire de Verlaine.
 Nous méprisions le présent, la vie, dont nous ne comprenions pas l'âpre beauté. « Pas la couleur! oh rien
 que la nuance! » Dans les quartiers populeux, sonnaïit
 le tictac des métiers, et les ouvriers sortaient de l'usine,
-hâves et noirs. |
-Maintenant, il m'apparaît que cet orgueil était étroit |
-et naïf. Nous ignorions volontairement beaucoup de |
-choses. Aujourd'hui que je tourne mes regards en ;
-arrière, de la dure réalité où je vis, le passé m'apparaît |
-mesquin et toutes ses fines nuances se sont décolorées : |
+hâves et noirs.
+Maintenant, il m'apparaît que cet orgueil était étroit
+et naïf. Nous ignorions volontairement beaucoup de
+choses. Aujourd'hui que je tourne mes regards en;
+arrière, de la dure réalité où je vis, le passé m'apparaît
+mesquin et toutes ses fines nuances se sont décolorées:
 et ternies, au souffle impérieux et glacé du présent.
-Tant mieux. Les flots du large battent la tour d'ivoire. |
+Tant mieux. Les flots du large battent la tour d'ivoire.
 Et qui pourrait distinguer le chant des proses rythmées
 dans la grande clameur sonore qui monte du sein de
 l'océan, de l'océan où passent les voiles de ceux qui
-travaillent et qui souffrent! |
+travaillent et qui souffrent!
 
-Pêle-mêle curieux que celui de la chambrée. ;
+Pêle-mêle curieux que celui de la chambrée.;
 
-Toutes les classes de la société sont représentées ; il
+Toutes les classes de la société sont représentées; il
 y a des employés de bureau et des ouvriers d'usine, des
-laboureurs et des bourgeois. Les uns sont venus en :
+laboureurs et des bourgeois. Les uns sont venus en:
 bourgerons, les autres en sabots, les autres enfin avec
 des jaquettes ajustées et des cravates élégantes. Mais
 tous sont égaux, tous parlent la même langue joyeuse,
-chastement et naïvement obscène ; tous se ressemblent
+chastement et naïvement obscène; tous se ressemblent
 sous l'uniforme, et rien ne traduit plus au bout de
 
 quelques semaines la diversité d'origine.
@@ -318,19 +316,19 @@ installés des mineurs du Nord. Ce sont des colosses aux
 cheveux clairs, aux chairs blanches, à la peau décolorée
 par le travail dans l'obscurité sous la terre. Géants à la
 
-| voix rauque, ils déploient leurs membres avec lenteur,
+voix rauque, ils déploient leurs membres avec lenteur,
 s'attablent à la cantine devant des litres d'alcool qu'ils
 boivent dans de longues songeries. Les nuits de
 dimanche, quand ils rentrent de leurs bombances, ils
 terrifient les « bleus » par leurs menaces et c'est dans
 les ténèbres lourdes, un bruit de luttes, de châlits renversés, de planches qui sautent. De sang-froid ils sont
-patients et doux, lents et apathiques. .
+patients et doux, lents et apathiques..
 
 Les paysans ne manquent pas. Gauches, ayant peine
 à lever leurs semelles, où pèse toujours la glèbe du sol
 
 l'Aube fraternelle
-natal; de légers détails les révèlent : un couteau de
+natal; de légers détails les révèlent: un couteau de
 corne, attaché à la ceinture par une lanière de cuir, une
 chaîne de montre enrichie de grossières pendeloques,
 une blague en vessie de porc où ils serrent le gros tabac
@@ -345,39 +343,39 @@ bonté instinctive sans réflexion, où il y a la docilité et
 la douceur d'une bête de somme, d'un bon cheval qui
 ne donne pas de coups de pied. Très fiers de leurs
 pays, ce sont des querelles incessantes sur la supériorité de leurs terroirs. Ceux de la montagne blaguent
-ceux de la plaine, qui répondent et leur reprochent |
-leurs déserts plantés de sapins. Les « mangeurs de |
+ceux de la plaine, qui répondent et leur reprochent
+leurs déserts plantés de sapins. Les « mangeurs de
 lard » invectivent les goujons « de la rivière ». Ils ont
-des répliques amusantes, d'un pittoresque inventif, |
-comme en prodiguent les rivalités de races, piquées |
-au vif, où s'est étudié l'esprit des générations : « Chez
-vous, on vendange avec des perches », dit l'un. L'autre |
-répond : « Taïs-toi, chez vous les rats descendent du |
-grenier à la cave avec des larmes dans les yeux. » .
+des répliques amusantes, d'un pittoresque inventif,
+comme en prodiguent les rivalités de races, piquées
+au vif, où s'est étudié l'esprit des générations: « Chez
+vous, on vendange avec des perches dit l'un. L'autre
+répond: « Taïs-toi, chez vous les rats descendent du
+grenier à la cave avec des larmes dans les yeux. ».
 Parmi ces lourdeurs épanouies, passent, maigres,
-souples, des silhouettes d'ouvriers parisiens; museaux |
-chafouins, curieusement fouillés, la cigarette aux lèvres, |
+souples, des silhouettes d'ouvriers parisiens; museaux
+chafouins, curieusement fouillés, la cigarette aux lèvres,
 qui arborent leurs képis et leur donnent l'allure chapar-
 deuse de casquettes. Fins et sveltes, résistants comme
 des chats, ils ne sentent pas les fatigues, pleins d'ironie
 
-et de dédains pour les paysans, les « plants de choux »,
+et de dédains pour les paysans, les « plants de choux
 comme ils disent. C'est grâce à eux que l'idiome de la
 caserne se fleurit de vocables faubouriens, de termes
 d'argot, empruntés au langage des garçons bouchers et
-des camelots : on se chuchote « vingt-deux » dans les
+des camelots: on se chuchote « vingt-deux » dans les
 rangs, quand apparaît le profil de l'adjudant, les mots
-de « perle », « liquette », « lingue » sont d'usage courant
+de « perle « liquette « lingue » sont d'usage courant
 pour désigner du tabac, une chemise, un couteau.
 
 Rien n'est drôle comme de voir un lourdaud de la
-montagne, bûcheron ou sabotier, au cours d'une altercation avec un « Pantruchard », lui renvoyer une épithète
+montagne, bûcheron ou sabotier, au cours d'une altercation avec un « Pantruchard lui renvoyer une épithète
 du cru, avec une audace étonnée, et une fierté qu'il ne
 sait pas dissimuler.
 
 Et l'autre, le Parisien, se tourne vers la compagnie,
 la prend à témoin, commente d'un clignement d'yeux et
-d'un sourire :
+d'un sourire:
 
 Et d'autres enfin, Parisiens également, d'allure inquié-
 tante, avec de mystérieux tatouages sur la peau, sur
@@ -386,7 +384,7 @@ les pantes, nous font la démonstration familière, avec
 un foulard, du coup du père François, ouvrent avec un
 couteau les serrures les mieux fermées. Ceux-là nrattirent et me font peur.
 
-J'ai souvent entendu des camarades, sortis de la .
+J'ai souvent entendu des camarades, sortis de la.
 caserne, se plaindre de la promiscuité, des contacts
 salissants, des mauvaises odeurs. Je n'approuve pas
 une telle attitude; ce sont dégoûts de petite maîtresse.
@@ -398,7 +396,7 @@ l'Aube fraternelle à
 confortablement installés au fond de cinquante mille
 livres de rente, qui s'éprennent d'affection pour le
 peuple, par snobisme; c'est un sport nouveau, ils reconstruisent la société comme ils fabriquaient des proses
-décadentes : naïvement et subtilement. Il y aura dans
+décadentes: naïvement et subtilement. Il y aura dans
 la cité future, des meubles modern-style, des peintures
 de primitifs, des musiques symboliques.
 Je ne suis pas de ceux-là, et quand si nombreux sont
@@ -412,10 +410,10 @@ frôlé, coudoyé dans la rue, les prévenances de mes
 vain l'égalité était-elle inscrite aux murs des monuments
 publics, les mœurs, les convenances, les barrières
 élevées par l'orgueil et l'égoïsme m'en séparaient.
-Je l'ai vu représenté dans le roman, mais je sais bien
+Je l'ai représenté dans le roman, mais je sais bien
 que ces images sont fausses, embellies ou trivialisées,
 défofmées par la vision de l'artiste et les exigences de
-Pourtant j'ai lu Michelet : quel hymne en l'honneur
+Pourtant j'ai Michelet: quel hymne en l'honneur
 de son énergie, de sa bonté originelle. Le vieux Jacques
 Bonhomme, courbé sur les sillons lointains, enténébrés,
 lève sa face terreuse et vient vers moi, la cognée à la
@@ -425,11 +423,11 @@ et la souffrance marquent une empreinte douloureuse.
 Ah! ce pas lourd de glèbe, de rancune, comme il
 retentit dans l'histoire.
 
-ne . 11 me semble que j'aimerais à leur lire ces pages, au
+ne. 11 me semble que j'aimerais à leur lire ces pages, au
 Ê soir, à l'heure où l'on regrette l'âtre familial. Notre vie
 À à tous en serait agrandie; cela aussi me consolerait un
-| peu d'avoir à répéter, comme les Bretons, que le brigadier se reconnaît à deux larges galons de laine rouge
-sur chaque manche. — J'exprime ce désir sans orgueil, |
+peu d'avoir à répéter, comme les Bretons, que le brigadier se reconnaît à deux larges galons de laine rouge
+sur chaque manche. — J'exprime ce désir sans orgueil,
 sans froissement de vanité, simplement pour mettre
 entre nous un lien de plus, pour me rendre utile, pour
 leur apprendre à connaître leur passé, celui de leurs
@@ -441,28 +439,28 @@ de ses facultés pour le bien de tous.
 
 J'ai fait connaissance avec la petite ville.
 Resserrée dans son étroite ceinture de fortifications,
-les maisons s'entassent, se heurtent. Au bout de chaque |
+les maisons s'entassent, se heurtent. Au bout de chaque
 rue, on aperçoit le chemin de ronde, les ialus, les glacis
 du rempart avec leurs peupliers aux frêles branchages,
 si dénudés sous l'averse. Pas de bruits de voitures,
 quelques passants, et partout des uniformes, des ordonnances, des soldats en corvée. Des clochers tombent
 des volées de cloches, des clairons répondent. Curieux
-d'âmes, j'imagine des vies d'adolescents, austères, pensives de travail et d'étude dans ces murs d'aspect |
+d'âmes, j'imagine des vies d'adolescents, austères, pensives de travail et d'étude dans ces murs d'aspect
 monastique; loin de la séduction des formes et des
-couleurs, leurs lyrismes doivent être des ravissements |
+couleurs, leurs lyrismes doivent être des ravissements
 d'intelligence. La beauté des femmes y est un peu triste.
-D'ailleurs on le respire partout ce fin parfum de tris- |
+D'ailleurs on le respire partout ce fin parfum de tris-
 tesse, dans les cours aux pavés usés, où pousse l'herbe,
 dans le cloître aux ogives ajourées, ruineux, ravagé par
-le marteau des révolutions, le long des couvents où les |
+le marteau des révolutions, le long des couvents où les
 fenêtres de verre dépoli n'ont pas de regard. La petite
 ville, devenue une immense caserne, où roule chaque
 année le flot tumultueux, bientôt discipliné, des Fran-
 çais de toutes provinces, voit avec stupeur ses coutumes
 d'autrefois disparaître, ses vieilles familles se disperser,
-ses vieux hôtels s'emplir du va et vient d'étrangers. Et 1}
+ses vieux hôtels s'emplir du et vient d'étrangers. Et 1}
 lentement, avec un plaisir subtil d'imagination, je le
-cherche à découvrir, derrière sa banalité présente, sa Fi
+cherche à découvrir, derrière sa banalité présente, sa
 
 : physionomie lointaine, je la vois, telle qu'elle était
 cinquante ans en arrière, moitié ville et moitié village,
@@ -483,24 +481,24 @@ de louches clartés filtraient par les vitres ruisselantes
 de buées, on entendait des refrains obscènes. Sur les
 portes, des femmes en cheveux se tenaient, pauvres,
 
--  laïdes, sanglées de caracos, tapies dans les encoignures
+- laïdes, sanglées de caracos, tapies dans les encoignures
 comme des araignées sournoises. Leurs gestes d'invitation étaient rares, et hideux.
 
-Nous commençons à nous connaître, et à nous com- |
+Nous commençons à nous connaître, et à nous com-
 prendre, à la chambrée.
 
-Assis autour de la même table, à la cantine, tandis |
+Assis autour de la même table, à la cantine, tandis
 que le petit jour pénètre par les hautes vitres inclinées,
 que la clarté des lampes jaunit dans la vapeur et la
 fumée du tabac, nous nous rapprochons.
 
 Ils sont comme tous les hommes bons et méchants.
-Ils se font du mal entre eux, bêtement, sans le vouloir, |
-pour le plaisir des grosses farces. |
+Ils se font du mal entre eux, bêtement, sans le vouloir,
+pour le plaisir des grosses farces.
 
-L'un d'eux est-il puni, consigné au quartier, c'est une |
-joie de blaguer son ennui. On lui apporte des képis de |
-fantaisie, des pantalons rétrécis, des dolmans aux |
+L'un d'eux est-il puni, consigné au quartier, c'est une
+joie de blaguer son ennui. On lui apporte des képis de
+fantaisie, des pantalons rétrécis, des dolmans aux
 rouges éclatants, tandis que, mélancolique, il tire de sa
 charge ses effets de treillis pour descendre à l'ours.
 
@@ -508,21 +506,21 @@ Des rires mauvais se lèvent derrière lui.
 
 Le lendemain c'est au tour d'un autre.
 
-Ils n'ont pas eu le temps de cultiver leur délicatesse. ;
+Ils n'ont pas le temps de cultiver leur délicatesse.;
 
-Et parfois, ils ont comme un remords, ils se consolent |
+Et parfois, ils ont comme un remords, ils se consolent
 
 et se plaignent des injustices.
 
 Une chose surtout m'amuse, c'est de les entendre
-répéter à satiété, avec la même inflexion, seulement |
+répéter à satiété, avec la même inflexion, seulement
 variée par l'accent du terroir, la même plaisanterie.
 
-Oh! ces phrases stupides, ces refrains idiots, ces |
+Oh! ces phrases stupides, ces refrains idiots, ces
 scies désespérantes, ils les entendent avec une joie
 toujours épanouie, une admiration toujours renaissante,
 celui qui les lance a toujours l'air important de celui
-qui va en dire « une bien bonne ». Tout le jour, la grosse
+qui en dire « une bien bonne ». Tout le jour, la grosse
 bêtise passe et repasse dans l'air avec un bourdonnement obsédant de mouche qui se heurte aux vitres et À
 repart. C'est qu'ils sont jeunes et tout d'instinct, et que
 le comique n'est pas dans les choses qu'ils disent mais
@@ -539,14 +537,14 @@ cruches de fer-blanc des hommes qui vont au café sonnent dans les escaliers.
 Puis viennent les marches, les manœuvres, les exercices. Mon corps s'assouplit, mes membres prennent
 une vigueur et une élasticité inconnues. Des fièvres, des
 nervosités disparaissent en moi. Il y a des moments de
-souffrances ; traverser une plaine de neige avec la réverbération du soleil dans les yeux m'a révélé une forme
+souffrances; traverser une plaine de neige avec la réverbération du soleil dans les yeux m'a révélé une forme
 de supplice. Mais je reste calme et triste.
 
 Un être nouveau se développe en moi, et c'est avec
 une curiosité aiguë que j'en étudie la naissance. J'ai
 toujours été ainsi; terrifié par la peur des états identiques,
 tourmenté par de vagues nostalgies, hanté du désir
-d'autres choses. Je sais bien au fond que cet être nouveau est inférieur à l'ancien sous le rapport de l'intellectualité, que ce changement est un doux abrutissement :
+d'autres choses. Je sais bien au fond que cet être nouveau est inférieur à l'ancien sous le rapport de l'intellectualité, que ce changement est un doux abrutissement:
 n'importe, j'en jouis comme d'une incarnation nouvelle,
 
 l'Aube fraternelle
@@ -567,7 +565,7 @@ j'analyse curieusement, car j'étais loin de m'y attendre,
 mes sensations les plus rudimentaires, celles du corps
 humain qui peine, qui souffre, qui a faim, qui a froid,
 sont plus riches, plus étoffées, et m'ouvrent un champ
-d'études presque infini. II me semble que par elles
+d'études presque infini. me semble que par elles
 j'atteins les racines profondes de mon être, que je
 prends conscience d'une vie obscure, puissante, active,
 qui m'avait été voilée jusque-là.
@@ -595,7 +593,7 @@ approchent, car dans les couchers de soleil, des coulées
 de lumière plus chaude se déversent de l'horizon, et
 dans les nuits plus claires, passent des souflles tièdes.
 Peut-être déjà les violettes et les primevères s'ouvrentelles sous les haies, parmi les herbes séchées par
-l'hiver !
+l'hiver!
 
 Tous les jours, après la soupe du soir, il y a encore
 une heure de grand jour.
@@ -610,9 +608,9 @@ aboiïent, des fouets claquent.
 
 En face, au-dessus du colombier militaire, un vol de
 
-l'Aube fraternelle ‘
-pigeons tournoie. Ils vont et viennent en masse confuse, |
-d'un vol régulier et qui oscille comme un pendule. Leurs |
+l'Aube fraternelle
+pigeons tournoie. Ils vont et viennent en masse confuse,
+d'un vol régulier et qui oscille comme un pendule. Leurs
 ailes changent de couleur, selon qu'elles sont frôlées
 diversement par le reste de jour bleuâtre qui traîne
 dans l'espace. C'est une nuée d'un blanc éclatant, ou
@@ -621,59 +619,59 @@ rythme le chatoiement des couleurs.
 
 Crépuscules de mars, pleins de tendresses indécises.
 
-Les hommes, qui vous ont tant chantés, n'ont pu vous |
-profaner. Toujours vous engluez nos cœurs dans le |
-réseau de vos clartés, de vos odeurs errantes. Joies |
+Les hommes, qui vous ont tant chantés, n'ont vous
+profaner. Toujours vous engluez nos cœurs dans le
+réseau de vos clartés, de vos odeurs errantes. Joies
 banales, qui éveillent dans nos êtres un frisson toujours
 
 Un léger bruit de pas. C'est le soldat Finoche, qui
-rôdant par là me rejoint dans ma cachette.
+rôdant par me rejoint dans ma cachette.
 
 J'ai du perle, et des feuilles, il roule une cigarette,
 l'allume, s'allonge à mes côtés, les pieds dans l'herbe
 
-Finoche est un de ces « Pantruchards » qui m'inspirent |
-de la curiosité et de l'horreur. Il court des bruits sur |
-son compte ; des démêlés avec la justice, d'où il s'est
+Finoche est un de ces « Pantruchards » qui m'inspirent
+de la curiosité et de l'horreur. Il court des bruits sur
+son compte; des démêlés avec la justice, d'où il s'est
 tiré à force de ruse et de souplesse. J'ai compris vaguement, par sa conversation, qu'il avait mené à Paris la
 vie inquiète des bètes, toujours à l'affût d'une proie,
 traquées par de plus forts. Il a rôdé dans le désert
 d'hommes, talonné par les instincts éternels. Aussi sa
 conversation est-elle savoureuse, samimiqueexpressive,
-faite de gestes qui au cours de son récit, évoquent la |
+faite de gestes qui au cours de son récit, évoquent la
 terreur des pantes et les jolis jeux de main « des
-aminches ». Très curieux à étudier ; quand un gradé le
+aminches ». Très curieux à étudier; quand un gradé le
 rudoie, il a des grondements d'hyène, des fuites ram-
 
 pantes d'animal sournois qui est prêt à se redresser, à
 sortir les griffes, dès que le regard menaçant ne pèsera
 
-| plus sur lui. Jouissant confusément de la réprobation
+plus sur lui. Jouissant confusément de la réprobation
 qui l'entoure, il accentue sa canaillerie par fierté. Il
 montre avec mystère un tatouage qu'il a au pouce de
 la maïn droite, le même qu'ont les camaros du bat d'Af.
 Même que, quand il est arrivé ici, le major lui a dit,
-voyant le signe : « Allez à la Villette ; c'est là qu'on
+voyant le signe: « Allez à la Villette; c'est qu'on
 marque la viande. » Grâce à lui, je connais les ponts où
 l'on peut dormir à l'aise, ceux où les courants d'air
 sont si vifs, qu'on est forcé pour se réchauffer, de se
-coller des planches sur le dos, en guise de couverture ;
+coller des planches sur le dos, en guise de couverture;
 je connais les squares, où l'on peut rêvasser, loin des
 sergots, sans crainte d'être pris, et je sais que le plus
 mauvais est celui de Notre-Dame, derrière la Morgue;
 on y entre par la porte, et on arrive au Dépôt, tout de
-suite : c'est un traquenard. Enfin je sais les appellations mystérieuses qui désignent les représentants de la
-loï, la force armée, une dans ses manifestations redoutables ; je sais qu'il y a des flics, des bourriques, que
+suite: c'est un traquenard. Enfin je sais les appellations mystérieuses qui désignent les représentants de la
+loï, la force armée, une dans ses manifestations redoutables; je sais qu'il y a des flics, des bourriques, que
 les gendarmes sont les guignols, et les agents de la
 sûreté « les fils à Deibler »..
 
 Je le regarde près de'moi dans le reste de jour qui
 traîne sur le sol. Ses yeux gris luisent entre les paupières clignotantes; ses dents écartées sont jaunies
 par la chique, son visage flétri n'a pas d'âge, sur ses
-joues glabres se tordent quelques poils follets décolorés. Il a fini sa cigarette : soigneux, il prend le mégot,
+joues glabres se tordent quelques poils follets décolorés. Il a fini sa cigarette: soigneux, il prend le mégot,
 le met dans le fond de son képi qu'il replace sur sa
 
-Il me confie un cas de conscience :
+Il me confie un cas de conscience:
 
 — Crois-tu, vieux, la femme à Oscar, de la quatrième,
 
@@ -682,7 +680,7 @@ l'Aube fraternelle
 tu sais, le rouquin qui est de Charonne. Ben sûr;ila
 une femme en ville. Il a attrapé trente jours de grosse.
 Crois-tu qu'elle lui a envoyé quarante sous et un paquet
-de tabac. C'est tout. Ah là là, si j'avais une gonzesse
+de tabac. C'est tout. Ah là, si j'avais une gonzesse
 pas plus à la manque, c'que j'lui rentrerais dans la
 
 J'acquiesce vaguement. M. Nisard n'a-t-il pas dit
@@ -715,7 +713,7 @@ couvertures bien tirées, les quarts d'étain pendus aux
 - crochets du bat-flanc. Tandis que le vent fait rage au
 dehors, le poële ronfle. Dans l'atmosphère chaude où
 glissent les fumées du tabac, plane une impression de
-bien-être, de calme tiède et réconfortant : c'est presque
+bien-être, de calme tiède et réconfortant: c'est presque
 un foyer, une famille.
 
 La porte s'ouvre et dans une bouffée d'air froid, qui
@@ -723,22 +721,22 @@ fait filer la lampe, entre un nouveau-venu.
 
 On le salue de cris, d'exclamations joyeuses.
 
-C'est Émile! « Tiens, comment ça va, le pays ? »
+C'est Émile! « Tiens, comment va, le pays? »
 
-| Il s'approche, dans un grognement, prend en passant une poignée de feu, et se dirige vers son lit, maussade.
+Il s'approche, dans un grognement, prend en passant une poignée de feu, et se dirige vers son lit, maussade.
 
 Son calot est rabattu jusqu'aux oreilles, le col de sa
 
 l'Aube fraternelle
 capote remonté jusqu'aux yeux. A peine entrevoit-on
-un coin de sa face bouffie et luisante ; il souffle bruyamment, comme une bête à sa crèche. Sur le drap noir
+un coin de sa face bouffie et luisante; il souffle bruyamment, comme une bête à sa crèche. Sur le drap noir
 élimé, taché de graisse, de cambouis, des flocons de
 neige achèvent de fondre, coulent, une flaque d'eau
 s'étend à ses pieds.
 
-Il se déshabille ; son bourgeron de toile, par dessous,
+Il se déshabille; son bourgeron de toile, par dessous,
 est trempé et colle à ses épaules. Il marmotte des
-choses confuses entre ses dents : « Cochon de métier ».
+choses confuses entre ses dents: « Cochon de métier ».
 
 Je le vois mieux. Il est gras à lard, ses petits yeux
 aux cils pâles sont noyés dans la panne- qui matelasse
@@ -750,22 +748,22 @@ Les anciens nous renseignent.
 C'est un Vosgien. Quand il vint ici, les premiers
 temps, il étonna tout le monde par sa voracité, il
 engloutissait une grande terrine de rata. Jamais on n'a
-pu rien en faire; il ne sait même pas marcher au pas :
+rien en faire; il ne sait même pas marcher au pas:
 de garde à l'arsenal, il n'a pas rendu les honneurs au
 général, qu'il prenait pour un pompier. Son plaisir est
 d'aller dans la cour, de prendre des pierres et de les
 jeter loin, si loin qu'on ne saurait croire. On lui fait
 chanter des chansons, danser des danses, et les
-hommes des autres chambrées viennent voir le spectacle. Il était parti dans un fort, sans doute qu'on Pa
+hommes des autres chambrées viennent voir le spectacle. Il était parti dans un fort, sans doute qu'on
 fait redescendre ce soir.
 
 Je comprends. Bûcheron, segard, ou pâtre des hautes
 chaumes, habitué à vivre avec ses vaches dont les clarines sonnent là-haut, dans l'air vif, sur les prés tapissés de gentianes drues ‘et d'anémones larges comme
-des nénuphars, il n'a pu plier son corps indolent et ses
+des nénuphars, il n'a plier son corps indolent et ses
 
 À membres épais aux gymnastiques compliquées, son
 
-$ âme rudimentaire aux mécanismes de la discipline.
+âme rudimentaire aux mécanismes de la discipline.
 Quand les horions ont plu sur son échine, il s'est
 enfermé dans un entêtement patient et robuste, comme
 les bêtes qu'il rentrait le soir dans les granges.
@@ -780,17 +778,17 @@ frotte sur le rebord de l'auge avec une brosse de chiendent.
 Sans dire mot, il roule sa couverture, ouvre son lit,
 
 D'autres chauffeurs arrivent, qui nous apprennent
-qu'il a failli causer un déraillement : une erreur d'aiguillage. Il ne va pas y couper de ses quinze jours de
+qu'il a failli causer un déraillement: une erreur d'aiguillage. Il ne pas y couper de ses quinze jours de
 
 Et des propos s'échangent, des rires partent. « Quelle
-bonne blague. Pas de danger. On va rire. »
+bonne blague. Pas de danger. On rire. »
 
-Les heures passent : l'appel, le margis de semaine
-passe en coup de vent dans la carrée ; on se couche, on
-éteint la lampe. Dix heures : l'extinction des feux clame
+Les heures passent: l'appel, le margis de semaine
+passe en coup de vent dans la carrée; on se couche, on
+éteint la lampe. Dix heures: l'extinction des feux clame
 dans la nuit son long sanglot solitaire.
 
-Tout à coup, la porte s'ouvre doucement : des ombres
+Tout à coup, la porte s'ouvre doucement: des ombres
 mystérieuses se glissent dans la chambre, un falot
 allumé jette des lueurs dansantes sur les murs et nous
 laisse entrevoir, à nous autres bleus, béants sur nos
@@ -798,9 +796,9 @@ lits, un piquet d'hommes en grande tenue, gants blancs,
 jugulaire au menton, dolman de parade, raides sous les
 
 l'Aube fraternelle
-Un autre, encapuchonné dans un manteau à pèlerine, |
+Un autre, encapuchonné dans un manteau à pèlerine,
 sans qu'on voie rien de sa figure qu'une longue moustache en croc, s'approche du lit d'Émile et le réveille.
-On lui lit sa sentence, venue par le télégraphe äu
+On lui lit sa sentence, venue par le télégraphe
 ministère de la guerre. On lui montre l'ordre, couvert
 de timbres, de signatures, apposés au bureau. Il est
 condamné pour faute grave à être fusillé.
@@ -824,7 +822,7 @@ une pluie lourde, sans qu'un rayon de soleil vienne luire
 dans cette désolation. Partout des flaques, de la boue,
 un ruissellement sans fin de gouttières.
 
-Nous partons, maussades sous l'averse, trempés jusqu'aux os avant même d'avoir dépassé la cour du quartier. Nous pataugeons dans les mares ; le long des remparts, nos pieds glissent dans la terre molle des talus ;
+Nous partons, maussades sous l'averse, trempés jusqu'aux avant même d'avoir dépassé la cour du quartier. Nous pataugeons dans les mares; le long des remparts, nos pieds glissent dans la terre molle des talus;
 un de nous s'affale de son long, les autres n'ont pas le
 courage de rire. On songe à des choses tristes, au
 mousqueton qu'il faudra démonter et nettoyer pièce à
@@ -842,7 +840,7 @@ par l'eau, leurs tonnelles de lattes vertes, elles ont l'air
 de miséreux qui grelotteraient, sous des vêtements
 d'été, en décembre. Dans les vergers, des monceaux de
 
-l'Aube fraternelle Fr
+l'Aube fraternelle
 feuilles mortes pourrissent, des trognons de choux
 hérissent les plates-bandes. Parfois un Amour de terre
 cuite, au milieu d'une allée, sur un socle, tend lamenta- -
@@ -854,24 +852,24 @@ sorties des manufactures voisines regagnent leur logis,
 c'est un défilé d'ombres silencieuses, encapuchonnées,
 étranges larves humaines qui s'évanouissent aussitôt
 dans la nuit pluvieuse.
-Puis, Les dernières maisons dépassées, les champs, ia |
-nuit noire où nos yeux plongent et ne distinguent rien, |
-où le souffle plus violent de la rafale nous avertit seul |
-de l'immense profondeur qui s'ouvre devant nous. |
+Puis, Les dernières maisons dépassées, les champs,
+nuit noire où nos yeux plongent et ne distinguent rien,
+où le souffle plus violent de la rafale nous avertit seul
+de l'immense profondeur qui s'ouvre devant nous.
 Longtemps nous marchons, et nos pas traînent sur la
 route. Le chemin dévale tout à coup entre deux talus;
 une palissade de gros pieux franchie, nous sommes
-dans une cour dont les murs blancs se devinent vague- ;
+dans une cour dont les murs blancs se devinent vague-;
 ment. Une fenêtre éclairée troue l'ombre de sa lumière
 où tombent, brillants, les rais de pluie. C'est un corps
-de garde, le portier-consigne nous attend ; nous y
+de garde, le portier-consigne nous attend; nous y
 entrons, harassés, heureux, contents de trouver enfin
-ce semblant de bon gîte. |
+ce semblant de bon gîte.
 Une grande chambre, peinte à la chaux, avec une
-voûte de maçonnerie où suinte, en traînées verdâtres, |
-l'eau qui traverse les talus de terre. Le mobilier habituel, des bancs en poutres à peine équarries, le batflanc, le râtelier d'armes, sur la table les falots dégout- |
+voûte de maçonnerie où suinte, en traînées verdâtres,
+l'eau qui traverse les talus de terre. Le mobilier habituel, des bancs en poutres à peine équarries, le batflanc, le râtelier d'armes, sur la table les falots dégout-
 tants d'huile, noirs de poussière, la consigne du poste
-pendue au mur et l'inévitable état du matériel. La lan- |
+pendue au mur et l'inévitable état du matériel. La lan-
 
 terne que le portier-consigne tient à la main jette sur
 tout cela une lumière hésitante, de grandes ombres
@@ -884,7 +882,7 @@ une chaleur qui vous monte à la tête, appesantit les
 yeux dans une somnolence invincible. On respire mal
 dans cet air chaud, humide, épais.
 
-Onze heures du soir, c'est mon tour : avec l'homme
+Onze heures du soir, c'est mon tour: avec l'homme
 de relève, nous allons remplacer la sentinelle avancée.
 
 Nous marchons par des terrains fangeux, dans le
@@ -895,8 +893,8 @@ l'angle la sentinelle encapuchonnée dans le lourd manteau de guérite. On s'abo
 Seul dans la nuit, le bruit de leurs pas s'éloigne, puis
 la porte du poste grince sur ses gonds, se referme.
 
-La pluie s'est arrêtée ; il me semble que j'aimerais
-mieux entendre le son des gouttes d'eau sur la terre, :
+La pluie s'est arrêtée; il me semble que j'aimerais
+mieux entendre le son des gouttes d'eau sur la terre,:
 le crépitement des flaques. Rien n'est impressionnant
 comme ce hululement prolongé du vent, cette clameur
 de la rafale, qui s'arrête puis repart, plus haute, plus
@@ -910,10 +908,10 @@ mur dont la fuite se perd dans la nuit. Quelque chose
 
 35 -
 
-” l'Aube fraternelle
+l'Aube fraternelle
 
 luit faiblement, reflétant une lueur venue on ne saït
-d'où, j'approche : c'est une planche mouillée, le mur
+d'où, j'approche: c'est une planche mouillée, le mur
 d'ombre se reforme devant moi. Derrière des saules, un
 ruisseau débordé roule ses eaux à grand bruit, dans le
 clapotement j'entends de grosses pierres entraînées qui
@@ -927,20 +925,20 @@ semble que je vois des formes confuses passer dans le
 noir et que j'entends des bruits. Je reste aux aguets, le
 cœur battant, un frisson le long de l'échine, prêt à donner l'alarme, à appeler. Et malgré moi passent dans
 mon esprit des histoires lugubres de sentinelles surprises, culbutées avec leur guérite, qu'on retrouve le
-lendemain assassinées, un couteau entre les emoplates, |
+lendemain assassinées, un couteau entre les emoplates,
 des histoires bêtes qui vous font hausser les épaules au
 corps de garde, en plein jour, qui m'impressionnent
-tout de même dans cette nuit, pleine de la clameur |
-furieuse du vent. |
+tout de même dans cette nuit, pleine de la clameur
+furieuse du vent.
 
-Minuit sonne dans la rafale, à ur clocher perdu
-dans la campagne, au loin, je ne sais où. Les vibrations |
-lentes, régulièrement espacées de la cloche, me font |
+Minuit sonne dans la rafale, à clocher perdu
+dans la campagne, au loin, je ne sais où. Les vibrations
+lentes, régulièrement espacées de la cloche, me font
 peur. Étrange cette voix de métal qui vit, dans la tor-
 peur profonde où dorment les choses, d'où il semble
 qu'elles ne s'éveilleront jamais.
 
-Alerte cette fois. Ce sont bien des pas étouftés le long ;
+Alerte cette fois. Ce sont bien des pas étouftés le long;
 du mur. On s'approche... « Bouge pas, vieux, c'est à
 moi. » C'est l'autre sentinelle, placée au bout du talus, à
 qui, talonnée par la nuit, est venue me trouver... « On
@@ -956,27 +954,27 @@ repris un aspect normal et familier. C'est un paysan que
 je connais bien. Nous parlons du pays, des travaux des
 champs, de ses sœurs qui sont filles de ferme.
 
-Attention, un falot danse sur la route ; c'est la ronde.
+Attention, un falot danse sur la route; c'est la ronde.
 Le camarade rejoint en courant son poste. Elle ne vient
-pas jusqu'à nous ; elle s'arrête au corps de garde, puis
+pas jusqu'à nous; elle s'arrête au corps de garde, puis
 repart, le falot se balance, disparaît derrière les arbres,
 reparaît. On ne le voit plus. D'ailleurs on vient nous
 
 Au matin, je reviens au même poste. Des nuages bas
-filtre une aube douteuse ; une lumière jaunâtre et livide
+filtre une aube douteuse; une lumière jaunâtre et livide
 se traîne sur le sol. Tandis que mes yeux contemplent
 avec étonnement l'endroit, hanté quelques heures avant
 des terreurs nocturnes, les saules, le mur, le talus de la
 poudrière prennent une physionomie nouvelle sous le
 jour. C'était immense, lointain, plein d'ombres profondes, dans le vague des formes et l'indécision du
-néant ; cela se rapetisse, s'amoindrit, s'éclaire. Quelques maigres buissons frissonnent dans le vent, sur les
+néant; cela se rapetisse, s'amoindrit, s'éclaire. Quelques maigres buissons frissonnent dans le vent, sur les
 flancs gazonnés; des touffes de saules ont gardé quelques feuilles jaunies par l'hiver, ruisselantes d'eau.
 Des chaumes grisâtres et détrempés, de la prairie inondée où roulent des vapeurs blanches, de la terre
 boueuse se lève une tristesse infinie, qui me tombe sur
 le cœur, le noie. J'ai froid; de grands frissons traversent ma chair enfiévrée.
 
-Figurez-vous une plaine, nue, immense. Çà et là
-quelques petits bois de pins chétifs et rabougris, allongeant leurs branches au ras du sol, rapetissés par toute |
+Figurez-vous une plaine, nue, immense. et
+quelques petits bois de pins chétifs et rabougris, allongeant leurs branches au ras du sol, rapetissés par toute
 cette étendue. Partout de la craie; les ouvrages, les
 redoutes, les batteries qui se dessinent au loin ont l'air
 d'amoncellements de neige; blancheur déconcertante
@@ -989,8 +987,8 @@ A midi, l'air chaud monte, vibre, ondule, et les objets
 apparaissent avec des contours flottants, comme vus à
 travers une eau qui coule.
 
-| Nous sommes logés sous la tente.
-| Douze dans chacune. Nous couchons sur la terre,
+Nous sommes logés sous la tente.
+Douze dans chacune. Nous couchons sur la terre,
 notre paillasse étendue sur le sol. Les premières nuits
 ce fut dur et il fallait enlever de la terre les pierres qui
 nous meurtrissaient les reins; pour draps, un sac de
@@ -1005,7 +1003,7 @@ errants des anciens âges, qui tressaille et paipite et
 chante au plus profond de mon être, ivre de plein air et
 de lumière sous cette toile claquante et mince baignée
 des reflets du jour, où tombe par les nuits pures le
-scintillement des étoiles ?
+scintillement des étoiles?
 
 Les sommeils y sont légers et leur trame est si mince
 et si subtile que les songes y passent sans perdre la
@@ -1020,7 +1018,7 @@ les sonorités cuivrées des trompettes. A demi éveillé,
 je perçois sur ma tête la blancheur confuse de l'aube,
 pourtant le rêve continue; il me semble que je vogue
 sur des mers brillantes, couché au pied du mât, sous la
-voile qui claque dans le vent, vers des îles bienheureuses. |
+voile qui claque dans le vent, vers des îles bienheureuses.
 
 Le soir, de la plaine brûlée se lève l'âme errante des
 
@@ -1078,51 +1076,51 @@ avec des mandats. Quand ils les ont lues, les compaj
 gnons accomplissent avec un sérieux imperturbable
 la cérémonie traditionnelle.
 Deux hommes s'avancent l'arme au bras. Portez
-armes ! Présentez armes! — et sous le nez du lecteur, qui
+armes! Présentez armes! — et sous le nez du lecteur, qui
 abandonne sa missive et sourit béatement, on rend les
 honneurs au mandat, à la forte somme.
 Ils font un régal, pour se remettre le cœur après les
-fatigues du jour. Ils ont acheté à la cantine du pain :
+fatigues du jour. Ils ont acheté à la cantine du pain:
 blanc et frais, deux boîtes de sardines, quelques litres
 de gros vin à douze, une chopine de « blanche ». Ils
-boivent, ils mangent, avec de gros rires, de grosses  -
+boivent, ils mangent, avec de gros rires, de grosses -
 plaisanteries, le cœur épanoui, et la rate dilatée.
 Deux Lorrains causent de leurs villages qui se touchent, parlent de leurs champs, de leurs vignes, des
 filles de tel endroit qui sont faciles, voire du prix du
 Un Flamand chantonne entre ses dents la chanson
 du petit Quinquin. On l'interrompt, on se moque de lui
-et de son accent :
-— Hé dis-donc, Lenain, la boutelle sous la trelle ?
+et de son accent:
+— dis-donc, Lenain, la boutelle sous la trelle?
 Il hausse les épaules et continue.
 Boche, le Parisien, lève sa face imberbe, où la lumière
 creuse des ombres inquiétantes, et accuse son nez
 vicieusement retroussé, comme celui d'une ouvrière des
 faubourgs. Le vin lui chauffe le ventre. Il est gris et
 ses yeux chavirent. Un grand élan de fraternité trouble
-| le dresse sur ses jambes molles, il tape sur le ventre
-| des camarades, en prononçant ces seuls mots où il fait
-tenir des abîmes de tendresse :
-— Hé toi, le frère !
+le dresse sur ses jambes molles, il tape sur le ventre
+des camarades, en prononçant ces seuls mots où il fait
+tenir des abîmes de tendresse:
+— toi, le frère!
 Mais quand l'un d'eux prononce qu'il faut faire un
 brülot avec l'eau-de-vie, c'est une clameur enthou43
 
-l'Aube fraternelle |
-siaste. Dans les quarts, où l'on a mis des morceaux de |
+l'Aube fraternelle
+siaste. Dans les quarts, où l'on a mis des morceaux de
 sucre, la flamme bleue de l'alcool danse, fouillant les
 masques, les éclairant de lueurs fantastiques.
 C'est le moment des chansons, des joyeuses improvisations du dessert.
-— Allons, Émile, raconte-nous une histoire. |
-Et du fond obscur de la tente où il était blotti sous la |
-toile, lapant à petites gorgées la bonne eau-de-vie |
-sucrée et chaude, Boulas se traîne dans le rond lumi- |
+— Allons, Émile, raconte-nous une histoire.
+Et du fond obscur de la tente où il était blotti sous la
+toile, lapant à petites gorgées la bonne eau-de-vie
+sucrée et chaude, Boulas se traîne dans le rond lumi-
 neux que la chandelle projette sur le sol, il lève vers
 nous sa bonne face joufilue, luisante de graisse, fronce (
-ses gros sourcils en broussaille et docile, plein d'une |
-bonne volonté niaise, commence une « fiaue », un de £es
+ses gros sourcils en broussaille et docile, plein d'une
+bonne volonté niaise, commence une « fiaue un de £es
 récits de veillée que content les paysans vosgiens dans
 les granges, devant l'âtre où flambent les bourrées.
 Il ne sait plus, il s'arrête, repart, s'embrouille. Sa maladresse lui donne du courage. Têtu, il gesticule et vocifère. Nous rions, il nous regarde fixement de ses yeux
-ronds, stupides. Boche le serre sur son cœur et lui .
+ronds, stupides. Boche le serre sur son cœur et lui.
 bégaye, avec des larmoiements d'ivrogne, qu'il est une
 vieille bête et une vieille branche. Il l'écarte impatienté et continue bravement son récit auquel nous ne
 Il y est question d'une nouvelle mariée, d'un curé
@@ -1133,9 +1131,9 @@ J'imagine le cadre du récit dans son pays d'origine,
 les lacs pris sous la glace, les branches noires des sapins
 craquant sous les neiges amoncelées, et les soufiles
 bruyants du bétail, dans la grange, pendant les récits
-du conteur. :
+du conteur.:
 
-Enfin, il a fini. On lui dit : danse.
+Enfin, il a fini. On lui dit: danse.
 
 Avec des grâces rustaudes d'ours apprivoisé, il se lève,
 il danse, il saute, il bondit, avec aux dents un bout de
@@ -1151,12 +1149,12 @@ grésille, fume, jette de grandes lueurs qui tombent
 tout à coup, on entend au loin de sourds roulements de
 
 Stupeur. Par la porte basse de la tente, apparaissent
-deux longues jambes, des bottes, des éperons qu'ils {
+deux longues jambes, des bottes, des éperons qu'ils
 reconnaissent. Elles s'insinuent, se glissent dans la
-tente : le buste suit. C'est l'adjudant attiré par les hurlements, inquiet de voir au milieu de la nuit, le cône de
+tente: le buste suit. C'est l'adjudant attiré par les hurlements, inquiet de voir au milieu de la nuit, le cône de
 la tente pénétré de lumière. Vite on souffle le lumignon,
 
-_ onse roule dans les couvertures, on dort, on ronfle. Et
+onse roule dans les couvertures, on dort, on ronfle. Et
 
 quand « Cri Cri » a réussi à pénétrer dans la maison
 de toile, et qu'il tâte les couvertures de la main, il ne
@@ -1167,33 +1165,33 @@ Parfois la vie du dehors y pénètre.
 
 C'est d'abord par les aubes fraîches de rosée la voix
 aiguë et chantante des marchandes de petits pains,
-matinales. Elle crient : « Aux galettes, aux galettes ».
+matinales. Elle crient: « Aux galettes, aux galettes ».
 
 Elles vendent pour un sou une pâtisserie dorée et
 craquante, qu'on mange dans le quart de café noir.
 
 Le soir, à l'heure où l'horizon se pare de pourpre et
-d'or, où sous la poussière du soleil, la plaine prend des |
+d'or, où sous la poussière du soleil, la plaine prend des
 teintes plus chaudes, sur la route poudreuse où s'allongent les grandes ombres des peupliers, un vieiliard
 vient vers nous.
 
-Il est aveugle, un enfant le guide. Il est de très haute |
-taille et ses membres noués par l'âge sont encore |
-robustes. La splendeur du couchant se reflète dans ses |
+Il est aveugle, un enfant le guide. Il est de très haute
+taille et ses membres noués par l'âge sont encore
+robustes. La splendeur du couchant se reflète dans ses
 prunelles froides et vitreuses et ses paupières ne se
 baissent pas, brülées par les rayons.
 
 Il est vêtu d'une longue blouse bleue, ses jambes sont
-enveloppées de guêtres de coutil blanc. Il porte er
-bandoulière un sac de toile grise. Il tient à la main une |
+enveloppées de guêtres de coutil blanc. Il porte
+bandoulière un sac de toile grise. Il tient à la main une
 clarinette de buis, cerclée d'anneaux d'ivoire, avec des
-clefs de cuivre. Il joue des airs, des pas redoublés, des |
+clefs de cuivre. Il joue des airs, des pas redoublés, des
 
 Il passe lentement sur le front de bandière. Sa haute
 taille emplit le couchant glorieux.
 
-C'est l'heure où les hommes, assis en cercles, causent, |
-fument, raccommodent leurs vestes et leurs effets de |
+C'est l'heure où les hommes, assis en cercles, causent,
+fument, raccommodent leurs vestes et leurs effets de
 
 Parfois il chante; sa voix est éclatante et rauque,
 éraillée parfois et trouée de misère.
@@ -1206,7 +1204,7 @@ vieille l'a composée aux feux du bivouac?
 Elle chante la gloire de l'Autre. Gloire élimée et qui
 montre la corde. La chanson, dans les étapes nombreuses, sur la route des temps, a laissé tomber ses
 
-Mes enfants j'en ai bien vu d'autres
+Mes enfants j'en ai bien d'autres
 
 Car avec vous, j'étais au premier rang.
 Nous serons toujours triomphants;
@@ -1226,17 +1224,17 @@ Les nôtres ne comprennent pas le passé. Si l'aiguille
 tombe de leurs doigts, c'est qu'ils rêvent aux blés
 lourds qui ondulent, aux moissons pacifiques, aux labours d'où se lèvent, le matin, des vapeurs blanches.
 
-Et la légende napoléonienne s'en va sur la route poudreuse, où tombe la nuit, son sac de toile grise plein
-de pain dur et de morceaux de biscuits que les nôtres ;
+Et la légende napoléonienne s'en sur la route poudreuse, où tombe la nuit, son sac de toile grise plein
+de pain dur et de morceaux de biscuits que les nôtres;
 lui ont donnés.
 
-Des orages ont dérangé le temps, les pluies sont |
+Des orages ont dérangé le temps, les pluies sont
 survenues, maussades, torrentielles. Sur la plaine se
-traînent de gros nuages d'un gris sale, qui roulent lourdement, crèvent soudain, et vident sur nous des averses |
-clapotantes. Quand c'est fini, une petite pluie survient, |
-fine et pénétrante, qui vous trempe jusqu'aux os; l'air |
-est plein d'une poussière d'eau. |
-Certaines nuits, des rafales passaient, avec des hurlements sinistres, couchant les tentes, abattant les mâts, |
+traînent de gros nuages d'un gris sale, qui roulent lourdement, crèvent soudain, et vident sur nous des averses
+clapotantes. Quand c'est fini, une petite pluie survient,
+fine et pénétrante, qui vous trempe jusqu'aux os; l'air
+est plein d'une poussière d'eau.
+Certaines nuits, des rafales passaient, avec des hurlements sinistres, couchant les tentes, abattant les mâts,
 les toiles sur les hommes endormis. Il fallait se lever,
 et dans l'obscurité, relever la maison chancelante,
 enfoncer des piquets et nouer des cordes.
@@ -1250,10 +1248,10 @@ Maintenant, fini de rire. « Assez de flotte. » « Faut-il
 que l'Bon Dieu soit feignant. »
 La boue partout, au dehors, dans les chemins, sur la
 plaine, dans la tente. La paille des lits n'est plus qu'un
-fumier nageant dans un cloaque; des ruisseaux coulent ;
+fumier nageant dans un cloaque; des ruisseaux coulent;
 parmi notre équipement, nos effets de campement.
 Nos sacs et nos paquetages tombent dans le fossé
-creusé autour de la tente, et qui déborde. Le pain ]
+creusé autour de la tente, et qui déborde. Le pain
 
 qu'on mange est une éponge molle, pleine d'eau. Et
 toujours de la boue, un fleuve de boue laiteuse, qui
@@ -1265,14 +1263,14 @@ flaque. Il le vide, étale les brosses, le linge, les chaussures. Il trouve à l
 gluante dont les pages s'effilochent.
 
 Triomphalement, il me l'apporte, grand ouvert; un
-large rire sillonnant sa face de voyou intelligent :
+large rire sillonnant sa face de voyou intelligent:
 
-— Às pas peur, tu vois, me dit-il. Pas de danger pour
+— pas peur, tu vois, me dit-il. Pas de danger pour
 lui. Et il me désigne la page, où on a écrit « sait nager ».
 
 — O notre Boche, je salue en toi un type vénérable,
 consacré par la chanson, par le roman-feuilleton et par
-le mélodrame : le Parisien blagueur qui tire la langue
+le mélodrame: le Parisien blagueur qui tire la langue
 à la fortune adverse, et fait un pied de nez au fatum.
 Tu es bien le fils des Ancêtres, les Barbares blonds et
 blancs, dont un Latin, qui les battit, disait qu'ils étaient
@@ -1306,11 +1304,11 @@ pourpre étalée sur les ossements blancs de la terre.
 Et tout à coup, vers le levant où le ciel de cristal se
 teinte de nuances bleutées, apparaît, comme surgi des
 entrailles de la terre, le disque énorme de la lune. Posé
-au ras de l'horizon, roulant dans l'air froid des lointains, avec ses ombres nettement dessinées, il est pareil |
+au ras de l'horizon, roulant dans l'air froid des lointains, avec ses ombres nettement dessinées, il est pareil
 
 à un globe fragile et lumineux, de verre jaune pâle et
 rose; une veilleuse gigantesque pour le sommeil morne
-de l'étendue, où pas un être vivant ne s'agite. ;
+de l'étendue, où pas un être vivant ne s'agite.;
 
 La lune monte lentement dans le ciel, les reflets
 ardents du couchant s'évanouissent, et voici que sur la
@@ -1334,18 +1332,18 @@ Mon temps de faction est terminé. On vient me relever.
 Ces deux heures ont passé comme un instant.
 
 Dans le corps de garde, sur le bat-flanc, s'allongent
-les corps lassés des dormeurs ; une lampe à pétrole file
+les corps lassés des dormeurs; une lampe à pétrole file
 et remplit l'air d'une âcre odeur de fumée. Vais-je
 m'allonger à leur côté, sur ces planches où grouillent
 
-| d'inquiétantes vermines, où les punaises s'ébattent,
+d'inquiétantes vermines, où les punaises s'ébattent,
 laissant sur la chair des dormeurs la trace fétide de
 leur passage.
 
 Je vais m'étendre sous un petit bois de sapin tout
 
 l'Aube fraternelle
-près de là. Le sol est tapissé de fines aiguilles sèches, |
+près de là. Le sol est tapissé de fines aiguilles sèches,
 c'est une couche molle et craquante, où traîne le parfum
 pénétrant de la résine qui pleure en larmes grises sur
 les troncs dénudés. Une pluie de rayons tombe à travers
@@ -1372,11 +1370,11 @@ Depuis quinze jours, toute la batterie est au fort du
 Redan. Nous sommes venus y faire des travaux de terrassement, des réparations urgentes.
 
 Le fort est à l'extrémité d'un long plateau, recouvert
-de taillis. A quelques mètres au delà, derrière les ;
+de taillis. A quelques mètres au delà, derrière les;
 ouvrages avancés, la côte boisée tombe presque à pic
 sur la plaine. De loin c'est comme l'étrave d'un vaisseau
 qui fendrait l'air. Nous sommes l'équipage de ce vaisseau, muni de réflecteurs, de tourelles, de canons,
-d'appareils électriques ; seuls, bien seuls, perdus dans
+d'appareils électriques; seuls, bien seuls, perdus dans
 la plaine immense qui s'étale à nos pieds comme une
 
 Je vais m'asseoir sur un mur de pierres sèches à
@@ -1385,33 +1383,33 @@ brume, alors que des brouillards blancs emplissent les
 vallées, déferlent doucement, s'élèvent à l'horizon en
 vagues de fumées. Rien n'est beau comme la lutte du
 
-| soleil et des brumes qui se déchirent, s'eflilochent sous \
-| ses rayons, tandis que les clochers aigus pointent, et
+soleil et des brumes qui se déchirent, s'eflilochent sous
+ses rayons, tandis que les clochers aigus pointent, et
 que l'astre triomphe dans la lumière et la chaleur. J'y
 suis aussi par les soirs pleins d'ombres immenses, alors
 
-l'Aube fraternelle |
+l'Aube fraternelle
 
 que les bois s'assombrissent, que des reflets traînent
 sur les eaux, et que les étangs au coin des forêts
 s'allument de lueurs errantes.…
 
 D'autres fois, sous le jour clair, le pays se dessine à
-mes pieds, comme une carte gigantesque, avec les ;
+mes pieds, comme une carte gigantesque, avec les;
 routes, les cours d'eau marqués d'un trait net, immense
 échiquier où demain peut-être le hasard, mettant en
-mouvement les corps d'armée, jouera la suprême |
+mouvement les corps d'armée, jouera la suprême
 
 Tout le jour on travaille dur; on remue les terres, on
 fait des gabions et des fascines. La soupe mangée à
 cinq heures, comme la nuit vient tard, il reste assez de
 temps pour de longues promenades, pleines de rêveries.
 
-J'ai eu vite fait d'explorer le plateau rocailleux, |
+J'ai vite fait d'explorer le plateau rocailleux,
 couvert de buissons, où sifilent des vipères, où l'on
-tombe à chaque instant sur une batterie enterrée; les |
-canons accroupis sur les lourds affûts, haussent leur |
-cou au niveau des terres, et semblent guetter curieuse- ;
+tombe à chaque instant sur une batterie enterrée; les
+canons accroupis sur les lourds affûts, haussent leur
+cou au niveau des terres, et semblent guetter curieuse-;
 ment le même point de l'horizon, avec des airs sournois
 de bêtes mauvaises.
 
@@ -1420,13 +1418,13 @@ J'ai trouvé des coins délicieux.
 Vers le sud, à l'endroit où les rampes du plateau
 s'abaissent insensiblement en pentes douces, le seul
 point vulnérable de la cuirasse géante, nous a-t-on dit,
-la forêt recommence et les arbres d'un grand geste !
-indompté reprennent possession du sol. Les hêtres |
-dressent leurs troncs polis et luisants, arrondissent |
+la forêt recommence et les arbres d'un grand geste!
+indompté reprennent possession du sol. Les hêtres
+dressent leurs troncs polis et luisants, arrondissent
 leurs feuillages où déjà les grappes de faînes mettent
 des tons roux. Les chênes allongent leurs bras noueux
 et du sol spongieux, tapissé d'épaisses mousses, s'épan-
-chent intarissables et fraîches, des sources qui sautent $
+chent intarissables et fraîches, des sources qui sautent
 sur leurs lits de cailloux ou dorment sous un rideau de
 
 jones fins; toute la vie fluide et fuyante qui jaillit de la
@@ -1465,33 +1463,33 @@ l'Aube fraternelle
 je reviens. C'est elle qui donne son caractère au paysage,
 il y en a de toute sorte, de vie et d'aspect différents,
 gaie ou triste, bonne ou mauvaise, sournoise ou sincère,
-claire ou profonde. Les unes sont joie avec des frissons |
+claire ou profonde. Les unes sont joie avec des frissons
 glacés qui rient sur les cailloux, les autres sont mornes
-et enferment sous leurs nappes noires, sur leurs fonds |
-de vases visqueuses, de l''épouvante. On songe invinciblement aux noyés qui s'y engluent, et les mousses qui |
-montent du fond, les herbes aux arborescences bizarres, |
-architectures étranges où des poissons passent comme |
-des vols d'oiseaux me font peur. |
-De l'autre côté, c'est une vallée profonde, où le soleil |
-de midi pénètre seulement. Le village y est bâti, les |
+et enferment sous leurs nappes noires, sur leurs fonds
+de vases visqueuses, de l''épouvante. On songe invinciblement aux noyés qui s'y engluent, et les mousses qui
+montent du fond, les herbes aux arborescences bizarres,
+architectures étranges où des poissons passent comme
+des vols d'oiseaux me font peur.
+De l'autre côté, c'est une vallée profonde, où le soleil
+de midi pénètre seulement. Le village y est bâti, les
 maisons serrées autour du clocher, comme un troupeau
 autour du berger. Les pentes sont couvertes de vigne;
-tout le fond est rempli de vergers où chantent des |
-sources, où les troncs de pommiers noueux émergent !
-de l'herbe haute et drue. De fines odeurs de mirabelles {
-müres y flottent et des vaches appuyant leurs têtes sur :
+tout le fond est rempli de vergers où chantent des
+sources, où les troncs de pommiers noueux émergent!
+de l'herbe haute et drue. De fines odeurs de mirabelles
+müres y flottent et des vaches appuyant leurs têtes sur:
 les palissades de planches vous suivent d'un regard
-Je l'ai traversée l'autre nuit, rentrant de permission. |
+Je l'ai traversée l'autre nuit, rentrant de permission.
 La lune à son premier quartier, posée au bord de À
 l'horizon, versait des lueurs confuses, mystérieuses, et
-le bruit des eaux tombant dans les vergers emplissait :
+le bruit des eaux tombant dans les vergers emplissait:
 le silence nocturne. Je me suis arrêté auprès du village.
-Tout dormait, on croyait surprendre dans le frémisse- |
+Tout dormait, on croyait surprendre dans le frémisse-
 ment léger du vent le bruit de la respiration universelle.
 Une paix infinie tombait sur les toits endormis, on
 entendait dans les crèches les vagues bruits de chaînes à
 
-des bêtes qui heurtaient leurs mangeoires. Et là haut
+des bêtes qui heurtaient leurs mangeoires. Et haut
 d'autres hommes dormaient, qui se préparaient aux
 œuvres de mort, et dans les clartés blêmes, les ouvrages
 blancs luisaient étrangement sur la côte. Et tout à
@@ -1537,34 +1535,34 @@ De fait, le service l'a initié à une mollesse d'existence
 qu'il ignorait complètement. 11 a des souliers, lui dont
 les gros sabots roulant sur le parquet ont fait la joie
 des premiers jours. Dans son paquetage, sont pliés des
-vêtements qui sont à lui, une veste, un dolman avec des ‘
-rouges écarlates et des boutons de cuivre, une capote |
-chaude. Il a appris l'usage du linge fin, des caleçons et |
-des ceintures de flanelle ! Et quand un Parisien blagueur ;
-lui lance, au passage, l'éternelle plaisanterie : |
+vêtements qui sont à lui, une veste, un dolman avec des
+rouges écarlates et des boutons de cuivre, une capote
+chaude. Il a appris l'usage du linge fin, des caleçons et
+des ceintures de flanelle! Et quand un Parisien blagueur;
+lui lance, au passage, l'éternelle plaisanterie:
 
 — Hé, pays, t'en as pas autant chez toi?
 
-Il répond doucement : « Ben sûr ». |
+Il répond doucement: « Ben sûr ».
 
-Mais tout cela n'est rien. C'est bon le confort, les sou- |
+Mais tout cela n'est rien. C'est bon le confort, les sou-
 liers larges, les vêtements souples, la soupe chaude. —
 Sans doute, mais il est flatté au plus profond de sa
 
 Il a l'orgueil d'être artilleur.
 
 Il faut l'entendre prodiguer aux fantassins les appellations injurieuses qu'il s'est hâté d'apprendre de plus
-malins : biflin, écrevisse de rempart, griveton et sale
+malins: biflin, écrevisse de rempart, griveton et sale
 bobosse, pittoresque litanie où il met toute la profondeur
 d'ironie et de dédain que la nature lui a répartie. En à
 vain lui objecte-t-on qu'il n'a pas de cheval, et que ce
-détail seul crée la supériorité aristocratique. Têtu, il se }
-butte, et répond victorieusement qu'en tout cas il ne .
+détail seul crée la supériorité aristocratique. Têtu, il se
+butte, et répond victorieusement qu'en tout cas il ne.
 porte pas de pantalon rouge.
 
 Jamais, comme en ce moment, il n'a savouré ce
-mérite. Car nous vivons, dans le fort, côte à côte avec FS
-une compagnie d'infanterie. Les rivalités s'aiguisent au ;
+mérite. Car nous vivons, dans le fort, côte à côte avec
+une compagnie d'infanterie. Les rivalités s'aiguisent au;
 
 commerce de la vie quotidienne; quand nous sommes
 au travail sur les talus, maniant la pelle ou la pioche,
@@ -1575,7 +1573,7 @@ paresseusement couchés, après la marche du matin, qui
 nous observent avec une curiosité équivoque et une
 railleuse sympathie. Parfois, quand il faut donner un
 bon coup de collier, ils s'approchent, nous plaignent,
-affichent un étonnement ironique : « Comme c'est fort
+affichent un étonnement ironique: « Comme c'est fort
 un artilleur ». Jamais un coup de main par exemple.
 
 Les nôtres prennent leur revanche à la cuisine, où
@@ -1590,8 +1588,8 @@ Car nous avons un chien à nous, un méchant petit
 roquet jaune, qui boitille, sa patte ayant été écrasée
 par une roue. On lui prête des trésors d'affection et
 d'intelligence, on raconte qu'il fait la tournée des forts,
-à la suite du planton qui va à la ville chercher les
-lettres, quand toutes les batteries sont dispersées. QI
+à la suite du planton qui à la ville chercher les
+lettres, quand toutes les batteries sont dispersées.
 est deux jours au Redan, deux jours à Mortfontaine,
 deux jours aux Romont. — Comme ça, il ne nous oublie
 pas, il nous voit tous. » De fait, il fait ici quelques rares
@@ -1606,7 +1604,7 @@ frétille au bout de la queue.
 Jean Hersapuech l'a vu, il le regarde fixement, visiblement absorbé, les sourcils froncés. Tout à coup sa
 face s'épanouit en un rire énorme.
 
-Il a trouvé. Il va en faire une bien bonne. Vlan, ça y
+Il a trouvé. Il en faire une bien bonne. Vlan, y
 est. Il empoigne le chien ahuri, en trois coups de pirceau du pot à minium, voilà un chien rouge, d'un beau
 rouge vif, rouge comme les culottes du sergent, un vrai
 chien d'infanterie. Deux heures après, quand les fantassins reviennent du tir à la cible, un animal bizarre,
@@ -1620,13 +1618,13 @@ Vite une corvée, quatre hommes, de l'eau et du savon.
 On lave le chien, mais notre couleur est bonne. Elle
 déteint légèrement et les jours suivants, à la grande
 humiliation de l'infanterie, déambule dans les cours du
-fort, flairant les murs, fouillant les tas d'ordures, un |
+fort, flairant les murs, fouillant les tas d'ordures, un
 chien délicieusement rose, rose comme la pointe de
 
 l'aurore, comme.une joue de jeune fille, comme un
-tablier de bergère dans une pastorale de Watteau. |
+tablier de bergère dans une pastorale de Watteau.
 
-Au pays de mon père, il est des bois sans nombre :
+Au pays de mon père, il est des bois sans nombre:
 La forêt s'étend, couvrant au loin la plaine. On nous a
 dit que l'ennemi pourrait, en cas d'invasion, y opérer
 un mouvement tournant derrière l'épais rideau des
@@ -1645,10 +1643,10 @@ bordent. Habités par des sabotiers, des scieurs de long,
 des travailleurs forestiers, ils ont un air de misère qui
 étreint le cœur. Les rues étaient vides, les maisons
 désertes, les fenêtres sans rideaux aux vitres verdies
-par ie temps étaient fermées, les hommes partis à la
+par temps étaient fermées, les hommes partis à la
 forêt, les femmes aux champs. Quelques poules pico-
 
-|  raiïent sur les fumiers et des chats maigres se hérissaient
+raiïent sur les fumiers et des chats maigres se hérissaient
 à la porte des granges...
 
 J'ai passé toute cette journée de dimanche dans la
@@ -1675,26 +1673,26 @@ avaient des cheveux couleur de chanvre. Tout en buvant
 dans un coin du jardin une bière rustique, quelques
 poignées de houblon et des grains de genièvre dans une
 tonne d'eau, l'hôte m'a conté sa vie, il m'a dit les ruses
-du gibier, les joies de l'affût, l'heure grise où le sanglier |
+du gibier, les joies de l'affût, l'heure grise où le sanglier
 
 . passe dans un bruit de branches cassées, l'insolence
-des braconniers et des ramasseurs de bois mort. :
+des braconniers et des ramasseurs de bois mort.:
 
-Quand le soir est tombé, j'étais au bord d'un étang |
+Quand le soir est tombé, j'étais au bord d'un étang
 que j'avais découvert au bout d'une tranchée à peine
 frayée. Derrière les arbres, dont les rameaux entrelacés
-se découpaient en noir sur le ciel, une grande clarté {
+se découpaient en noir sur le ciel, une grande clarté
 rouge descendait dont le reflet traînait sur l'eau À
 sombre. La nuit roulait sur les têtes floconneuses des
-roseaux. Des bulles de gaz, fermentation de la vie uni- £
-verselle, crevaient à la surface ; des profondeurs de
+roseaux. Des bulles de gaz, fermentation de la vie uni-
+verselle, crevaient à la surface; des profondeurs de
 l'eau montait vers le ciel la mélopée ardente et mono- )
 tone des crapauds. Toute une vie inquiétante s'éveillait
 dans l'herbe des rives, glissements de reptiles, fuites de
 bêtes, plongeons dans l'eau. Une vague terreur se
 levait en moi. À
 
-* Depuis quelque temps, j'essaie de travailler; je ne
+Depuis quelque temps, j'essaie de travailler; je ne
 suis plus au temps où un livre était une chose étrange
 et nouvelle pour moi, où les lettres dansaient à mes
 yeux sans que je parvinsse à saisir la pensée.
@@ -1705,7 +1703,7 @@ talus, près de la porte d'entrée du fort... C'est une
 impression délicate, dans ma vie présente si robuste,
 ques d'entendre la musique lointaine du dialecte
 attique. L'ironie du contraste m'en fait la grâce plus
-légère, plus ailée. Et le cortège des douces visions s'ordonne à mes yeux, dans les paysages rêvés autrefois ;
+légère, plus ailée. Et le cortège des douces visions s'ordonne à mes yeux, dans les paysages rêvés autrefois;
 sous le platane et les ormes bruissants, passent les
 jeunes hommes, le front ceint de roseaux blancs, couronnés de violettes, les cheveux agrafés de cigales d'or,
 les vieillards chantent Pallas qui renverse les cités,
@@ -1736,29 +1734,29 @@ l'origine de la comédie antique.
 Tous deux sont fort occupés à laver dans l'auge
 de bois de l'abreuvoir leurs effets de treillis. Leurs
 mains sont blanches d'écume, ils frottent dur pour enlever les taches, car demain c'est revue de linge et de
-chaussure. Fraternels et souriants, ils s'aident à tordre |
+chaussure. Fraternels et souriants, ils s'aident à tordre
 les lourds bourgerons de toile grise trempés d'eau.
 Comme l'ouvrage tire à sa fin, une grande aise les
 envahit, et subitement, sans raison, pour rien, pour
 l'Art, ils se disent des injures.
-— T'as pas fini de laver des treillis, martyr, dit Boche, |
-qui est de la classe. |
+— T'as pas fini de laver des treillis, martyr, dit Boche,
+qui est de la classe.
 — Et toi, vendu, avec les quinze cent soixante-cinq
 qui te restent à faire. Tu rempiles, feignant.
 — Malheur, on te laissera au port d'arme.
-— Quoi donc qu'tu ferais chez toi. Avec quoi que tu |
+— Quoi donc qu'tu ferais chez toi. Avec quoi que tu
 les calerais. Tu irais aux halles décharger les voitures
 de choux.
 — Et ta gironde qui s'est fait emballer et qui tra-
-vaille plus. |
+vaille plus.
 
 — Charrie, vieux, on te laissera, Polyte.
 
-— Tais-toi, panouille !
+— Tais-toi, panouille!
 
 — Pied de choux!
 
-— Croquant ! Pour ces citadins c'est l'injure suprême. Ils rient, excités, ragaillardis, humant dans
+— Croquant! Pour ces citadins c'est l'injure suprême. Ils rient, excités, ragaillardis, humant dans
 air, où vibrent encore les mots de gueule, les relents
 évoqués du ruisseau natal.— Ils sont vaguement flattés
 de m'avoir pour public, et comme je m'intéresse, ils
@@ -1774,26 +1772,26 @@ On a travaillé dur, ces jours derniers.
 
 Souffrances inexprimables. Il y a en elles toutes
 sortes de peurs, de hontes, de tortures. Peur de l'effort
-physique. J'ai beau me raisonner ; les longues marches
+physique. J'ai beau me raisonner; les longues marches
 ne m'épouvantent pas, ni la poussière des routes, dans
 l'odeur écœurante de la sueur humaine, sous le soleil.
-J'ai bien supporté la morsure du froid sur les mains |
-qui griffent le fer, à la manœuvre à pied, les ongles |
+J'ai bien supporté la morsure du froid sur les mains
+qui griffent le fer, à la manœuvre à pied, les ongles
 saignants et douloureux. Chaque fois que notre troupe
-au matin traversant la cour se dirige vers le réduit où |
-sont les masses, les pioches, les barres à mine, un |
+au matin traversant la cour se dirige vers le réduit où
+sont les masses, les pioches, les barres à mine, un
 
 Je fais si peu de besogne avec tant de peine. Je ne
-saurai jamais relever ma pelle lourde de terre, avec :
+saurai jamais relever ma pelle lourde de terre, avec:
 ce vigoureux tour de reins, ce ploiement des genoux si
 facile à Jean Hersapuech. Je m'évertue, j'enfonce mon
-outil dans la terre meuble, je le relève en soufilant avec :
+outil dans la terre meuble, je le relève en soufilant avec:
 une pincée de poussière, qui coule de chaque côté,
 tandis que les camarades rient d'un gros rire.
 
 Quand on pose les rails du petit chemin de fer; qui
 réunit les batteries, comme les traverses sont lourdes
-et qu'on n'est que deux pour porter une travée de dix |
+et qu'on n'est que deux pour porter une travée de dix
 mètres, je plie sous le fardeau, mes genoux chancellent,
 et le camarade à l'autre bout, sentant le rail vaciller,
 
@@ -1804,7 +1802,7 @@ semaines avec des poupées grotesques de linge au bout
 des mains.
 
 Cette fois, il paraît que ce sera plus dur encore. Les
-camarades ont dit : « Ça va barder ! »
+camarades ont dit: « barder! »
 
 On fait des plates-formes pour les grosses pièces. IL
 faui ranger de lourds madriers et des lambourdes dans
@@ -1825,50 +1823,50 @@ m'apercevoir que c'était un mauvais poste.
 
 Dans le chemin de communication de la batterie, une
 marmite de goudron est posée sur quatre grosses
-pierres, au-dessus d'un feu. On va y chercher le coaltar
+pierres, au-dessus d'un feu. On y chercher le coaltar
 chaud et on l''étend à grands coups de pinceau sur les
 bois des plates-formes.
 
-Je nage dans le goudron, il s'étale sur mes treillis em
+Je nage dans le goudron, il s'étale sur mes treillis
 larges plaques qui collent à ma peau et la brûlent; il y
-en a plein mes souliers ; tout ce que je mange, je bois,
+en a plein mes souliers; tout ce que je mange, je bois,
 sent le goudron; son odeur âcre et nauséabonde me
 
 l'Aube fraternelle
-poursuit la nuit, dans mon sommeil, le flot noir et vis- |
-queux me submerge; jy roule le cœur défaillant, tordu
-de nausées. Mes mains, comment les laver, les avoir |
-blanches, nettes ? Il faut les arroser d'huile de lampe,
-pouah ! les frotter de savon noir. Ça ne suflit pas, je
+poursuit la nuit, dans mon sommeil, le flot noir et vis-
+queux me submerge; roule le cœur défaillant, tordu
+de nausées. Mes mains, comment les laver, les avoir
+blanches, nettes? Il faut les arroser d'huile de lampe,
+pouah! les frotter de savon noir. ne suflit pas, je
 fais comme les autres, je les râcle sur le rebord en
 pierre de l'auge, je les polis, je les use.
 
-Parfois le lieutenant se montre dans le taillis, où les |
-feuilles sèches des noisetiers frissonnent déjà dans les |
-légers souffles. Au fond de la batterie, le soleil tombe |
-d'aplomb sur les parois de roches et nous rôtit et nous |
-aveugle. Nous nous hâtons, pitoyables et courbés. IL .
+Parfois le lieutenant se montre dans le taillis, où les
+feuilles sèches des noisetiers frissonnent déjà dans les
+légers souffles. Au fond de la batterie, le soleil tombe
+d'aplomb sur les parois de roches et nous rôtit et nous
+aveugle. Nous nous hâtons, pitoyables et courbés. IL.
 nous regarde et ne dit rien. Sa silhouette se découpe
 
-| sur l'air bleu. Les galons d'or de son dolman brillent
+sur l'air bleu. Les galons d'or de son dolman brillent
 dans le jour vif, sa main finement gantée de blanc tient
-une badine dont il flagelle négligemment sa botte ver- |
+une badine dont il flagelle négligemment sa botte ver-
 nie. Sa tête est protégée par un couvre-nuque de toile
 blanche et fraîche dont la brise chiffonne légèrement les
-plis. Objet d'ivoire et d'or, il apparaît aux yeux de |
+plis. Objet d'ivoire et d'or, il apparaît aux yeux de
 Jean Hersapuech comme une chose chère et précieuse,
-que le peuple ne contemple guère qu'aux vitrines. Le ;
-moyen après cela que Jean Hersapuech, dans la vie, se |
+que le peuple ne contemple guère qu'aux vitrines. Le;
+moyen après cela que Jean Hersapuech, dans la vie, se
 tienne son égal...
 
 De la marmite, des seaux pleins de goudron brûlant
 montait une vapeur légère et bleue dont je suivais les
-volutes évanouies dans l'air d'un œil amusé. |
+volutes évanouies dans l'air d'un œil amusé.
 
-Voilà qu'au bout de quelques jours, frôlée par le |
+Voilà qu'au bout de quelques jours, frôlée par le
 souflle brûlant, rongée par l'acide qui s'exhale, la peau
-de mon visage, de mes mains se gerce, se fendille, pèle |
-en longues plaques que j'enlève avec des frissons de ‘
+de mon visage, de mes mains se gerce, se fendille, pèle
+en longues plaques que j'enlève avec des frissons de
 douleur. Le sang gicle, s'épanche, et sur mes plaies
 tombe la chaleur implacable du soleil, qui les fouille,
 
@@ -1878,7 +1876,7 @@ Je me rappellerai toujours avec horreur le supplice
 que j'ai enduré le samedi de la semaine maudite.
 Libre, je suis descendu à la ville voisine. J'avais une
 douzaine de kilomètres à faire sous le grand soleil de
-midi. Les rayons ardents tenaillaient si douloureusement la chair vive de ma face et de mes mains saignantes, que j'ai dû m'asscoir sur le revers du fossé,
+midi. Les rayons ardents tenaillaient si douloureusement la chair vive de ma face et de mes mains saignantes, que j'ai m'asscoir sur le revers du fossé,
 prêt à défaillir. Parmi des pierres moussues, sur un lit
 de cresson et de menthes parfumées, des sources jaillissaient, vivifiantes et bonnes, roulant dans leurs eaux
 toute la fraîcheur odorante des sous bois; nymphes aux
@@ -1895,28 +1893,28 @@ Je suis venu m'échouer, après une longue promenade,
 vignerons, accrochés au flanc de la côte.
 
 Altéré par la marche en plein soleil, je trempe avec
-ravissement mes lèvres dans mon verre plein de vin ;
+ravissement mes lèvres dans mon verre plein de vin;
 rose, frais comme de l'eau de source et qui sent la
 framboise. Je mets mes coudes sur la table, et la tête
-dans mes mains je rêve. Tout ce grand calme me |
+dans mes mains je rêve. Tout ce grand calme me
 
-Oh la douceur de cette halte exquise, dans la bonne {
+Oh la douceur de cette halte exquise, dans la bonne
 
-S auberge. Tout est oublié, et le passé et demain, où il
+auberge. Tout est oublié, et le passé et demain, où il
 faudra reprendre le dur collier.
 
-Ce n'est pas le cabaret banal des villes, où la foule |
+Ce n'est pas le cabaret banal des villes, où la foule
 passe indifférente. J'ai la sensation d'un accueil désintéressé. Tandis que l'hôtesse marche sans bruit dans
 la chambre, je me laisse prendre à la douceur bienveil-
 lante des choses, à la familiarité des vieux meubles.
 
-Dans le fond de la salle, de grosses armoires de noyer |
+Dans le fond de la salle, de grosses armoires de noyer
 ventrues s'adossent au mur; elles ont sur leurs panneaux
-des arabesques incrustées de cuivre et de fer poli qui |
+des arabesques incrustées de cuivre et de fer poli qui
 attirent l'œil. Sur le dressoir de chêne massif, des
-assiettes de faïence fleuries de coqs rouges et d'oi- |
+assiettes de faïence fleuries de coqs rouges et d'oi-
 seaux bleus font une claire chanson, éclatante et rustique. Dans la gaine de bois, par une fenêtre ronde,
-passe et repasse le pendule de cuivre de la haute hor- &
+passe et repasse le pendule de cuivre de la haute hor-
 
 loge et le cadran d'émail est entouré de fleurs en métal
 doré où sont sertis des cabochons de verres roses et
@@ -1937,7 +1935,7 @@ ancien, inquiet et tourmenté. Mon âme est pleine d'une
 joie abondante et confuse, d'une sensation inexprimable de bien-être, qui s'étale en moi, comme de larges
 flots, où surnagent seulement quelques perceptions
 éclatantes, qui me rendent plus heureux, sans que j'en
-aie bien conscience : la couleur rouge vif des géraniums posés sur le rebord de la fenêtre, l'eau qui tombe
+aie bien conscience: la couleur rouge vif des géraniums posés sur le rebord de la fenêtre, l'eau qui tombe
 sur la place voisine, dans la fontaine, le bruit mat d'une
 boule qui roule sur la terre, dans le jeu de quilles, sous
 les arbres du jardin.
@@ -1946,27 +1944,27 @@ Aujourd'hui j'ai senti le frôlement de l'épouvante.
 Sur un ordre téléphonique, venu de la place, on fait
 un exercice de mobilisation. L'illusion est telle, dans
 cette vérité du cadre et du détail, qu'il faut faire eftort
-pour ne pas croire à l'affreuse réalité : la guerre.
-Branle-bas de combat. Les wagonnets chargés d'obus |
-î roulent sur les rails, avec un sourd grondement qui
+pour ne pas croire à l'affreuse réalité: la guerre.
+Branle-bas de combat. Les wagonnets chargés d'obus
+roulent sur les rails, avec un sourd grondement qui
 emplit les voûtes de pierre, les plaques tournantes
 sonnent, des portes métalliques battent. Dans la cour
 on entend la trépidation d'une machine à vapeur, qui
-va actionner la dynamo pour les projecteurs électriques. Les hommes sont répartis en équipes de travail
-toile et d'uniformes. Ceux qui vont se battre, en collection de guerre, sac au dos, partent le long des che- |
-mins pierreux vers les batteries avancées. Déjà sous les ;
+actionner la dynamo pour les projecteurs électriques. Les hommes sont répartis en équipes de travail
+toile et d'uniformes. Ceux qui vont se battre, en collection de guerre, sac au dos, partent le long des che-
+mins pierreux vers les batteries avancées. Déjà sous les;
 peupliers de la route, dans la plaine, défilent en longues
 masses d'un bleu sombre les régiments d'infanterie.
-L'artillerie de campagne prend position dans les labours ; |
+L'artillerie de campagne prend position dans les labours;
 une fumée blanche, puis deux, puis trois et les sons
-nous arrivent, grêles, rageurs, trouant l'air. Tout à |
-l'heure nous allons faire entendre notre grosse voix. |
+nous arrivent, grêles, rageurs, trouant l'air. Tout à
+l'heure nous allons faire entendre notre grosse voix.
 Nous sommes restés dans le fort, nous l'équipe de la
 tourelle; attendant le signal: A vos postes. Nous
 
 sommes dans nos vêtements de grosse toile grise, où
-pas une bande rouge, pas un bouton de cuivre n'apparaît ; rien qui révèle l'uniforme, nous sommes pareils à
-des ouvriers d'usine ; l'usine à fabriquer la mort. En ce
+pas une bande rouge, pas un bouton de cuivre n'apparaît; rien qui révèle l'uniforme, nous sommes pareils à
+des ouvriers d'usine; l'usine à fabriquer la mort. En ce
 moment s'offre à moi, saisissant, le caractère étrange
 des guerres modernes, des guerres futures, avec leurs
 machines compliquées, leur allure paradoxale d'expé-
@@ -1984,8 +1982,8 @@ cela a disparu. La guerre a perdu son horrible beauté.
 Un timbre électrique vibre. A nous, maintenant. Par
 la gaine de maçonnerie, nous pénétrons dans la tourelle.
 
-Une angoisse vous étreint, pèse sur vos épaules, $
-écrase votre poitrine sous la lourde calotte d'acier, |
+Une angoisse vous étreint, pèse sur vos épaules,
+écrase votre poitrine sous la lourde calotte d'acier,
 peinte à l'intérieur en blanc cru. Chacun des voussoirs
 pèse des tonnes, par l''embrasure des pièces on voit un
 peu de ciel bleu, et on se rend compte en se penchant
@@ -2011,17 +2009,17 @@ Une échelle de fer descend dans un puits noir. Dans
 les profondeurs de la terre, sous une voûte de pierres
 de taille énormes, entre des murs de béton, une machine
 à vapeur est sous pression; c'est elle qui tout à l'heure
-fera tourner le formidable appareil ; par la porte du
-foyer entr'ouverte, des lueurs de brasier sortent ; devant
+fera tourner le formidable appareil; par la porte du
+foyer entr'ouverte, des lueurs de brasier sortent; devant
 le rouge flamboiement de la flamme, des silhouettes
 d'hommes se démènent jetant du charbon dans la gueule
 béante. C'est étrange et terrible: on dirait un monstrueux travail de Cyclopes.
 
 Tout à coup une voix lointaine sort d'un cornet
-acoustique : en avant; la machine sifile, soufile, la
+acoustique: en avant; la machine sifile, soufile, la
 vapeur fuse, les engrenages du treuil de fer grinceni,
 
-Et là haut sur nos têtes, une détonation formidable .
+Et haut sur nos têtes, une détonation formidable.
 retentit, les deux pièces partent à la fois. L'air vibre et
 nos lampes s'éteignent, et dans les ténèbres lourdes,
 angoissantes, on n'entend plus que la respiration haletante de la machine, le sifflement de la vapeur qui fuse
@@ -2034,9 +2032,9 @@ Je songe à la mort affreuse de ceux qui seraient là,
 dans les entrailles de la terre, au jour où les obus à
 
 pointe d'acier ouvriraient jusqu'à eux leur trou de à
-mine. Oh! cette mort, sous l'écrasement des dalles de !
+mine. Oh! cette mort, sous l'écrasement des dalles de!
 pierre, dans l'éboulement des terres, parmi les jets
-_  brûlants de vapeur. Consolante et presque douce, la
+brûlants de vapeur. Consolante et presque douce, la
 vision de la mort sur le champ de bataille, sous le
 soleil, dans l'air libre, dans l'espace. Mais là...
 Quand, l'ordre de cesser le feu donné, nous sortons
@@ -2047,51 +2045,51 @@ eaux paisibles, les cultures, les sainfoins roses et les
 blés roux, mouvante parure jetée par le travail de
 l'homme sur les flancs sacrés de la terre.
 
-« Allons, ça se tire. » Les premiers réservistes sont
+« Allons, se tire. » Les premiers réservistes sont
 arrivés. Nous en avons trois ou quatre « à la carrée ».
 Ils se tiennent à l'écart dans les premiers moments, ils
 causent entre eux. Dès qu'ils ont revêtu l'uniforme, ils
 sont tout autres; ils affectent l'aisance, l'allure dégagée
-du soldat de l'active, se mettent à parler le jargon ”
+du soldat de l'active, se mettent à parler le jargon
 pittoresque du métier, crient la classe, se traitent de
 sales bleus, font des farces aux moins dégourdis, avec
 cette jeunesse de caractère qui dure longtemps dans
 tout homme simple.
 Autour d'eux tournent des convoitises, des complaisances s'empressent intéressées. Les pauvres diables
-; de la pièce leur offrent de « faire leur truc », s'emparent
+; de la pièce leur offrent de « faire leur truc s'emparent
 de leurs armes, les visitent et les nettoient, dans l'espé-
 rance d'une aubaïne inattendue, quelques sous à
 gagner, une chopine de vin blanc à lamper, à la
 Leur venue est un sujet de conversations inépuisables. On rappelle de vieux souvenirs, on raconte des
 histoires, on parle du gros, qui faisait l'exercice sur la
-planche à pain, du petit qui avait du bon tabac de Belgique, de cet autre qui était si bête qu'on lui avait fait, ;
+planche à pain, du petit qui avait du bon tabac de Belgique, de cet autre qui était si bête qu'on lui avait fait,;
 pour une revue, badigeonner le plancher sous son lit avec
 du blanc de guêtre étalé au pinceau. Et les propos vont
-leur train ; mais la conclusion inattendue est toujours
+leur train; mais la conclusion inattendue est toujours
 
-_ la même, conclusion qu'on proclame en chœur : Non ça
+la même, conclusion qu'on proclame en chœur: Non
 n'est pas juste, des pères de famille qui ont des enfants,
 un commerce des fois. Ils ne devraient pas venir ici.-
-_ « Nous au moins, nous faisons notre temps, et nous
+« Nous au moins, nous faisons notre temps, et nous
 n'avons personne à nourrir. »
 
 Sentiment profond de la justice, ancré au cœur des
 humbles, de toutes les notions morales, la moins contestée et la plus haute. — N'es-tu pas l'assise inébranlable
-pour refaire le vieux monde ?
+pour refaire le vieux monde?
 
 Pendant tout le temps qu'ils seront ici, qu'ils rentrent
 trempés de pluie, ouruisselants de sueur, qu'ils s'effarent
 à la pensée d'une corvée ou d'une garde, toujours Hein,
 Boche, Hersapuech, ou tout autre, s'approchant d'eux,
 leur dira, compatissant, dans un clignement d'yeux et
-un haussement d'épaules :
+un haussement d'épaules:
 
-* —Si c'est pas malheureux. Pour ce que vous faites ici.
+—Si c'est pas malheureux. Pour ce que vous faites ici.
 Comme si vous ne seriez pas mieux à côté de vos
 
-Je m'approche des nouveaux venus, et je cause volontiers avec eux. Ce sont des hommes faits : leur conversation est savoureuse, la vie en les modelant, leur a
+Je m'approche des nouveaux venus, et je cause volontiers avec eux. Ce sont des hommes faits: leur conversation est savoureuse, la vie en les modelant, leur a
 
-donné une empreinte différente ; ils ne ressemblent pas |
+donné une empreinte différente; ils ne ressemblent pas
 tout à fait à ceux qui m'entourent. Ceux qui viennent
 des champs apportent une âme simple et rude, un fort
 
@@ -2117,12 +2115,12 @@ parle peu, et soupçonne vaguement notre défiance, à
 
 tous, qui plane sur lui et s'attache, hautaine, à chacun
 
-de ses gestes. Les ouvriers parisiens surtout ne peuvent |
+de ses gestes. Les ouvriers parisiens surtout ne peuvent
 
 s'empêcher de temps à autre de lancer un brocard au
 larbin. Il faut entendre Boche, d'un bout de la chambre
 à l'autre, lui jeter par dessus les paillasses alignées,
-son titre injurieux et solennel : « Hé là-bas, le valet de
+son titre injurieux et solennel: « là-bas, le valet de
 chambre ». Il en a plein la bouche. L'autre répond, sans
 avoir l'air de comprendre. Et ce sont des allusions perfides « à la voiture de Monsieur, au pot de chambre de
 Monsieur ». Dans quelques propos évasifs, nous avons
@@ -2152,49 +2150,48 @@ un étau.
 
 J'ai trouvé en lui une intelligence fine, souple, déliée
 
-l'Aube fraternelle :
-comme un des outils d'acier qu'il doit manier si souvent. |
-C'est un esprit clair et précis, à qui l'habitude d'un :
+l'Aube fraternelle:
+comme un des outils d'acier qu'il doit manier si souvent.
+C'est un esprit clair et précis, à qui l'habitude d'un:
 métier un peu relevé donne un sens très sûr des réa-
-lités, de la vie pratique. Il a sur la politique des vues |
+lités, de la vie pratique. Il a sur la politique des vues
 nettes, qui marquent un effort de réflexion, le goût de
 la critique, le dédain des opinions reçues. D'un mot
 aigu, d'une remarque incisive, il perce à jour bien des
-ridicules, bien des prétentions qui s'affirment autour de |
+ridicules, bien des prétentions qui s'affirment autour de
 nous, au dehors, dans la vie publique. Où il a été mer- à
-veilleux, c'est quand on l'a mis au courant des inven- |
+veilleux, c'est quand on l'a mis au courant des inven-
 tions nouvelles, des procédés récents de lartillerie.
-Tout de suite, il a compris les mécanismes déjà compliqués, allant d'instinct aux principes mathématiques |
+Tout de suite, il a compris les mécanismes déjà compliqués, allant d'instinct aux principes mathématiques
 ou physiques dont ils sont l'application. Fureteur et
 curieux, il s'est mis à tourner des vis, à faire sauter des
 écrous, pour étudier les appareils avec une sûreté de
-doigts amusante, perfectionnant même leur emploi par .
+doigts amusante, perfectionnant même leur emploi par.
 un tour de main à lui et trouvant les points faibles, avec
 un flair surprenant. Toujours la même constatation
-s'impose à mon esprit : quel gaspillage d'intelligence
+s'impose à mon esprit: quel gaspillage d'intelligence
 dans les sociétés modernes; qu'il serait à désirer que
 des sollicitudes gouvernementales allassent dans le
 peuple chercher de tels germes, pour les envelopper de
 tiédeurs, de soins, pour en provoquer l'éclosion. —
-Quelles injustices, et quels hasards monstrueux prési- ;
+Quelles injustices, et quels hasards monstrueux prési-;
 dent à la répartition de l'éducation, à la distribution de
-la science ? J'imagine cet esprit d'une trempe si fine,
+la science? J'imagine cet esprit d'une trempe si fine,
 d'une pointe si nette, aiguisé par les méthodes, assoupli par les escrimes intellectuelles, et je devine de merveilleuses découvertes dans la nature, des faits conquis,
-la matière domptée pour des énergies nouvelles, |
+la matière domptée pour des énergies nouvelles,
 Mais un surtout n'est sympathique.
-82
 
-n C'est un laboufeur des environs de Senlis. J'ai reconnu
-x tout de suite l'homme des champs, à sa chemise de
-#4 grosse toile rude, que la ménagère a tirée de l'armoire
+C'est un laboufeur des environs de Senlis. J'ai reconnu
+tout de suite l'homme des champs, à sa chemise de
+4 grosse toile rude, que la ménagère a tirée de l'armoire
 ; de noyer où elles sont empilées par douzaines, à ses
-“ gros souliers aux épaisses semelles garnies de pioches.
+gros souliers aux épaisses semelles garnies de pioches.
 Toute une cordialité franche, rude sort de sa personne,
 de ses yeux bleus, clairs et vagues, comme ceux des
 bêtes dans les pacages, de sa toison blonde hérissée
 en gros épis sur sa tête. Après quelques mots échangés,
 quelques petits services rendus, ma blague tendue un
-| jour qu'il retournait ses poches à la recherche d'une
+jour qu'il retournait ses poches à la recherche d'une
 pincée de tabac, voilà une grande intimité entre nous.
 Il parle d'une grosse voix douce, où chantonne un
 accent qui n'est inconnu, il emploie des formules d'une
@@ -2204,18 +2201,18 @@ le français d'Amyot.
 Sans arrière-pensée, sans détours, avec une confiance
 qui fait du premier coup ma conquête, il me raconte sa
 4 vie. Il y a quelques années qu'il s'est marié, il a deux
-< petits enfants. Le bien a gardé tout son prix là-bas, et il
+petits enfants. Le bien a gardé tout son prix là-bas, et il
 a fallu travailler pour arrondir les parcelles que le père
 lui avait laissées. Les débuts ont été difficiles, voilà-t-il
 pas que l'année même de son mariage, alors que l'étable
 était pleine de vaches, de moutons, la fièvre aphteuse
-| s'y est mise. C'est un voisin qui achète du mauvais
+s'y est mise. C'est un voisin qui achète du mauvais
 bétail à la ville, qui avait amené « la maladie ». La façon
 dont il dit ce mot « la maladie ». Toute la simple épou-
 ; vante qu'il y fait tenir. Il les a soignées, toutes ses bêtes,
-F et les a guéries, mais je ne jurerais pas que les remèdes
-| fussent d'une orthodoxie rassurante. Il y entrait du jus
-| de tabac, des décoctions de plantes, c'était un peu une
+et les a guéries, mais je ne jurerais pas que les remèdes
+fussent d'une orthodoxie rassurante. Il y entrait du jus
+de tabac, des décoctions de plantes, c'était un peu une
 
 l'Aube fraternelle
 cuisine de sorcier et la bizarrerie des remèdes a l'air
@@ -2223,41 +2220,41 @@ de lui avoir donné une foi robuste dans leur efficacité. À
 — C'est bien la superstition des campagnes, la défiance
 à l'égard de la science, trop simple, et qui se présente
 sans mystère. À
-Il fait le charroï des bois de grume à Paris. Chose :
+Il fait le charroï des bois de grume à Paris. Chose:
 curieuse, il a le plus profond dédain pour la grande
 arrête jamais à ses voyages. Ce charroi l'occupe, quand
 les travaux des champs chôment, et lui fait gagner
 Mais ce qui revient toujeurs dans ses propos, c'est
 une inquiétude pour ses bêtes. « Quand le maître n'est
-pas là dame... vous savez, on a beau avoir confiance, \
-les autres ça n'est pas vous... si j'avais une permission,
+pas dame... vous savez, on a beau avoir confiance,
+les autres n'est pas vous... si j'avais une permission,
 j'irais faire un tour là-bas et je serais plus tranquille.
 Justement j'ai un cheval qui a souvent des coliques.
 C'est mauvais ces tranchées, il faut rester toute la nuit À
-à côté de lui à le bouchonner. » ‘4
+à côté de lui à le bouchonner. »
 Il me parle aussi avec une fierté, et une reconnaissance presque émouvante d'un autre cheval, à lui, un
-vieux blanc, encore solide du collier : « J'ai commencé :
+vieux blanc, encore solide du collier: « J'ai commencé:
 avec lui, il y a plus de vingt ans, mais quelle bête. Je
 lui collerais la charge de quatre autres, qu'il démarre-
-rait encore. » Et il ajoute, et cela est beau : « Ah! celui-là ,
-ne sortira pas de chez moi. Il y crèvera, dans l'herbe ;
-Ce matin justement, par une aube grise et pluvieuse, #
+rait encore. » Et il ajoute, et cela est beau: « Ah! celui-là,
+ne sortira pas de chez moi. Il y crèvera, dans l'herbe;
+Ce matin justement, par une aube grise et pluvieuse,
 nous étions penchés à la fenêtre ouverte, attendant le
-moment de descendre dans ia cour. On sortait de l'écu- |
+moment de descendre dans cour. On sortait de l'écu-
 rie le cadavre d'un pauvre cheval mort pendant la nuit.
 C'était lugubre, cette carcasse au ventre gonflé, traînée
 
 É sur une échelle, tendant en l'air ses quatre jambes
 : raides comme des pieux. La tête lamentable avec ses
 L. oreilles fripées traînait dans la boue et la chose inerte, -
-i que la mort s'acharnait méchamment à rendre gro3 tesque, s'en allait chez l'équarrisseur. Les autres che-
-| vaux restés à l'écurie frappaient du pied sur le pavé,
+que la mort s'acharnait méchamment à rendre tesque, s'en allait chez l'équarrisseur. Les autres che-
+vaux restés à l'écurie frappaient du pied sur le pavé,
 
 réclamant leur ration d'avoine ou de foin, dans un
 ù bruit de chaînes secouées.
 
-Le laboureur n'a dit simplement : « Pas gai de penser
-| que pareille chose ést peut-être arrivée chez soi. »
+Le laboureur n'a dit simplement: « Pas gai de penser
+que pareille chose ést peut-être arrivée chez soi. »
 
 Des marches, de dures journées, des manœuvres dans
 la montagne.
@@ -2268,7 +2265,7 @@ ouvertes on voit des feux qui flambent dans les cheminées.
 
 Les paysans, les yeux gros de sommeil, bâillent,
 s'étirent, regardent le ciel. Des faucheurs assis devant
-les granges, battent leur faux sur l'enclume d'acier :
+les granges, battent leur faux sur l'enclume d'acier:
 des chiens aboient.
 
 Nous passons, nos trompettes sonnent en fanfare, et
@@ -2286,33 +2283,33 @@ canaux, s'étalent en bassins tournoyants, montent des
 souffles si froids, si parfumés, qu'on dirait que des
 sur nos visages la caresse de leur fraîcheur.
 
-| Maïs le soleil monte, il fait chaud au fond des vallées,
+Maïs le soleil monte, il fait chaud au fond des vallées,
 le chemin est blanc et poussiéreux. On a beau rompre
 les rangs, prendre le pas de route, un fin nuage gris se
 lève du sol, nous enveloppe, nous prend à la gorge,
-.  dessèche nos lèvres. Les sources sont taries; on traverse
+. dessèche nos lèvres. Les sources sont taries; on traverse
 des plateaux rocailleux où le soleil tombe en coulées
 de métal sur des pierres rongées de mousse. Pas un
 Alors, dans la chaleur accablante qui monte du sol,
 une torpeur vous prend. Une à une les idées s'éteignent
 dans le cerveau; une, deux, une, deux, la tête baissée
 vers la terre; les yeux suivent le mouvement des
-guêtres blanches de l'homme qui vous précède : les
+guêtres blanches de l'homme qui vous précède: les
 quarts miroitent sur les vestes blanches de poussière.
-Une, deux, on marche machinalement, le va et vient
+Une, deux, on marche machinalement, le et vient
 des mains, des pieds, l''ondulation des épaules, tous
 ces rythmes de la marche simultanés, répétés, iden-
-| tiques agissent à la façon d'un narcotique puissant et
+tiques agissent à la façon d'un narcotique puissant et
 endorment la pensée. Et dans la demi-inconscience où
 l'on flotte, pointe comme une lueur vive dans une
 pénombre, le désir de la halte, de l'étape, du repos.
 Voici un bois. On s'arrête, on forme les faisceaux.
 Il y fait frais et l'on croit sortir d'un rêve. A travers le
 feuillage fin des coudriers, des trembles, des hêtres,
-| tombe une pluie de gouttes d'or. Bois de la montagne,
+tombe une pluie de gouttes d'or. Bois de la montagne,
 … où le sol est une prairie d'herbe haute, de gramens
 frêles, de digitales, de larges fougères. Les nuits sont
-déjà fraîches et les rosées abondantes ; sous le couvert
+déjà fraîches et les rosées abondantes; sous le couvert
 … des arbres, les plantes en sont encore toutes mouillées;
 aux pointes aiguës des feuilles, sur la terre, et dans l'air,
 les fines gouttelettes tremblent, brillent, miroitent; du
@@ -2345,42 +2342,42 @@ Au dehors la nuit tombe. Les jours sont plus courts.
 Il faut allumer les lampes avant l'appel du soir.
 
 L'étape était longue, la route poudreuse, le soleil
-brûlant. Tout à coup un vertige na pris, je suis tombé
+brûlant. Tout à coup un vertige pris, je suis tombé
 sur le sol. La plaine tournoyait, des arbres lointains
 défilaient dans une ronde, j'entendais comme dans un
 rêve sonner sur le solles pas des camarades qui s'éloignaient... Plus rien.
 
 Quand je suis revenu à moi, une immense douceur
 m'enyahit à la vue du ciel lumineux, des champs
-baignés de soleil ; mes membres las devenaient légers,
+baignés de soleil; mes membres las devenaient légers,
 il me semblait que je me fondais dans les choses.
 
 Penchés sur moi, Jean Hersapuech et le laboureur
 de Senlis, me souriaient; ils étaient proches et lointains, et j'entendais leurs voix étranges et douces.
 
-| — Allons ça va mieux. — Avec une tendresse mala-
-| droite, ils raïllaient ma faiblesse, ils m'excusaient d'être
-si douillet. — Ça n'est pas habitué à la dure.
+— Allons mieux. — Avec une tendresse mala-
+droite, ils raïllaient ma faiblesse, ils m'excusaient d'être
+si douillet. — n'est pas habitué à la dure.
 
 Et le laboureur approchait de mes lèvres un quart
 plein de vin que l'autre avait versé de son bidon;
 passant sous ma tête sa grosse main calleuse, il me
 
-| Puis ils ont pris mon sac et l'ont porté, tour à tour.
+Puis ils ont pris mon sac et l'ont porté, tour à tour.
 
-| Je les suivais péniblement, le corps défaillant, l'âme
+Je les suivais péniblement, le corps défaillant, l'âme
 neuve, sentant confusément sourdre en moi des émotions inconnues.
 
 Nous sommes une vingtaine, couchés, debout, assis,
 dans une fourragère. Il y a un tir réel à projectiles,
-nous sommes la corvée de « cafuts », chargée d'aller
+nous sommes la corvée de « cafuts chargée d'aller
 sur le champ de tir ramasser les éclats d'obus. C'est
 un pêle-mêle amusant dans la voiture, les uns sont
 couchés sur les planches du fond, d'autres perchés
 dans les barreaux de l'échelle, sur le devant.
 
 L'automne s'avance. Ces jours derniers, dans nos
-marches, nous l'avons bien vu en traversant les vignobles. Le manteau clair couleur d'émeraude jeté sur
+marches, nous l'avons bien en traversant les vignobles. Le manteau clair couleur d'émeraude jeté sur
 le flanc des vieux monts se fonce par places de pourpre,
 ou s'avive de jaune pâle. Ce n'est rien encore et pour
 s'en apercevoir il faut avoir un œil habitué aux colo
@@ -2402,7 +2399,7 @@ Voilà que sur nos têtes, la voûte s'éclaircit, se subti-
 
 1% lise, on devine que dans les hauteurs de l'air, le soleil
 
-x plus ardent perce la couche de brumes et qu'il les
+plus ardent perce la couche de brumes et qu'il les
 
 dissipera tout à l'heure. Mais nous n'en voyons rien et
 
@@ -2414,7 +2411,7 @@ dissipera tout à l'heure. Mais nous n'en voyons rien et
 le champ de notre vision s'agrandit et que des lueurs
 fauves de cuivre s'accrochent aux feuilles drues et
 
-| trempées de rosée dans les champs de betteraves. Puis À
+trempées de rosée dans les champs de betteraves. Puis À
 la brume se fond, se dissipe, s'envole, traîne en longs
 lambeaux que la brise efliloche, qui roulent et se
 déchirent à la cime des bois. Et le soleil emplit la
@@ -2426,11 +2423,11 @@ Quelle drôle de chanson et comme elle me déconcerte
 avec son mélange saugrenu de sagesse philosophique
 exprimée en style noble, et d'argot soldatesque. Quel
 
-| humoriste s'amusa pour l'ironie du rapprochement,
+humoriste s'amusa pour l'ironie du rapprochement,
 à continuer Horace, par Courteline, et mêla du Bossuet
-aux élucubrations de Lidoire ?
+aux élucubrations de Lidoire?
 
-Telle quelle, la voici :
+Telle quelle, la voici:
 
 Dans cette vie
 Où tout varie
@@ -2444,7 +2441,7 @@ par Boche), et se termine par un point d'orgue majestueux sur l'as de carreau.
 Quelques heures plus tard, nous sommes tous couchés
 derrière un talus de terre, les yeux fixés sur un point
 de l'horizon, où dans un renflement du sol luit comme
-un reflet de métal. C'est la tourelle qui va tirer tout à
+un reflet de métal. C'est la tourelle qui tirer tout à
 l'heure. Devant nous s'ouvre une plaine immense, avec
 des bouquets de saule, quelques labours et la ligne
 blanche des panneaux minuscules.
@@ -2470,7 +2467,7 @@ la plaine en contre-bas. Quand nous arrivons au bord
 de la prairie, où sont les panneaux, nous comprenons
 qu'il est impossible d'aller plus avant. Les fossés ont
 débordé, c'est une inondation, une vaste mare, d'où
-émergent les fines pointes des herbes et les calices |
+émergent les fines pointes des herbes et les calices
 mauves des colchiques d'automne déjà fleuris; par
 places, l'eau est plus profonde, et les vieux saules, les
 têtards, sont noyés jusqu'à leurs grosses branches.
@@ -2478,7 +2475,7 @@ têtards, sont noyés jusqu'à leurs grosses branches.
 Les cafuts, les éclats, les culots sont audiable, au fond
 de l'eau, qu'ils y restent. Entre vingt, nous en ramassons
 bien une livre. Nous avons pour la porter seize sacs à
-distribution, de grands sacs où on met l'avoine. Ça
+distribution, de grands sacs où on met l'avoine.
 nous fait rire longuement cette livre de ferraille dans
 seize sacs portée par vingt hommes. Un mois à peine
 me sépare de la libération. Je vais reprendre ma vie de
@@ -2496,7 +2493,7 @@ des jeunes hommes, penchés sur les échos encore
 
 vibrants de la voix de Jean-Jacques et d''Obermann.
 
-Pourtant il y a quelque changement en moi : je sors
+Pourtant il y a quelque changement en moi: je sors
 d'ici meilleur que je n'y étais entré.
 
 Jamais je n'oublierai ce visage grave, penché sur
@@ -2505,7 +2502,7 @@ moi, du laboureur de Senlis, les traits rudes et dou-
 l'Aube fraternelle
 
 loureux de Jean Hersapuech. Jamais je n'oublierai la
-fraîcheur, douce à mes lèvres, du quart de vin bu dens
+fraîcheur, douce à mes lèvres, du quart de vin dens
 
 la fièvre du soleil et de la marche, espèces symboliques
 
@@ -2518,16 +2515,16 @@ rappeler sans cesse la joie naïve du peuple, sa résigna-
 tion et sa facile bonté. Donnez-moi la haine de ce qui
 n'est pas comme vous droit, simple, fort.
 
-n Je tousse depuis quelques jours. J'ai pris froid : je
+Je tousse depuis quelques jours. J'ai pris froid: je
 tremble de fièvre, les soirs, et la poitrine me fait mal.
 
-A la visite, le major qui m'a ausculté, a dit : « Ce n'est
+A la visite, le major qui m'a ausculté, a dit: « Ce n'est
 rien, un peu de fatigue, quelques jours de repos et il
 n'y paraîtra plus. »
 
 On m'a envoyé à l'hôpital militaire de X... Une voiture d'ambulance est venue me prendre.
 
-Je suis vaguement inquiet : est-ce l'effet de mauvaises
+Je suis vaguement inquiet: est-ce l'effet de mauvaises
 nuits, de cauchemars, de mouvements de fièvre? Toutes
 sortes d'idées tristes tournent dans ma tête, m'obsèdent,
 s'éloignent, reviennent, des craintes que je n'ose formuler de façon précise, dans une pensée superstitieuse.
@@ -2552,8 +2549,8 @@ de la rumeur des mondes qui naissent.
 
 Imprimerie de Suresmes (E. PAYEN, administrateur), 9, rue du Pont. — 6607
 
-_ Ce cahier a été composé et tiré au tarif des ouvriers
+Ce cahier a été composé et tiré au tarif des ouvriers
 
-Fini d'imprimer deux mille exemplaire s de ce
+Fini d'imprimer deux mille exemplaire de ce
 ‘te euxième cahier le jeudi 23 octobre 1902
-FOIS 9-rue-du Pont, : NT RSR
+FOIS 9-rue-du Pont,: RSR

@@ -12,16 +12,16 @@ Mie. paraissant vingt fois par an Sem
 
 Nos anciens abonnés savent et nos nouveaux abonnés À
 verront que nous ne faisons dans ces cahiers aucune
-réclame. Ce qui suit n'est donc en aucun sens de Ru
+réclame. Ce qui suit n'est donc en aucun sens de
 
-Je me permets d'insister pour que nos abonnés di page 249, le coupon qui leur permet d'aller avec un Ne
-ami assister à une représentation dù 14 Juillet. Moi
+Je me permets d'insister pour que nos abonnés page 249, le coupon qui leur permet d'aller avec un Ne
+ami assister à une représentation 14 Juillet. Moi
 qui ne mets jamais les pieds au théâtre, j'y suis allé.
 J'y retourne. Il y a un intérêt considérable, comme je
 lexpliquerai dans un prochain cahier, à soutenir très
 vigoureusement l'effort du grand compositeur qu'est
 
-Ii ne s'agit pas d'organiser une cabale pour faire
+ne s'agit pas d'organiser une cabale pour faire
 marcher une pièce qui paraît vouloir aller toute seule.
 
 Mais il s'agit que nous ne fassions pas porter à l'action
@@ -36,14 +36,14 @@ Il ne s'agit pas d'envoyer du monde aux représentations. Il s'agit qu'on y aill
 
 Nous aussinous devons nous préparer aux prochaines
 élections. Nous prions nos abonnés de vouloir bien nous
-envoyer les programmes, affiches, circulaires intéressantes qui leur viendraient en mains. Nous en constitue- |
+envoyer les programmes, affiches, circulaires intéressantes qui leur viendraient en mains. Nous en constitue-
 rons des dossiers. Nos abonnés sauront choisir, nous
 
-= renseigner sans nous encombrer. : FAN.
+renseigner sans nous encombrer.: FAN.
 
 Quelques-uns de nos abonnés se sont émus de ce que
 J'avais fait des personnalités dans le septième cahier de
-_ la troisième série. On peut lire dans le deuxième cahier
+la troisième série. On peut lire dans le deuxième cahier
 de la première série
 Quand j'eus recueilli tous ces renseignements sur la
 lutte personnelle qui suivit l'explosion du manifeste, je
@@ -56,22 +56,22 @@ travail des enfants, des filles mineures et des femmes
 dans les établissements industriels. Je ramassai donc
 tous mes documents, et je m'en allai trouver le citoyen
 docteur socialiste révolutionnaire moraliste internationaliste. Mais j'étais un peu confus de ce que je lui apportais. Car j'avais en mains un cahier presque tout entier
-plein de personnalités. Or on n'a dès longtemps et fort ‘
+plein de personnalités. on n'a dès longtemps et fort
 pertinemment enseigné à négliger les personnalités
 nous devons, m'avait-on dit, négliger les personnalités
 nous sommes les soldats d'une armée universelle; nous
 travaillons et nous combattons pour un idéal universel;
-nous préparons la révolution sociale universelle : nous
-n'avons à considérer ni les spécialités, ni les particularités, ni les individualités, ni même les personnalités, di
+nous préparons la révolution sociale universelle: nous
+n'avons à considérer ni les spécialités, ni les particularités, ni les individualités, ni même les personnalités,
 
-douzième cahier de la troisième sé + RS
-mais seulement les généralités et les universalités : Ne
+douzième cahier de la troisième
+mais seulement les généralités et les universalités: Ne
 ainsi me l'enseignaient naguère des maîtres que j'avais. ont
 Je présentai mes scrupules au docteur, car étant mora- DATE
-liste il est casuiste : j'entends par là qu'il travaille dans”
+liste il est casuiste: j'entends par qu'il travaille dans”
 les cas de conscience; non pas qu'il donne avec auto.
 rité des ordonnances et des commandements, mais il
-présente modestement des consultations, il propose sl
+présente modestement des consultations, il propose
 pour la résolution de ces cas les solutions qui lui
 paraissent conformes à la raison.
 — Citoyen docteur, je voulais faire un cahier avec
@@ -80,7 +80,7 @@ préparation du Congrès socialiste national, tout récemment tenu à Paris, dan
 Mais nous ne pouvons pas maîtriser le destin. J'avais
 . résolu de commencer par classer tous les documents et
 tous les renseignements personnels; je négligeais artificieusement les documents et les renseignements venus
-des groupes et des organisations : car pendant que les
+des groupes et des organisations: car pendant que les
 individus citoyens engageaient la conversation tumultueuse et de plus en plus générale dont vous avez
 en mains les premiers éléments principaux, un immense mouvement naissait dans les provinces lointaines et dans les rangs lointains des soldats ignorés.
 Pendant que les personnages continuaient à s'adresser
@@ -91,30 +91,30 @@ hommes libres amis de la droiture. Aussi le chœur
 ; ne laissait-il pas échapper des soupirs, des sanglots et
 des paroles de lâcheté, mais il prononçait des paroles
 dures et libres et droites, audacieux et lui-même étonné À
-| d'introduire la grosseur de sa voix dans la conversation
+d'introduire la grosseur de sa voix dans la conversation
 
-© des chef. Je pensais donc qu'il y aurait dans ce cahier
-ke grandissante voix de la foule et du peuple anonyme
+des chef. Je pensais donc qu'il y aurait dans ce cahier
+grandissante voix de la foule et du peuple anonyme
 tre envahissant laudience publique et pour la première
 1 fois s'imposant aux conciliabules des chefs. J'aurais
-_ mis enfin dans ce cahier, avec la conversation des
+mis enfin dans ce cahier, avec la conversation des
 DEL chefs et l'envahissement du peuple, tout ce travail
-AR organique et ofliciel des organisations, qui dès le
-_ jeudi 20 juillet aboutissait à cette acceptation qui per_ mettait à la Petite République d'annoncer en une robuste manchetteles États-Généraux du Parti socialiste.
+organique et ofliciel des organisations, qui dès le
+jeudi 20 juillet aboutissait à cette acceptation qui per_ mettait à la Petite République d'annoncer en une robuste manchetteles États-Généraux du Parti socialiste.
 Telles étaient les trois parties dont j'avais pensé que
-se composerait ce cahier. Première partie : attaque soudaine et précautionneusement violente des principaux
+se composerait ce cahier. Première partie: attaque soudaine et précautionneusement violente des principaux
 défense et contre-attaque mesurée des hommes libres
-. aux manifestants; intervention générale des amis et ÿà
+. aux manifestants; intervention générale des amis et
 des camarades; conversation générale et de plus en
-plus broussailleuse. Deuxième partie : le peuple silencieux longtemps et indéfiniment patient des simples
+plus broussailleuse. Deuxième partie: le peuple silencieux longtemps et indéfiniment patient des simples
 soldats et des simples citoyens a été intimement secoué, remué à des profondeurs insoupçonnées par l'injustice du manifeste; le peuple s'émeut redoutable_ ment; le chœur s'émeut et du fond des provinces et du
 fond de Paris commence à faire parvenir la voix de ses
 résolutions; gagnant de proche en proche le mouvement redoutable se propage immense; les chefs et les
 manifestants commencent à s'apeurer, les hommes
-libres à se radoucir ; l'armée socialiste presque entière
+libres à se radoucir; l'armée socialiste presque entière
 impose le silence àux manifestants, le peuple socialiste
 impose le silence aux personnages. Troisième partie
-| enregistrant un peu grossièrement, exprimant un peu
+enregistrant un peu grossièrement, exprimant un peu
 lourdement le vaste et souple soulèvement des masses profondes, les organisations nationalement constituées,
 les anciennes organisations elles-mêmes entrent en
 conversation, l'une introduisant, la deuxième accueillant, les deux et demie suivantes acceptant des propositions de communication. Mes trois parties auraient
@@ -124,7 +124,7 @@ première partie aient envahi et débordé tout mon
 
 d'avoir laissé envahir tout un cahier par ces personnalités, car elles ont commis bien des envahissements
 beaucoup plus pernicieux. Ces cahiers vous paraissent
-importants parce que vous y travaillez, mais ils mont ‘
+importants parce que vous y travaillez, mais ils mont
 pour moi quelque intérêt que s'ils me présentent l'image
 fidèle de la réalité. Loin donc que je sois scandalisé
 que ces personnalités vous aient ainsi envahi tout un
@@ -134,22 +134,22 @@ l'image plus fidèle de la réalité. La réalité même, citoyen,
 a été dangereusement envahie par ces personnalités.
 Vous m'avez exposé, un peu verbeusement, comme un
 auteur qui a manqué sa pièce, un plan de cahier en
-trois parties bien disposées et bien composées : ces
+trois parties bien disposées et bien composées: ces
 personnalités ont dérangé beaucoup de plans d'action
 mieux composés que vous ne composerez jamais vos
-cahiers. Vous avez dû ajourner aux prochains cahiers
-la fin de la première partie, la deuxième et la troisième : ces personnalités ont fait ajourner des actions
+cahiers. Vous avez ajourner aux prochains cahiers
+la fin de la première partie, la deuxième et la troisième: ces personnalités ont fait ajourner des actions
 beaucoup plus urgentes que ne le sera jamais la publication de vos cahiers.
 
 LE — Je ne savais pas, citoyen, que mon cahier manqué
-| fût une image ainsi fidèle de la réalité. Vous croyez
+fût une image ainsi fidèle de la réalité. Vous croyez
 qu'en me laissant envahir par les personnalités je me
-_ Suis, sans le faire exprès, conformé au seul modèle que
+Suis, sans le faire exprès, conformé au seul modèle que
 je me sois jamais proposé. Mais la question que je vous
 soumets, parce qu'elle m'a donné des scrupules, est
-justement celle-ci : Doit-on se conformer toujours à la
+justement celle-ci: Doit-on se conformer toujours à la
 réalité? En particulier doit-on se conformer à la réalité
-quand elle nous présente l'action personnelle des personnalités ?
+quand elle nous présente l'action personnelle des personnalités?
 
 — Quand la question est ainsi posée, il me semble,
 citoyen, que la réponse n'est pas douteuse.
@@ -159,7 +159,7 @@ jamais faire de personnalités. Quand même on nous
 attaquerait avec des personnalités, nous devons négliger
 ce moyen de défense. En combattant les idées et les
 personnalités par les seules idées, nous donnons à la
-bataille un caractère plus noble, un caractère digne : il
+bataille un caractère plus noble, un caractère digne: il
 vaut mieux que la révolution sociale ait ce caractère, et
 en attendant que la révolution sociale soit parfaite il
 vaut mieux que la vie humaine ait ce caractère. » Telles
@@ -173,7 +173,7 @@ peu près, le sens que je vous donne. À
 discussion très vive, justement au moment du manifeste.
 J'étais intervenu dans la bagarre et je ne m'étais pas
 
-_ privé de faire des personnalités. J'entendis ces paroles
+privé de faire des personnalités. J'entendis ces paroles
 comme une leçon que je recevais. Je leur donnai la
 
 plus grande considération, une considération toute particulière, personnelle, profonde. Celui qui les avait
@@ -184,40 +184,40 @@ accessible. J'admirais sa modération, sa réserve, sa
 bonté. Je me demandai sérieusement si je n'avais pas
 été un muffle en faisant les personnalités que j'avais précédemment faites.
 
-= — Cette hypothèse de remords et cette hésitation de
+— Cette hypothèse de remords et cette hésitation de
 méthode m'a poursuivi sans relâche depuis lors. J'ai
 cherché à me renseigner en considérant les autres
-hommes : les uns, comédiens vulgaires, déclaraient tous
+hommes: les uns, comédiens vulgaires, déclaraient tous
 les quatre matins qu'il ne faut pas faire de personnalités
 et passaient le reste de leur temps à démolir sourdement les personnalités qui les embarrassaient; les
 autres, autoritaires inconséquents, faisaient les mêmes
 déclarations et partaient ouvertement en guerre féroce
 contre qui les gênait; les tiers, ceux qui ressemblaïent
 à ce jeune camarade, — et parmi ces tiers je mets Jau-
-' rès au premier rang, — déclaraient qu'il ne faut jamais
-| faire de personnalités et conformaient bonnement leur
-| conduite à leur parole : on avait beau les attaquer personnellement, sans doute ils se défendaïent personnelle-
+rès au premier rang, — déclaraient qu'il ne faut jamais
+faire de personnalités et conformaient bonnement leur
+conduite à leur parole: on avait beau les attaquer personnellement, sans doute ils se défendaïent personnelle-
 
-| ment, mais ils ne contre-attaquaient jamais personnellement. Quand je me comparais à ces derniers, — com- À
+ment, mais ils ne contre-attaquaient jamais personnellement. Quand je me comparais à ces derniers, — com- À
 
-ment en eflet se donner les références morales néces- saires à la conduite si l'on ne se compare pas? — il .
+ment en eflet se donner les références morales néces- saires à la conduite si l'on ne se compare pas? — il.
 m'apparaissait que j'étais laid en comparaison d'eux;
 
-Fe ils étaient évidemment, franchement bons. Mais cette
+ils étaient évidemment, franchement bons. Mais cette
 
-, _ constatation ne me suffisait pas, car je savais par une expérience douloureuse qu'il ne suffit pas qu'une action
+, constatation ne me suffisait pas, car je savais par une expérience douloureuse qu'il ne suffit pas qu'une action
 ait une apparence ou même une évidence première belle
 pour qu'elle soit morale; souvent une action belle em-
 
 À porte avec soi des corollaires ou des conséquences inaperçues, mais inséparables, et immorales; inversement
 j'avais connu qu'il y a des actions apparemment laides
 
-< qui non seulement sont morales maïs qui sont rigoureusement commandées par la loi morale. J'étais donc
-malheureux d'avoir eu l'air mufle, ou grossier, ou impoli. Mais je ne savais pas assurément si j'avais eu
+qui non seulement sont morales maïs qui sont rigoureusement commandées par la loi morale. J'étais donc
+malheureux d'avoir l'air mufle, ou grossier, ou impoli. Mais je ne savais pas assurément si j'avais
 tort. Mon trouble n'a point cessé. Je vous pose donc la
-question. Est-il permis de faire des personnalités ? Doiton faire des personnalités ?
+question. Est-il permis de faire des personnalités? Doiton faire des personnalités?
 
-— Cette expression : faire des personnalités a deux
+— Cette expression: faire des personnalités a deux
 sens un peu distincts selon que nous l'employons dans
 lordre de l'action ou dans l'ordre de la connaissance.
 
@@ -225,19 +225,19 @@ Le docteur commença ainsi, sans aucune honte, et
 surtout sans fausse honte; il ne pensait pas qu'il fût
 pédant ou poseur, quand on traite un sujet de philoso-
 
-_ phie ou quand on regarde en philosophe les actions,
+phie ou quand on regarde en philosophe les actions,
 même les plus familières, d'employer le langage de la
 philosophie; au contraire il pensait qu'il est pédant et
 poseur d'éviter mal à propos les mots de son métier,
 comme il est pédant et poseur de les employer mal à
-propos ; donc il pensaït que l'on doit parler induction
+propos; donc il pensaït que l'on doit parler induction
 et déduction quand il faut, ainsi que le menuisier parle
 tenons et mortaises.
 
 Dans l'ordre de la connaïssance, continua le docteur,
-faire des personnalités ne peut avoir qu'un sens : attribuer à certaines personnalités une action donnée. Je
+faire des personnalités ne peut avoir qu'un sens: attribuer à certaines personnalités une action donnée. Je
 
-suppose que tel événement se produise : on dira que
+suppose que tel événement se produise: on dira que
 nous faisons des personnalités si nous attribuons à telle
 personnalité telle part dans ces événements.
 
@@ -245,17 +245,17 @@ personnalité telle part dans ces événements.
 ces tel embarrassent un peu le champ de mon raisonnement.
 
 — Vous ferez bien, citoyen, de vous habituer un
-peu aux raisonnements abstraits : les raisonnements
+peu aux raisonnements abstraits: les raisonnements
 abstraits sont souvent commodes, pourvu qu'ils soient
 fidèles, et que l'on ait soin de les rapporter en définitive à la réalité concrète.
 
 — Rapportons, citoyen docteur, voulez-vous?
 
-— L'exemple est tout choisi : je constate que le manifeste se produit : on dira que nous faisons des personnalités si nous attribuons à la personnalité même de
+— L'exemple est tout choisi: je constate que le manifeste se produit: on dira que nous faisons des personnalités si nous attribuons à la personnalité même de
 Vaillant, de Lafargue et de Guesde la plupart de cet
 
-— Mais alors, citoyen docteur, comment ne pas faire |,
-de personnalités ?
+— Mais alors, citoyen docteur, comment ne pas faire
+de personnalités?
 
 — C'est ce que je me demande en vain, et j'en arrive
 ici à ne plus même saisir le sens de la question que
@@ -264,18 +264,18 @@ vous m'avez posée.
 — Pourtant, citoyen docteur, au moment où je vous
 l'ai posée il me semblait bien qu'elle avait un sens. Dans
 toutes les discussions publiques, aussitôt qu'onréplique
-à un orateur : « vous faites des personnalités », ‘ou
-bien : « ne faites pas de personnalités », l'orateur se
-tait et s'excuse ; il recommencera l'instant d'après, mais,
+à un orateur: « vous faites des personnalités ‘ou
+bien: « ne faites pas de personnalités l'orateur se
+tait et s'excuse; il recommencera l'instant d'après, mais,
 sur le moment, il croit devoir faire cette concession,
 témoigner cette déférence à l'opinion commune, ainsi
-formulée : « On ne fait pas de personnalités. » Enfin dans
+formulée: « On ne fait pas de personnalités. » Enfin dans
 les discussions les moins nombreuses, toujours l'interlo-
 
 cuteur s'arrête à ce reproche, comme s'il avait brus_ quement et par inadvertance violé la règle du. jeu.
 Depuis que j'assiste aux discussions publiques, privées,
 et mi-parties, je n'ai jamais entendu un seul citoyen
-_ répondre à l'interrupteur : « Parfaitement, monsieur, je
+répondre à l'interrupteur: « Parfaitement, monsieur, je
 fais des personnalités, parce que je dois faire ici des personnalités. » Non, toujours des excuses, des balbutiements, des reconnaissances, des promesses de ne pas
 recommencer, tenues ou non tenues, selon les caractères et selon les occasions. Si donc nous concluons que
 nous avons le droit, et que nous avons le devoir de
@@ -283,63 +283,63 @@ faire des personnalités, dans l'ordre de la connaissance,
 nous serons opposés à l'opinion commune, à lopinion
 générale de tous nos camarades et concitoyens, du
 public même. Enfin nous n'aurons pas pour nous ceux
-| qui font des personnalités, qui mangent des personnalités, qui nourrissent des personnalités, car ils ne
+qui font des personnalités, qui mangent des personnalités, qui nourrissent des personnalités, car ils ne
 Pavoueront jamais. Souvent ils n'osent pas se l'avouer
 
 —Je préfère n'avoir pas ces derniers avec moi,répondit
 le docteur. Mais vous ne m'effrayez pas en me déclarant
 que nous n'aurons jamais personne avec nous. Moi non
-plus je n'ai pas l'orgueil du troupeau : je ressemble ici
+plus je n'ai pas l'orgueil du troupeau: je ressemble ici
 au vénéré doyen. Je ne suis pas même épouvanté à
 l'idée que l'on pourrait me mettre en interdit, car il y a
-bien longtemps que je suis un hérétique : j'étais élève
+bien longtemps que je suis un hérétique: j'étais élève
 au lycée, en seconde, quand je fus hérétique, et encore À
-je ne sais pas si c'était mon commencement : les taupins
+je ne sais pas si c'était mon commencement: les taupins
 et les cornichons, — c'est ainsi que lon nommait ceux
 de nos camarades, plus glorieux et plus courageux
 que nous, qui préparaient les concours d'entrée à
 l'École Polytechnique et à l'École spéciale militaire de
 
-Saint-Cyr, — voulurent me mettre en quarantaine : je
+Saint-Cyr, — voulurent me mettre en quarantaine: je
 m'étais vivement insurgé contre la prétention qu'ils
 avaient de régenter la cour des grands, où je venais
 d'arriver; je m'étais vivement insurgé contre ces brimades par lesquelles on voulait nous démontrer la supériorité des anciens sur les nouveaux et des militaires
 sur les civils; ces élèves supérieurs des classes dirigeantes voulurent à peu près me mettre en quarantaine,
 et cela, si je n'avais peur d'employer un gros mot, pour
-me persécuter : ce fut ainsi que je connus le commencement de l'antisémitisme; je fus heureusement défendu
+me persécuter: ce fut ainsi que je connus le commencement de l'antisémitisme; je fus heureusement défendu
 par un bon nombre de civils aux poings vigoureux, qui
 sauvaient en moile président d'une association scolaire
 d'exercices physiques et jeux de plein air; les civils battirent les militaires, comme il arrive assez souvent quand
 les militaires ont laissé leur sabre à la maison; — j'aile
 regret de vous avouer qu'un assez grand nombre de ces
-bons civils sont aussi devenus depuis des antisémites ;—
+bons civils sont aussi devenus depuis des antisémites
 je ne sais pas si ce fut la première fois que je fus mis en
 interdit, mais assurément ce ne fut pas la dernière; etsi
-* jamais un Comité général me met en interdit parce que
+jamais un Comité général me met en interdit parce que
 j'aurai fait des personnalités, dans l'ordre de la connaissance, croyez bien que cette fois-là ne sera pas encore la dernière; je me suis insurgé contre toutes les
 brimades et tous les canulars et toutes ces vieïlles institutions par lesquelles un certain contingent d'autoritaires en nom collectif imposent ou veulent imposer à
 quelques libres individus la marque de la supériorité
-commune ; il ne faut pas m'en conter sur l'utilité de ces
-institutions pour assouplir les caractères et pour adoucir les mœurs; c'est au régiment que j'ai le moins eu à
-m'insurger contre ces brimades; je ne sais si j'ai eu le
+commune; il ne faut pas m'en conter sur l'utilité de ces
+institutions pour assouplir les caractères et pour adoucir les mœurs; c'est au régiment que j'ai le moins à
+m'insurger contre ces brimades; je ne sais si j'ai le
 
-bonheur de tomber sur une compagnie ou sur un bataillon ou dans un régiment mieux recruté ; sinon je propo- .
+bonheur de tomber sur une compagnie ou sur un bataillon ou dans un régiment mieux recruté; sinon je propo-.
 serais cette simple explication, que les régiments sont
 surtout fournis par le peuple, que l'immense majorité de
 mes anciens étaient des hommes du peuple, que le véri-
 
-_ table esprit de camaraderie est plus florissant dans le
+table esprit de camaraderie est plus florissant dans le
 peuple, que l'esprit de parti et l'esprit d'autorité y sévissent moins que dans la bourgeoisie; je ne parle pas de la discipline, entendue le plus souvent comme une
 brimade collective; dans ma ville de province les conservateurs m'interdisaient parce que je devenais républicain, les catholiques m'interdisaient parce que je devenais libre penseur, les bonnes gens m''interdisaient
 parce que je faisais de la politique, — c'est ainsi qu'ils
-nomment l'action —; les bourgeois m'interdisaient parce
+nomment l'action les bourgeois m'interdisaient parce
 
-| que j'étais socialiste; plus tard les antisémites m'inter-
+que j'étais socialiste; plus tard les antisémites m'inter-
 
-} dirent parce que j'étais dreyfusard; il se peut que le
+dirent parce que j'étais dreyfusard; il se peut que le
 
 Parti socialiste un jour m'interdise parce que je suis
-anarchiste ; et je ne désespère pas qu'un jour plus tard
+anarchiste; et je ne désespère pas qu'un jour plus tard
 quelque anarchiste ne m''interdise parce que je suis un
 bourgeois. Cela ne tire pas à conséquence.
 
@@ -356,17 +356,17 @@ l'orgueil de celui qui n'est pas du troupeau.
 — Vous avez à peu près raison, mon ami, sur le
 second point. Mais vous n'avez pas raison sur le
 
-premier et vous n'avez pas raison sur le troisième : je À
+premier et vous n'avez pas raison sur le troisième: je À
 suis beaucoup trop malheureux pour avoir aucun
-orgueil ; je suis malheureux que le Parti socialiste
+orgueil; je suis malheureux que le Parti socialiste
 récemment institué ait inauguré sa constitution précisément en prenant à l'égard de la libre pensée, à l'égard
 de la justice, à l'égard de la vérité, la vieille attitude
 autoritaire des cités antiques, des Églises, des États
 modernes et bourgeois; depuis ce temps-là je suis
 détraqué; je me promène en sabots, par ce grand froid,
-dans mon jardin, etje me dis comme une bête : « Ils ont
+dans mon jardin, etje me dis comme une bête: « Ils ont
 supprimé la liberté de la presse! Ils ont supprimé la
-liberté de la tribune! »— car la presse est la tribune la
+liberté de la tribune! car la presse est la tribune la
 plus ouverte, la tribune de ceux qui ne sont pas
 orateurs, de ceux qui ne sont pas députés, de ceux qui
 ne sont pas délégués, la presse est la tribune de tous
@@ -379,18 +379,18 @@ ces recommencements; vraiment j'espérais que nous
 ferions du nouveau dans l'histoire du monde. Je ne
 veux pas encore désespérer; je veux croire que ce
 Congrès, brusquement promu souverain d'un parti, a
-eu sa raison obscurcie de sa grandeur, son imagination
+sa raison obscurcie de sa grandeur, son imagination
 troublée de sa puissance. Nous devons espérer qu'il
 entendra les conseils d'une simple sagesse; nous lui
 dirons et nous lui redirons que le peuple souverain n'est
 souverain que de ce qui est soumis à la souveraineté
 humaine ordinaire; nous lui dirons et nous lui redirons
 
-HAN: que la justice et que la vérité sont inaccessibles aux mains souveraines ; et nous serons ennuyeux; et nous
+HAN: que la justice et que la vérité sont inaccessibles aux mains souveraines; et nous serons ennuyeux; et nous
 
 serons importuns, comme les anciens philosophes
 importunaient les tyrans de Syracuse; et tout de même
-on nous croira sans doute : j'entends par là que le
+on nous croira sans doute: j'entends par que le
 peuple admettra nos propositions comme étant vraies; car le peuple est foncièrement juste, aussi longtemps
 qu'il n'écoute pas les discours de ses courtisans les à
 démagogues. Mais il se peut aussi que les démagogues
@@ -405,7 +405,7 @@ commencée pour moi; je connus à cela que je n'avais
 plus affaire à un docteur, mais à un homme, et que cet
 homme était profondément malheureux; il avait quitté
 ce masque d'assurance habituelle dont il se garantissait
-contre les regards acérés des hommes : je connus à cela
+contre les regards acérés des hommes: je connus à cela
 que je commençais d'entrer dans son amitié; je ne
 faisais rien pour m'y pousser, car j'avais résolu de tenir
 mon jugement et mes sentiments en suspens jusqu'à la
@@ -413,7 +413,7 @@ fin de mon enquête; je le laissais aller parce que son
 discours donnait réponse à plusieurs questions de mon
 enquête, parce que je compatissais involontairement à
 sa tristesse, parce que la révélation de sa tristesse:
-lui faisait du bien. '
+lui faisait du bien.
 
 ; Quand nous prêchions, continuait l'homme, la nécessité, la beauté, la convenance et la bonté de la révolution
 sociale, et que les bourgeois se moquaient de nous, qui
@@ -424,17 +424,17 @@ ont supprimé la liberté de la presse! Ils ont supprimé
 la liberté de conscience. Quand nous prêchions la révolution sociale, nous voulions universaliser la liberté
 individuelle, toutes les saines libertés individuelles, et
 en particulier la liberté individuelle de penser et de
-parler comme un honnête homme : tout fraîchement.
-Nous voulions universaliser l'affranchissement, donner k surtout à tous les hommes les moyens d'échapper à
+parler comme un honnête homme: tout fraîchement.
+Nous voulions universaliser l'affranchissement, donner surtout à tous les hommes les moyens d'échapper à
 l''écrasement économique bourgeois; nous ne supposions
 pas qu'aux premiers linéaments de la révolution sociale,
 on ajouterait l'écrasement économique du parti à l'écrasement économique des adversaires du parti. Vraiment
-ils ont supprimé la liberté de la conscience !
+ils ont supprimé la liberté de la conscience!
 
 Et quand nous prêchions l'importune vérité, la vérité
 dreyfusarde.,et que les réactionnaires se moquaient de
-nous, qui nous eût dit que le jouriétait-si proche oùle ,
-parti que nous aimons ‘couperait en deux la vérité, admettrait pour l'extérieur la vérité défavorable aux bourgeois, repousserait de l'intérieur la vérité défavorable à ‘
+nous, qui nous eût dit que le jouriétait-si proche oùle,
+parti que nous aimons ‘couperait en deux la vérité, admettrait pour l'extérieur la vérité défavorable aux bourgeois, repousserait de l'intérieur la vérité défavorable à
 
 Prononçant ce dernier mot au cours de sa confidence,
 le docteur soudain se réveilla, haussa légèrement les
@@ -449,26 +449,26 @@ de celui qui n'est pas du troupeau.
 — Et je vous répondais que je n'ai pas cet orgueil; je
 
 ne crois pas que la minorité ait plus forcément raison
-| que la majorité : cela dépend des espèces; il n'y à que
+que la majorité: cela dépend des espèces; il n'y à que
 è la raison qui ait forcément raison; tantôt c'est la majorité qui a tort, et tantôt c'est la minorité, quelquefois
-| c'est l'unanimité: la théorie démocratique de l'unanimité
+c'est l'unanimité: la théorie démocratique de l'unanimité
 n'est pas plus fondée en raison que la théorie aristocratique de la minorité, de l'élite; mais elle ne l'est pas
-moins : elles ne le sont nullement toutes deux; la raison
+moins: elles ne le sont nullement toutes deux; la raison
 ï demeure en un pays où ces deux théories n'atteignent
-pas : elles ne valent, et ne peuvent engager la compétition, que dans la région des intérêts. Nous formulerons
+pas: elles ne valent, et ne peuvent engager la compétition, que dans la région des intérêts. Nous formulerons
 donc cette proposition préalable
 Le nombre des partisans et des adversaires est indifférent pour ou contre toute proposition soumise à la
 
-__ Docteur il ne me semble pas que cette proposition soit bien extraordinaire, et nous avons suivi un chemin
+Docteur il ne me semble pas que cette proposition soit bien extraordinaire, et nous avons suivi un chemin
 bien long pour en venir à une vérité triviale.
 
 — J'espère que nos propositions ne seront jamais extraordinaires, car la vérité morale est communément
 simple. Cependant nous admettrons aussi les propositions vraies qui seraient extraordinaires. Je conviens
-avec vous que cette proposition est triviale : convenez
+avec vous que cette proposition est triviale: convenez
 avec moi que nous l'oublions et que nous la méconnaissons dans la plupart de nos raisonnements, si bien que
 ce nous sera vraiment une grande nouveauté que
 d'avoir toujours en considération cette proposition triviale. Sans doute il est humain, sinon juste rigoureusement, d'accorder audience aux propositions un peu
-d'après les introducteurs ; mais l'audience accordée, la
+d'après les introducteurs; mais l'audience accordée, la
 séance commencée, il convient d'oublier tout à fait les
 La mémoire me revient, continua le docteur. Vous
 m'avez reproché de vous avoir conté complaisamment
@@ -478,33 +478,33 @@ donc à la question des personnalités, dans l'ordre de la
 Au moment où vous m'avez opposé le consentement
 universel, je croyais que l'on doit faire des personnalités dans cet ordre. Il me semblait que l'on doit faire
 des personnalités comme l'on fait du reste; il en est des
-personnalités comme du reste : quand leur influence est f réelle, on doit la constater; quandleur influence est nulle,
-on doitconstater qu'elle estnulle ; quand elleest faible, on
+personnalités comme du reste: quand leur influence est réelle, on doit la constater; quandleur influence est nulle,
+on doitconstater qu'elle estnulle; quand elleest faible, on
 doit constater qu'elle est faible; et quand elle est forte
 on doit constater qu'elle est forte. Et quand c'est toujours la même chose, on doit constater que c'est toujours la même chose. On ne doit pas faire des personnalités en ce sens qu'on inventerait, qu'on imaginerait
 des personnalités qui ne seraient pas réelles; mais on
-doit faire les personnalités qu'il y a; on doit faire, s'il
+doit faire les personnalités qu'il y on doit faire, s'il
 est permis de parler ainsi, les personnalités que l'on
 doit faire. Sinon, comment pourvoir à cette vacance
-dans la pleine complexité des événements ?
+dans la pleine complexité des événements?
 
-— C'est bien là ce qui m'inquiétait. Mon camarade
+— C'est bien ce qui m'inquiétait. Mon camarade
 alla jusqu'à dire,emporté par sa bonté dans le feu de la
-discussion : « Quand même je saurais que c'est pour une
+discussion: « Quand même je saurais que c'est pour une
 raison personnelle qu'un adversaire n'attaque, l'historien doit tout expliquer par des considérations générales. » Je protestai en moi contre ces paroles.
 
 — Vous avez protesté avec raison. Nous devons
 expliquer par des considérations générales tous les
-événements et les seuls événements qui ont eu des causes
+événements et les seuls événements qui ont des causes
 et des circonstances générales; nous devons expliquer
 
 par des considérations particulières tous les événements
-et les seuls événements qui ont eu des causes et des
-circonstances particulières ; ainsi nous devons expliquer
+et les seuls événements qui ont des causes et des
+circonstances particulières; ainsi nous devons expliquer
 par des considérationsindividuelles tous les événements,
-même publics ou généraux, qui ont eu des causes et des
+même publics ou généraux, qui ont des causes et des
 circonstances individuelles. Nous ne devons attribuer à
-l'histoire aucune valeur nouvelle, aucune dignité artifi- *
+l'histoire aucune valeur nouvelle, aucune dignité artifi-
 cielle, aucune étrangère noblesse. L'histoire est l'image
 des événements. L'histoire des personnalités est personnelle, comme l'histoire des généralités est générale,
 comme l'histoire des beautés est belle, comme l'histoire
@@ -514,7 +514,7 @@ histoire anoblie est d'autant faussée. Ne faisons pas
 de l'histoire universelle, ne faisons pas de l'histoire philosophique, ne faisons pas de l'histoire morale, ne faisons pas de l'histoire polie, ne faisons pas de l'histoire
 générale, ne faisons pas de l'histoire légale, ne faisons
 pas de l'histoire sociologique, ne faisons pas de l'histoire bourgeoise, ou réactionnaire, ne faisons pas de
-lhistoire socialiste, ou révolutionnaire ; soyons socialistes et révolutionnaires, et faisons de l'histoire exacte,
+lhistoire socialiste, ou révolutionnaire; soyons socialistes et révolutionnaires, et faisons de l'histoire exacte,
 faisons de l'histoire historique, faisons de l'histoire. Ne
 sociologiquons pas l'histoire, ne la généralisons pas,
 ne la légalisons pas. Soyons socialistes et disons la
@@ -525,33 +525,33 @@ demment beaucoup à la manifestation de cette pensée
 assez commune et je n'eus pas le courage de me refuser à lui abandonner cette consolation.
 
 — Mon pauvre ami, continua le docteur en me reconduisant, le réel est le grand maître; et quand on fait
-de l'histoire il est le seul maître ; et quand on conte un
+de l'histoire il est le seul maître; et quand on conte un
 
 : événement, füt-il récent de cinq minutes, on fait de
 l'histoire. La vérité ne vieillit pas avec les générations
 qui passent; mais elle ne rajeunit pas non plus avec
-et pour les minutes récentes ; elle ne doit avoir aucun
+et pour les minutes récentes; elle ne doit avoir aucun
 
 Et pendant que j'approchais de la porte le docteur
-achevait : Et quand on manque à la vérité, mon ami, on
-manque forcément à la justice : à vérité incomplète, justice incomplète, c'est-à-dire injustice; la part des événements, causée par des personnalités, que nous refusons d'attribuer à ces personnalités, pour les ménager,
+achevait: Et quand on manque à la vérité, mon ami, on
+manque forcément à la justice: à vérité incomplète, justice incomplète, c'est-à-dire injustice; la part des événements, causée par des personnalités, que nous refusons d'attribuer à ces personnalités, pour les ménager,
 nous l'attribuons forcément, pour masquer la vacance,
-à quelqu'un ou à quelque chose : or quelqu'un et quelque
+à quelqu'un ou à quelque chose: quelqu'un et quelque
 plus considérable, et ménageable, maïs humble, et assurément négligeable. C'est toujours le vieux système
-du remplacement : Quand nous refusons d'attribuer aux
+du remplacement: Quand nous refusons d'attribuer aux
 personnalités marquantes la part qu'elles ont dans les
 événements, nous transférons cette part aux petites
 personnalités des soldats oubliés et de la misérable
 
 Comme j'arrivais sur le seuil de pierre, le docteur
-ajouta : N'ayons pas de la matière à généraliser comme
+ajouta: N'ayons pas de la matière à généraliser comme
 les bourgeois ont de la chair à canon. Vous n'imaginez
 pas à quelle injustice, à quel malheur cela pourrait nous
 
 Et me donnant la poignée de mains révolutionnaire
 il conclut en manière de formule
 Nous pouvons et nous devons, dans l'ordre de la connaissance, constater toutes les personnalités que le réel
-s nous présente.
+nous présente.
 — Enrègle générale nos cahiers ne seront pas réimprimés. Jusqu'à ce que nous y soyons morts, et tout fait
 croire que ce ne sera pas de sitôt, nous regarderons le
 travail à faire et non pas le travail fait. Je me permets
@@ -561,18 +561,18 @@ collections complètes, parce que ces collections valent
 cent francs chaque, parce que la région de nos abonnés À
 actuels a peu d'abonnés communs avec l'ancienne région
 de nos rares abonnés à la première série.
-| On lit dans le troisième cahier de la première série
+On lit dans le troisième cahier de la première série
 — Vous me demandez si nous pouvons et si nous devons faire des personnalités dans l'ordre de l'action.
 Toutes les raisons que je vous ai proposées dans l'ordre
-, : de la connaissance me paraissent valoir dans l'ordre de
+,: de la connaissance me paraissent valoir dans l'ordre de
 l'action. Dans la pleine complexité du réel où nous
 agissons, nous attaquerons injustement les misérables
 personnalités de la foule anonyme si nous n'attaquons
-pas les personnalités évidentes que nous devons attaquer, et nous attaquerons en outre les pauvres personk nalités que ces personnalités évidentes poursuivent : car
+pas les personnalités évidentes que nous devons attaquer, et nous attaquerons en outre les pauvres personk nalités que ces personnalités évidentes poursuivent: car
 le neutre est complice, ne l'oublions pas. Si nous refusons de constater que les grands chefs et les petits
 jettent la peur et le trouble dans l'âme et dans le cœur
 des hommes ignorés, nous supposerons faussement, et
-; 19 d nous dirons faussement, comme on l'a dit, que le peuple.
+; 19 nous dirons faussement, comme on l'a dit, que le peuple.
 est naturellement peureux et trouble, que le peuple est
 mou, que le peuple est lâche. Nous sommes si enserrés
 dans cette complexité pleine, vivante et douloureuse,
@@ -582,7 +582,7 @@ moyens et nos petits adversaires, qu'en sacrifiant
 injustement nos amis, grands, petits et moyens. Nous
 sommes coincés. Nous n'avons pas fait ce réel, ou du
 moins nous avons contribué bien peu à le faire; nous
-en sommes aussi peu responsables ; ayons-en du remords si nous le voulons, maïs qu'au moins ce remords
+en sommes aussi peu responsables; ayons-en du remords si nous le voulons, maïs qu'au moins ce remords
 ne se résolve pas en fausses délicatesses, réellement
 injustes et barbares pour plusieurs. Quand nous ména-
 
@@ -592,7 +592,7 @@ personnalités, comme les coups de cognée ou de hache,
 dans cette étrange forêt de la réalité, retombent toujours quelque part, nous abattons et nous meurtrissons,
 au lieu des arbres désignés, des arbres et des arbustes
 vivants immérités. Et qu'avons-nous fait, pendant cette
-campagne aujourd'hui importune, indispensable naguère, qu'avons-nous fait, sinon des personnalités ?
+campagne aujourd'hui importune, indispensable naguère, qu'avons-nous fait, sinon des personnalités?
 Qu'avons-nous fait si nous n'avons pas personnellement
 défendu des personnalités, attaqué des personnalités,
 défendu les personnalités injustement poursuivies en
@@ -603,49 +603,49 @@ au collet de l'assassin, en admettant qu'il ait un collet, ce qui était le cas.
 
 sauter au collét de quelqu'un sans faire à son égard
 quelque personnalité. Nous avons fait la personnalité
-celle de M. Deniel. Avons-nous assez fait de personnalités ? En tout cas n'avons-nous pas fait la personnalité
+celle de M. Deniel. Avons-nous assez fait de personnalités? En tout cas n'avons-nous pas fait la personnalité
 de M. Alfred Dreyfus, un capitaine jadis ignoré. La personnalité de l'attaque suppose la personnalité de la défense, et inversement. Et quand nous crions encore
-aujourd'hui dans nos processions et dans nos manifestations : au bagne Mercier, au bagne, est-ce que nous
-faisons, oui ou non, une personnalité. Or nous devons
+aujourd'hui dans nos processions et dans nos manifestations: au bagne Mercier, au bagne, est-ce que nous
+faisons, oui ou non, une personnalité. nous devons
 même au général Mercier l'égalité de la critique et de la
 méthode. Les gendarmes sont des citoyens qui font des
-personnalités. Or nous avons fait les gendarmes dans
+personnalités. nous avons fait les gendarmes dans
 toute cette affaire, avouons-le, ou plutôt déclarons-le
-hautement : nous avons remplacé les gendarmes injustement empêchés. Ce devoir pénible, et en dehors de nos
+hautement: nous avons remplacé les gendarmes injustement empêchés. Ce devoir pénible, et en dehors de nos
 habitudes, nous l'avons fait. Il fallait bien que nous le
-fissions : qui n'était pas contre la personnalité de Mercier était contre la personnalité, alors lamentable, de
+fissions: qui n'était pas contre la personnalité de Mercier était contre la personnalité, alors lamentable, de
 Dreyfus; qui n'était pas contre la personnalité de
 Vaillant et de Guesde était contre la personnalité de
 Jaurès et ainsi contre la personnalité du même Dreyfus.
 D'ailleurs en ce temps-là on ne nous reprochait pas de
 faire des personnalités. Maître Labori ne faisait pas
-trop de personnalités ; Zola n'avait pas fait trop de personnalités ; vous-même, s'il est permis de vous introduire ici, vous ne faisiez pas trop de personnalités.
+trop de personnalités; Zola n'avait pas fait trop de personnalités; vous-même, s'il est permis de vous introduire ici, vous ne faisiez pas trop de personnalités.
 
-— Vous avez un bon souvenir : au moment où les machinations des scholarques poignardaient dans le dos
+— Vous avez un bon souvenir: au moment où les machinations des scholarques poignardaient dans le dos
 les hommes libres engagés au premier rang de la ba-
 
 taille, j'intervins modestement et je dénonçai la trahison; pendant plusieurs quinzaines je fis des personnalités; je publiai dans la revue blanche une série d'articles
 sur l'affaire Dreyfus et la crise du Parti socialiste; je
 disais ce que je pensais, ce que nous pensions tous alors
-de plusieurs personnalités ; j'allais jusqu'à faire des personnalités contre une personnalité amie qui, à mon
+de plusieurs personnalités; j'allais jusqu'à faire des personnalités contre une personnalité amie qui, à mon
 sens, mavait pas attaqué assez vivement les personnalités dangereuses, sans doute surtout pour ne pas faire
 de personnalités. Tout le monde alors trouvait que j'avais
 — Cela ne prouve pas que vous eussiez raison en effet.
-— Mais cela ne prouve pas non plus que j'aie eu tort
+— Mais cela ne prouve pas non plus que j'aie tort
 d'avoir continué. Tout le monde en ce temps-là trouvait
 que j'avais raison. Je n'étais pas devenu alors un pur
 seulement on m'approuvait hautement et vivement,
-mais on m'eût encouragé si j'avais eu besoin d'un
+mais on m'eût encouragé si j'avais besoin d'un
 encouragement. Je n'en demandai aucun. J'avais raison
 d'attaquer ainsi Guesde et Vaillant, j'avais raison de
-leur dire leurs vérités ; ce que jeleur disais était bien
+leur dire leurs vérités; ce que jeleur disais était bien
 leurs vérités. Je ne peux pas m'imaginer comment ce
 qui était alors des vérités est devenu depuis des erreurs.
 —Cetiealtérationne serait admissible que si M. Guesde
 et M. Vaillant avaient apporté depuis des rectifications.
 Mais je ne crois pas qu'ils en aient produit aucune. Ce
 sent eux au contraire qui ont bien voulu pardonner à
-leurs accusateurs, et à leurs accusés : ce sont eux qui
+leurs accusateurs, et à leurs accusés: ce sont eux qui
 ont pardonné à tout le monde. Ils ont amnistié. Ils sont
 — Ce que vous m'avez répondu sur la question des
 personnalités, dans l'ordre de l'action, ne me paraît pas
@@ -678,7 +678,7 @@ l'égalité de la loi morale. N'instituons aucune oligarchie au cœur de la cit�
 
 Nous sommes ainsi conduits à nous poser la question
 
-‘ universelle: pouvons-nous et devons-nous, par une opération volontaire et factice, réaliser prématurément et
+universelle: pouvons-nous et devons-nous, par une opération volontaire et factice, réaliser prématurément et
 
 apparemment nos souhaits, donner à la bataille hu- maine un aspect plus beau que nous croyons meilleur, au lieu de lui laisser l'aspect moins beau que nous
 savons plus vrai. C'est ici une question d'enseignement: elle se pose dès qu'on veut élever les petits enfants, elle se pose pour la nourricière Université, pour les institu- teurs, pour les professeurs, pour les pères de famille,
@@ -688,18 +688,18 @@ apporté les documents et les renseignements que vous aurez recueillis pour et c
 Si vous pensez que le manifeste a été inspiré par
 l'orgueil personnel des scholarques, vous avez bien fait
 d'écrire, mon ami, ce que vous pensez, et tous ceux qui
-vous ont approuvé, s'ils pensaient comme vous, ont eu
-raison. Que vous ayez eu raison ou tort sur le fond,
+vous ont approuvé, s'ils pensaient comme vous, ont
+raison. Que vous ayez raison ou tort sur le fond,
 nous l'examinerons quand nous étudierons la présente
 organisation du Parti socialiste.
 
 Avez-vous remarqué, mon ami, le sans-gêne avec
-lequel vous vous êtes cité vous-même ?
+lequel vous vous êtes cité vous-même?
 
 — J'ai fait un métier où j'ai connu plusieurs auteurs:
 je me suis facilement aperçu que l'auteur désirait naturellement qu'on le lût; je n'ai connu aucune exception
 à ce régulier désir. Et il convient qu'il en soit ainsi
-‘ l'auteur sérieux désire communiquer son travail comme:
+l'auteur sérieux désire communiquer son travail comme:
 le boulanger sérieux désire communiquer son pain; je
 nomme auteur sérieux celui qui n'écrit qu'autant qu'il a
 vraiment à écrire. Il n'est pas vrai que le moi soit
@@ -707,7 +707,7 @@ haïssable. Rien n'est haïssable d'abord. Le moi n'est
 pas plus haïssable d'abord que les autres, qui sont
 aussi des moi. Cette affectation à ne parler pas de soi
 
-_ peut avoir deux sens : ou bien elle est sincère, injuste
+peut avoir deux sens: ou bien elle est sincère, injuste
 envers le moi, favorable aux autres; c'est alors de
 lhumilité chrétienne, et je ne suis pas chrétien; la
 modestie socialiste, qui est le sens de la mesure gardée
@@ -740,7 +740,7 @@ nos abonnés nous écrivirent ou vinrent nous voir.
 
 Tous les anarchistes que j'ai vus ou lus, sans aucune
 exception, — je ne vois que des anarchistes sérieux —
-me déclarèrent que le cahier était trop doux. Quelquesuns ajoutèrent : beaucoup trop doux.
+me déclarèrent que le cahier était trop doux. Quelquesuns ajoutèrent: beaucoup trop doux.
 
 Tous les socialistes peuple que j'ai vus ou lus, sans
 aucune exception, me déclarèrent que le cahier était
@@ -748,24 +748,24 @@ aucune exception, me déclarèrent que le cahier était
 Le scandale commença parmi les universitaires. Les
 Brestois ne furent pas contents. Les gens de Thiers
 furent mécontents. Un Toulousain, de l'enseignement
-‘ PAGES LIBRES ” : Si Péguy recommence à faire des
-personnalités, zut ! La plupart de nos abonnés méconients m'opposèrent le courrier d''Indo-Chine. C'est ainsi,
+PAGES LIBRES: Si Péguy recommence à faire des
+personnalités, zut! La plupart de nos abonnés méconients m'opposèrent le courrier d''Indo-Chine. C'est ainsi,
 disaient-ils, que l'on doit travailler. Challaye, n'ayant
-pu me joindre aux jours gras, aussitôt rentré, m'écrivait dans le même sens. Il pense en outre que je fus
+me joindre aux jours gras, aussitôt rentré, m'écrivait dans le même sens. Il pense en outre que je fus
 injuste. Ceux qui n'étaient pas mécontents étaient
 inquiets. M. Rauh voulut bien m'aflirmer que je défendais la Société Condorcet contre un danger un peu
 imaginaire. Quelqu'un à qui je n'ai jamais rien fait,
 M. Beaulavon, m'écrivit une lettre injurieuse. Les gens
 de lettres furent presque aussi effrayés que les universitaires.
 
-Depuis plusieurs mois beaucoup de nos abonnés veulent bien regretter que nous n'ayons pas continué nos ner | <
+Depuis plusieurs mois beaucoup de nos abonnés veulent bien regretter que nous n'ayons pas continué nos ner
 anciens entretiens. Pourquoi, me disent-ils, pourquoi
 n'allez-vous plus trouver ce docteur socialiste révolutionnaire moraliste internationaliste, qui vous donnait
-de si fructueuses consultations ? Pourquoi n'êtes-vous
+de si fructueuses consultations? Pourquoi n'êtes-vous
 jamais retourné voir ce vieux docteur monarchiste
 conservateur, qui avait si solidement conservé le sens
-_ de la conservation nationale et sociale. Ce vieux docteur blanc ne méritait pas une aussi prompte insou-
- ciance ? Pourquoi n'entendons-nous pas votre ami
+de la conservation nationale et sociale. Ce vieux docteur blanc ne méritait pas une aussi prompte insou-
+ciance? Pourquoi n'entendons-nous pas votre ami
 Pierre Baudouin le philosophe, qui faisait des phrases
 grandes, et votre ami qui parlait sec, l'historien Pierre
 Deloire. Qu'est devenu votre cousin le fumiste, votre
@@ -785,17 +785,17 @@ Quand la troisième série sera un peu déblayée, je
 serai heureux d'aller consulter les docteurs. Quand le
 beau temps sera incontesté, je serai heureux de réunir
 mes deux amis. Mon cousin viendra pendant la morte
-saison. D'ici là je me défendrai tout seul, et en bref.
+saison. D'ici je me défendrai tout seul, et en bref.
 
 Je dois avouer que survenant aprèstrois semainesau
 moins de maladie et de fatigue, au milieu des soucis
 que j'ai, l''émoi causé parmi certains universitaires par
-le septième cahier m'a fait beaucoup de peine. Je suis .
+le septième cahier m'a fait beaucoup de peine. Je suis.
 profondément heureux que nos abonnés me communiquent aussi sincèrement, aussi entièrement, sans
 réserve, sans déperdition, en toute probité, aussi sévèrement, aussi instantanément, leurs impressions. Mais
 je fus profondément peiné que certains de nos cahiers
 eussent été lus aussi vainement.
-Je suis frappé de ceci : aucun de nos abonnés non
+Je suis frappé de ceci: aucun de nos abonnés non
 universitaires, aucun de nos abonnés non intellectuels,
 aucun de nos abonnés peuple, aucun de nos nouveaux
 abonnés ne s'est plaint que nous eussions fait des personnalités.
@@ -804,7 +804,7 @@ batailles où nos chefs r'exposent pas même leurs commodités, le peuple entend
 Le peuple entend, quand on se bat, qu'on reçoive des
 coups, et qu'on en donne. Et des coups pour de bon,
 non des coups pour la démonstration.
-Je suis frappé de ceci : aucun de nos abonnés peuple
+Je suis frappé de ceci: aucun de nos abonnés peuple
 ne s'est plaint que nous eussions fait des personnalités.
 Le peuple, qui reçoit tous les jours tous les coups pour
 de bon, le peuple qui subit tous les jours toutes les
@@ -815,7 +815,7 @@ sa famille, dans sa santé, dans sa vie et dans sa liberté,
 le peuple saït d'instinct que la guerre est la guerre, et,
 quand on se bat, qu'on tape. Le peuple saït que la vie
 
-| est sérieuse, et que la vie est dure. Nous lui montrerons,
+est sérieuse, et que la vie est dure. Nous lui montrerons,
 par les persécutions que l'on nous prépare, que la
 guerre contre la démagogie est la plus dure de toutes
 les guerres.
@@ -833,7 +833,7 @@ amis, les idées qui leur étaient communes avec moi.
 Il ne s'agissait que de réaliser. J'avais compté sans la
 puissance de l'envie. J'avais compté sans l'automatisme
 
-Je suis frappé de ceci : loin que l'abonnement de nos
+Je suis frappé de ceci: loin que l'abonnement de nos
 cahiers se soit constitué autour de mes amis et de mes
 camarades, l'abonnement régulièrement, péniblement,
 constamment croissant s'est produit contre eux, sans
@@ -847,18 +847,18 @@ habitude qu'ils nous lisent, mais contrairement à soimême.
 
 Rien n'est aussi dangereux que la fausse culture. Et
 
-| ilest malheureusement vrai que presque toute la cul-
+ilest malheureusement vrai que presque toute la cul-
 
 ture universitaire est de la fausse culture. Le peuple, à
 avant la culture, le peuple qui se bat contre la misère
-etla maladie et la mort, contre le vice et le dépéris- %
+etla maladie et la mort, contre le vice et le dépéris-
 sement, contre la laideur et la saleté, contre les servi- À
-tudes et les impôts, le peuple sait d'instinct et d'épreuve “à
+tudes et les impôts, le peuple sait d'instinct et d'épreuve
 que toute bataille est ingrate et dure. Quand l'élève
 commence à recevoir la fausse culture, on lui enseigne
 la politesse, et que la bataille humaine est une cérémonie. En même temps qu'on lui apprend à danser, on
 lui apprend qu'il ne faut pas se commettre à faire des
-personnalités. Les vertus salonnières font commettre h)
+personnalités. Les vertus salonnières font commettre
 plus de crimes par plus de lâchetés que tous les vices
 n'en font commettre par toutes les faiblesses de droit
 L'automatisme intellectuel a une incroyable force.
@@ -867,16 +867,16 @@ automatiques ne répondent plus au perpétuel rajeunis-
 sement de la réalité universelle. Je suis frappé de ceci:
 que ce ne sont pas, à beaucoup près, les universitaires,
 comme tels, qui lisent le mieux nos cahiers. Ce sont les
-esprits inhabitués, c'est-à-dire neufs, les esprits inha- :
+esprits inhabitués, c'est-à-dire neufs, les esprits inha-:
 bituables, c'est-à-dire poètes, perpétuellement neufs,
 puis les esprits universitaires laborieusement déshabitués, rafraîchis, qui nous entendent comme il nous
 Ce qui me navre, ce n'est évidemment pas que l'on
 ne soit pas de mon avis. J'aime toute liberté. Ce qui
 m'attriste, c'est que nos cahiers servent si peu, au
-moins auprès d'un certain public. Le jour où quelqu'un '
+moins auprès d'un certain public. Le jour où quelqu'un
 m'enverra une réfutation sérieuse de la démonstration
 que je viens de reproduire, je serai heureux de publier
-cette réfutation. Mes opinions n'ont jamais eu dans nos ‘1
+cette réfutation. Mes opinions n'ont jamais dans nos
 
 cahiers une hégémonie économique sur les opinions
 différentes ou contraires. Si donc on m'avait réfuté ma
@@ -893,7 +893,7 @@ même ceux qui me lächaient ou qui me trahissaient,
 lurent ma démonstration. J'en suis à me demander si
 les agrégés savent lire. Je connais plusieurs agrégés
 qui savent lire. Mais ils savent malgré leur agrégation.
-Les agrégés ont tant lu pour préparer des examens et
+Les agrégés ont tant pour préparer des examens et
 des concours, ce qui n'est pas la meilleure manière de
 lire, ils ont tant chauffé de programmes, ils ont tant
 préparé d'auteurs que leurs lectures n'entrent pas dans
@@ -903,7 +903,7 @@ de la vie, à la rude réalité de l'action, nous sommes
 ainsi contraints, quand telle ne serait pas notre intention première, à classer nos idées, pour classer nos
 intentions. Mais dans l'enseignement les idées les plus
 contradictoires, les plus inconciliables peuvent juxtaexister. Les élèves sont beaucoup plus accommodants
-que la vie. De là sans doute le perpétuel émoussement
+que la vie. De sans doute le perpétuel émoussement
 des universitaires. Ceux qui sont restés âpres le doivent à leur génie et non à leur métier. Nous qui sommes affrontés à la rude pauvreté, nous qui avons à
 faire nos budgets mensuels, nos budgets quotidiens, la
 vie se charge de nous rafraichir l'âpreté native. Et nous n'avons pas pour les personnalités dangereuses l'émous-
@@ -919,12 +919,12 @@ langage que les députés parlent à leurs électeurs, nous
 aurions les reins cassés en moins d'une législature.
 
 On obtient ce résultat: j'ai publié au commencement
-de ces cahiers la démonstration que nous avons dû
+de ces cahiers la démonstration que nous avons
 reproduire aujourd'hui. Tous mes camarades et tous
 mes amis lurent la démonstration. Pas un ne fit d'objection. Je pensai qu'ils tombaient d'accord. Je
 pensai que c'était entendu. Je n'avais pas fait ma
-démonstration pour mon usage personnel. J'avais depuis longtemps noté que le préjugé des personnalités !
-était un des plus fréquents et des plus dangereux. Je ki
+démonstration pour mon usage personnel. J'avais depuis longtemps noté que le préjugé des personnalités!
+était un des plus fréquents et des plus dangereux. Je
 constatais que ce préjugé portait le préjudice le plus
 grave à l'action socialiste. Je fis ma démonstration
 pour un usage universel.
@@ -990,10 +990,10 @@ n'ai pas autant de joie pour un abonné qui revient que
 pour cent abonnés demeurés solides. Pour les mêmes
 raisons que j'aime la modestie et non l'humilité, pour
 
-_ la même raison nous aimons mieux la solidité continue
+la même raison nous aimons mieux la solidité continue
 que le péché, la confession, la pénitence et la rémission.
 
-| Non que le retour d'un ami véritable ne me soit très
+Non que le retour d'un ami véritable ne me soit très
 sensible, mais rien ne me vaut la parfaite, la modeste,
 et la continue constance. Et pour satisfaire aux besoins
 constants de l'action, pour donner réponse aux fermes
@@ -1013,10 +1013,10 @@ ne marche plus, comme dit Beaulavon. Non je ne
 renierai pas cette pauvre première et deuxième série,
 commencée, continuée dans la pauvreté, dans la
 
-_ misère, dans la fatigueet dans Le froid, dans la maladie,
+misère, dans la fatigueet dans Le froid, dans la maladie,
 contre toutes les démagogies, contre toutes les faiblesses, contre toutes les politiques, envers tout le
 monde. Je ne sais pas ce que nous ferons dans la
-vingtième ou dans la trentième série, mais je crois bien fs
+vingtième ou dans la trentième série, mais je crois bien
 Savoir que ce sera plus facile à faire, quoi que ce soit,
 que ce que j'ai fait dans cette âpre année du commencement. Je n'avais pas cent abonnés fermes. Je n'avais
 pas trente amis serrés. J'ai tenu. On escomptait ma mort. De semaine en semaine. Ceux qui veulent bien
@@ -1039,22 +1039,22 @@ béatitude. Nous sommes ici pour travailler. Nés dans
 une société ingrate et laide, il n'est pas étonnant que
 nous ayons des devoirs ingrats et laids. Car c'est
 justement en déblayant les ingratitudes et les laideurs
-proposées que nous courons le risque suivant: que .
+proposées que nous courons le risque suivant: que.
 nos actes se nuancent d'ingratitude et s'éclaboussent
 de laideur. Mais depuis quand devons-nous fuir les
-risques ? C'est justement en balayant la route que le
+risques? C'est justement en balayant la route que le
 cantonnier amasse de la boue en hiver et dela poussière
 en été. Suit-il que le cantonnier doive rester chez soi?
-Devons-nous laisser la route sale ou poussiéreuse ?
+Devons-nous laisser la route sale ou poussiéreuse?
 
 Quand donc je dis que je déplore les personnalités
 que je fis, j'entends que j'aimerais mieux ne pas les
-avoir faites, que j'aimerais mieux ne pas avoir eu à les
+avoir faites, que j'aimerais mieux ne pas avoir à les
 faire, j'entends qu'il est déplorable que certaines personnes ou certains individus ou le jeu des événements
-ou l'âpreté du réel m'aient contraint à faire ces personnalités. Je me plains d'y avoir été contraint. J'ai pitié !.
+ou l'âpreté du réel m'aient contraint à faire ces personnalités. Je me plains d'y avoir été contraint. J'ai pitié!.
 
 de moi-même. Juste assez. Pas trop. J'aimerais que
-cela n'eût pas eu lieu. Mais je ne puis me blâmer en
+cela n'eût pas lieu. Mais je ne puis me blâmer en
 arrière. Je ne puis me blâmer d'avoir fait ce que je
 croyais dû. Je le ferais encor si j'avais à le faire.
 Quand je dis que je déplore les personnalités que je
@@ -1083,11 +1083,11 @@ tant de catholiques et tant de juifs, et tant d'anticatholiques, ne l'avaient ex
 Mais quelle nation de la terre ne l'a pas quelque jour
 
 Je vais plus loin. Je prétends que la paix n'est valable et que la paix n'est ferme que si la guerre précédente, après qu'elle fut devenue inévitable, a été
-conduite loyale. Or je connais au moins deux loyautés,
+conduite loyale. je connais au moins deux loyautés,
 et la seconde n'est pas moins indispensable que la
 première. La première loyauté consiste à traiter nos
 
-‘ adversaires et nos ennemis comme des hommes, à
+adversaires et nos ennemis comme des hommes, à
 respecter leur personne morale, à respecter dans notre
 conduite envers eux les obligations de la loi morale, à
 garder, au plus fort du combat et dans toute l'animosité
@@ -1115,7 +1115,7 @@ la quiétude et la moiteur des complaisances moisies
 qui est pernicieuse. Loin que l'amertume et l'aigreur,
 comme on le croit communément, soient deux degrés,
 le degré suprême et le degré supérieur, d'un même
-_ genre, le genre de l'amertume est ce qu'il y a de plus
+genre, le genre de l'amertume est ce qu'il y a de plus
 contraire au genre de l'aigreur. L'aigreur est de la
 famille de la blague, de la gaieté, du badin, du plaisant,
 du calembour et du précieux. L'amertume est de la
@@ -1131,7 +1131,7 @@ ma liberté, toute ma franchise, parce qu'il sait que je
 suis prêt à recommencer, que j'ai pu, dans une assemblée générale d'une Société qui nous était commune,
 et qui m'est plus chère qu'à personne, librement travailler avec Simiand à faire décréter les mesures qui
 nous paraissaient indispensables. Si j'avais été son
-compère dans les affaires précédentes, je n'aurais pu
+compère dans les affaires précédentes, je n'aurais
 ce jour lui apporter que la doublure de sa propre
 action, ce qui n'est rien, je ne lui eusse apporté qu'une
 force de compérage, moins que rien, au lieu de lui
@@ -1141,7 +1141,7 @@ et momentanément concourante. Il faut par définition
 que des contreforts, des arcs-boutants, n'aient pas le
 ._ même pied. Des contreforts sont des contrepieds.
 Pareillement quand dans un débat loyal, ouvert, Téry,
-| Hervé, moi, loyaux mutuellement, du moins je l'espère,
+Hervé, moi, loyaux mutuellement, du moins je l'espère,
 
 et loyaux envers nous-mêmes, et loyaux envers le
 débat, nous aurons ici-même exposé nos raisons, en
@@ -1163,7 +1163,7 @@ demandé pourquoi j'avais publié la fin de la lettre, qui
 savais ce que je faisais. Je m'en expliquerai. Quand
 j'aurai publié, comme je le dois, les réponses de Téry,
 la réponse de Hervé, l'intervention d'Adolphe Landry,
-alors, ei encore ce n'est pas sûr, mais au moins seulement alors on pourra se prononcer en Connaissance
+alors, encore ce n'est pas sûr, mais au moins seulement alors on pourra se prononcer en Connaissance
 de cause. Il y a deux questions. J'examine aujourd'hui
 doit faire des personnalités, si l'on fait bien ou mal de
 faire des personnalités. Nous examinerons dans un
@@ -1182,7 +1182,7 @@ arrière larigueur dont on accueillit ces deux premières,
 on feint que je me suis totalement transformé. Je
 n'accepte pas cette interprétation. L'institution première de nos cahiers en était l'entière institution. Ce
 n'est pas nous qui nous sommes attardés à faire des
-personnalités. Ce furent ces personnalités qui se trou- ‘
+personnalités. Ce furent ces personnalités qui se trou-
 vèrent sur notre chemin. Ce n'est point par un virage
 que nos cahiers ont changé d'aspect, de contenu. C'est
 par un déblayage. Et quand nous eûmes écarté les
@@ -1206,7 +1206,7 @@ même. Et c'est de cela que je suis le plus content.
 Et cela n'est pas étonnant, puisqu'ils sont faits
 exprès pour cela. Si je voulais présenter mon travail
 de gérant sous une forme un peu grossière, je dirais
-Je révèle ici un secret de ma gérance : Tous les
+Je révèle ici un secret de ma gérance: Tous les
 cahiers, sans aucune exception, les jaunes et les blancs, à sont faits pour mécontenter un tiers au moins de la
 clientèle. Mécontenter, c'est-à-dire heurter, remuer,
 faire travailler. Ce que je redoute le plus, aujourd'hui
@@ -1221,7 +1221,7 @@ si lon veut bien y regarder, ce serait notre démagogie
 à nous, une autointoxication par complaisance mutuelle, un empoisonnement par la respiration d'un air
 Pour cette raison, et pour des raisons que je dirai
 ailleurs, nos cahiers sont variés, libres. Jusqu'à présent,
-parmi tant de malheurs, nous avons eu ce bonheur que
+parmi tant de malheurs, nous avons ce bonheur que
 ce régime a parfaitement convenu aux auteurs des
 cahiers indépendants. Épuisant eux-mêmes leur liberté,
 ils admettaient, ils demandaient que le voisin de droite
@@ -1231,20 +1231,20 @@ engagés, car la cohabitation typographique dans un
 même cahier impliquerait une responsabilité commune, à ù PERSONNALITÉS
 si la force de notre institution ne garantissait toute
 liberté. Non seulement chacun sans se croire lésé laisse
-au voisin toute sa liberté; mais il y a eu des assentiments merveilleux. Si deux formes d'art diffèrent, c'est
+au voisin toute sa liberté; mais il y a des assentiments merveilleux. Si deux formes d'art diffèrent, c'est
 bien celle de Tharaud et celle de Salomé. S'il est une
 troisième forme dont ces deux formes diffèrent, c'est
 bien celle de Lavergne. C'est donc avec une joieprofonde que j'entendais Tharaud admirer fougueusement
 la charpente impeccable du Jean Coste, et que je reçus
 de Salomé, qui demeure à Bruxelles, une lettre écrite
-exprès pour m'annoncer qu'il avait lu d'une traite, en
+exprès pour m'annoncer qu'il avait d'une traite, en
 une nuit, ce roman de réalité passionnante.
 
 Entendons-nous. Il ne s'agit pas que l'admiration
 mutuelle, écartée sous sa forme de servitude, reparaisse masquée sous une forme de liberté. Quand ces
 heureux assentiments se manifestent, je les reçois
 comme une joie supplémentaire. Quand ils ne se manifestent pas, nous rentrons dans l'ordre commun. Et cet
-ordre commun est tel : chacun des auteurs laisse au
+ordre commun est tel: chacun des auteurs laisse au
 voisin toute liberté, toute responsabilité. Le gérant
 traite les auteurs comme les auteurs se traitent mutuellement. Le gérant se traite, comme auteur, comme il
 traite les autres auteurs.
@@ -1281,7 +1281,7 @@ trembler les vertèbres. Cela ferait trop d'ombre, trop
 de fanfare, et trop de tremblement. Je passe un grand
 tiers de mon temps à l'établissement industriel des
 cahiers, àla correction des épreuves. Je corrige les
-épreuves avec une sollicitude si méticuleuse qu'elle m'a d PERSONNALITÉS
+épreuves avec une sollicitude si méticuleuse qu'elle m'a PERSONNALITÉS
 
 rendu légèrement risible, surtout quand,” tant de soins
 ne suffisant pas, ily passe quelque coquille. Je puis
@@ -1313,13 +1313,13 @@ aucun métier du tout, c'est-à-dire d'être un homme
 politique, parlementaire ou journaliste. IL serait déplorable qu'un jeune auteur me méprisât. Je sais que je
 fais de la cuisine, en ce sens que je fais de l'économique. Je suis un économe, un gérant, un intendant, un
 
-: RE TARESS ba cuisinier, un employé, un commis. Mais je me suis
+: TARESS cuisinier, un employé, un commis. Mais je me suis
 laissé dire que le socialisme revenait à restaurer dans
 leur dignité morale ces modestes fonctions de la vie
 économique sans quoi l'univers de la pensée s'arrêterait de fonctionner aussi. Le jour où tous les cuisiniers
 cesseraient de faire toutes les cuisines, le jour où les
 laboureurs cesseraient de labourer, — et qu'est-ce que
-le labourage ; n'est-ce pas la cuisine initiale, la cuisine
+le labourage; n'est-ce pas la cuisine initiale, la cuisine
 À première, la principale cuisine de la terre et du grain, la fomentation des germes, — le jour où cesseraït de fonctionner la cuisine universelle, nos échevelés, nos romantiques, se tairaient.
 
 Je constate que la vie économique est l'indispensable
@@ -1335,15 +1335,15 @@ que je peux de temps et de forces.
 Le tiers qui me reste, j'écris. J'écris ce que je peux, »
 comme je peux. J'écris utilement de modestes cahiers.
 
-© Moi aussi j'aimerais mieux faire des œuvres plus considérables, sinon plus sereines. J'aimerais mieux faire
+Moi aussi j'aimerais mieux faire des œuvres plus considérables, sinon plus sereines. J'aimerais mieux faire
 des nouvelles, des contes, des romans, des dialogues,
 des poèmes ou des drames. Et je crois que je n'en suis
 pas incapable. J'ai depuis plus de trois ans plus de cent …
-pages rédigées d'un grand dialogue, Pierre, que j'ai dû »
+pages rédigées d'un grand dialogue, Pierre, que j'ai »
 laisser inachevé. J'aimerais mieux travailler à de
 grandes œuvres. Mais je dois faire ce que je dois,et
 non pas ce que j'aime le mieux. Dans ces cahiers même
-| j'ai dû ajourner les modestes entretiens qui étaient
+j'ai ajourner les modestes entretiens qui étaient
 comme des dialogues un peu journaliers. Je les continuerai aussitôt que je le pourrai. Mais ce n'est pas ce
 
 route à la démagogie politique et sociale, intitulée
@@ -1355,7 +1355,7 @@ public. La Renaissance eut un public. Le dix-septième
 siècle français eut un public. Le dix-huitième siècle
 français eut un public. Tolstoi a un public. Les plus
 grossiers, les plus profonds chanteurs nègres ont un
-public. Il y a eu en France des survivances de public
+public. Il y a en France des survivances de public
 jusqu'à la fin du Second Empire. Il n'y a plus aucun
 public en France depuis le mensonge révolutionnaire
 et depuis l'infection romantique.
@@ -1377,9 +1377,9 @@ quelques anciens camarades, et quelques anciens
 amis, n'y ont rien vu, ou rien voulu voir. M. Seignobos,
 qui fait profession de désapprouver les cahiers et de
 ne s'y abonner pas, me disait tout joyeusement, dans
-une tierce maison : Oh! moi, si j'étais le maître, je
+une tierce maison: Oh! moi, si j'étais le maître, je
 commencerais par supprimer une bonne moitié des
-jeunes revues ; je fondrais le reste ensemble; dans celle
+jeunes revues; je fondrais le reste ensemble; dans celle
 que cela ferait, on les laisserait se chamailler tant qu'ils
 voudraient. Véritablement joyeux fossoyeur. Voilà ce
 que deviennent, dans l'esprit d'un notable universitaire,
@@ -1399,9 +1399,9 @@ correspondant à celui qui consiste à croire que le
 cours de M. Bergson est un cours parmi tant de
 Nous avonsraison où nous avons tort, et nous demandons qu'on nous examine et qu'on nous critique. Mais
 nous savons que notre méthode est nouvelle. Non pas
-nouvelle en imagination, car on y a pu penser avant
+nouvelle en imagination, car on y a penser avant
 nous, mais nouvelle en réalisation, car nous sommes
-les premiers en date qui ayons réussi à publier la vérité !
+les premiers en date qui ayons réussi à publier la vérité!
 
 que nous savons de ce qui tient à la révolution sociale,
 au sens où nous l'entendons.
@@ -1436,24 +1436,24 @@ temps, qui ont contribué de toute leur force à linstitution de l'ancien Mouvem
 jour un nouveau Mouvement accueillerait de la littérature banale et complaisante. Je lis dans ce numéro, sur
 Victor Hugo poète, un article de M. A. Ferdinand
 Hérold. Le moins qu'on en puisse dire est que cet article
-est platement faux. Je n'ai jamais lu plus basse démagogie littéraire. On veut nous y faire croire que Hugo
+est platement faux. Je n'ai jamais plus basse démagogie littéraire. On veut nous y faire croire que Hugo
 fut le poète des humbles. Et vraiment il en fut l'exploiteur le plus éhonté. Jamais avant Hugo un bourgeois
 n'avait aussi impudemment exploité la description
 criante de la misère pour se faire du luxe, de la
 puissance, des rentes et de la table. Un lecteur non
 averti croirait d'après M. Ferdinand Hérold que Hugo
-fut un socialiste. Or il n'y eut pas de pire exploiteur. Je
+fut un socialiste. il n'y eut pas de pire exploiteur. Je
 dis que s'il y a une revue où l'on ne puisse pas laisser
 croire que Hugo fut un socialiste, c'est le Mouvement.
 Ou Le Mouvement n'a aucune institution, ou il est fait
-parmi nous pour ne pas laisser avachir le sens du socia- (l
+parmi nous pour ne pas laisser avachir le sens du socia-
 lisme, pour garder au mot même, et pour exiger qu'on
 lui garde son intégrité.
 Nous ne pouvons compter que sur nous-mêmes. Partout ailleurs les opinions des hommes varieront, et il y
 aura des retours imprévus. Nous n'aurons pas seulement contre nous les démagogues affirmés que nous
 attaquerons. Nous aurons contre nous, plus encore sans
 doute, les complaisants, les faïbles, qui ne veulent pas
-se battre, et qui ne pardonnent pas que l'on se batte ‘À
+se battre, et qui ne pardonnent pas que l'on se batte
 sans eux. à
 Nous aurons souvent avec nous des auxiliaires momentanés. Nous les accueillerons toujours sincèrement.
 Nous leur accorderons toujours le crédit le plus long
@@ -1462,18 +1462,18 @@ eux. J'ai une théorie du crédit moral que j'exposerai
 
 aussitôt que je le pourrai. Nous ferons toujours comme
 
-* s'ils devaient continuer définitivement avec nous.
+s'ils devaient continuer définitivement avec nous.
 
 Justement parce que nous combattons sans feinte, nous
 pouvons asseoir des paix non boiteuses. Il y aura des
 retours imprévus. Quand Fradet vint me voir il me
-dit : Tous ces ministériels me dégoûtent. A la bonne
+dit: Tous ces ministériels me dégoûtent. A la bonne
 heure les antiministériels. Je vais représenter la Fédé-
 
 ; ration de l'Yonne aux Socialistes Révolutionnaires.
 — Allez-y. Vous m'en reparlerez dans un mois. Ilrevint
-au bout de cinq ou six semaines. — Hélas ! me dit-il,
-j'ai vu Lafargue. Il s'arrêta, comme ayant tout dit.
+au bout de cinq ou six semaines. — Hélas! me dit-il,
+j'ai Lafargue. Il s'arrêta, comme ayant tout dit.
 Quand Lagardelle, ayant épuisé le guesdisme et sa
 politique, puis en trois ans la politique unitaire, la
 politique bissectrice, la politique demi-bissectrice, la
@@ -1506,33 +1506,33 @@ nous avait voulu donner de l'élection, de la Muse, et de
 la fête.
 Pendant longtemps les concours imprévus ne compenseront pas les coalitions contraires. Souvent, long-
 : temps, les politiciens en apparence les plus ennemis les
-uns des autres $e réconcilieront pour tâcher de nous
+uns des autres réconcilieront pour tâcher de nous
 étrangler. Nous le savons.
 J'ai reçu des lettres littéralement honteuses, pour
 ceux qui me les avaient envoyées. Elles commençaient
-ainsi : Mon cher Péguy, je ne connais pas Téry, mais...
-— Mon cher Péguy, je n'ai pas lu un mot de Téry depuis
+ainsi: Mon cher Péguy, je ne connais pas Téry, mais...
+— Mon cher Péguy, je n'ai pas un mot de Téry depuis
 un an, mais il ne faut pas faire de personnalités. Enfin
-pour qui me prend-on ? Que diraient nos professeurs,
-Jlevait et disait : Monsieur, je n'ai jamais lu un mot de
+pour qui me prend-on? Que diraient nos professeurs,
+Jlevait et disait: Monsieur, je n'ai jamais un mot de
 Pierre Corneille, mais je persiste à croire qu'il était un
 alcoolique invétéré, — de géométrie si un élève d'abord
-se levait et disait : Monsieur, je n'ai aucune idée de ce
+se levait et disait: Monsieur, je n'ai aucune idée de ce
 que c'est qu'un triangle isocèle, mais je puis vous
-certifier que Ça danse très bien dans un quadrille, — et
-de chimie si un élève se levait : Monsieur, j'ignore
+certifier que danse très bien dans un quadrille, — et
+de chimie si un élève se levait: Monsieur, j'ignore
 totalement le permanganate de potasse, mais je
-garantis que mélangé avec deux fois et quart son poids ‘à
+garantis que mélangé avec deux fois et quart son poids
 
 de pommes de terre frites, il constitue un explosif
 des plus dangereux. Nos professeurs feraient cette conjecture, qu'on leur prépare un chahut sérieux. Cest
 pourtant à ce raisonnement, pour ainsi parler, que se
 réduisent exactement les communications que l'on n'a
 faites. Sauf la lettre de Beaulavon, toutes les lettres
-pouvaient se schématiser ainsi : Je ne sais pas un mot
-de la question, mais tu as tort, parce que tu fais des *
-_ personnalités. Dois-je croire que ces professeurs me
-préparaient un chabut ?
+pouvaient se schématiser ainsi: Je ne sais pas un mot
+de la question, mais tu as tort, parce que tu fais des
+personnalités. Dois-je croire que ces professeurs me
+préparaient un chabut?
 
 N'oublions pas que je lis scrupuleusement tout ce que
 Téry publie dans la Petite République.
@@ -1543,7 +1543,7 @@ de la pensée. Certains intellectuels, après la fausse
 culture, ont les formules, qui sont grossières comme les
 proverbes, et qui sont tout à fait dangereuses, parce
 que l'on croit tout à fait que c'est de la pensée. Quand
-le faux intellectuel répète : Il ne faut pas faire de personnalités, il n'analyse pas plus cette formule que le
+le faux intellectuel répète: Il ne faut pas faire de personnalités, il n'analyse pas plus cette formule que le
 paysan n'analyse un proverbe de la lune rousse. Mais
 comme le faux intellectuel croit savoir, il n'écoute pas
 l'analyse qu'on lui apporte. Cette surdité mentale
@@ -1551,13 +1551,13 @@ atteint, affecte les esprits les plus sérieux. Quand
 M. Seignobos ou M. Aulard parlent de la démocratie;
 quand Lagardelle et même Révelin parlent du prolétariat; quand Daveillans parle de la démocratie et
 du prolétariat, ils posent vraiment ces mots comme
-des logismes, des symboles morts. Ils refusent vraiment de repenser la réalité que ces mots ont pu
+des logismes, des symboles morts. Ils refusent vraiment de repenser la réalité que ces mots ont
 
 Faut-il donc qu'aujourd'hui je recommence ma démonstration? Est-elle surannée? Les événements échus
 pendant que nous réalisions la première et la deuxième
 série, et le commencement de la:troisième, jusqu'à ce
 cahier, nous ont-ils démentis? Le gouvernement de
-M. Waldeck-Rousseau a-t-il été un gouvernement personnel? N'avons-nous pas vu toute la vie publique
+M. Waldeck-Rousseau a-t-il été un gouvernement personnel? N'avons-nous pas toute la vie publique
 suspendue pendant que M. Waldeck-Rousseau avait la
 gorge malade? Et quand il s'agit de former ce ministère
 de défense républicaine et d'action qui ne nous a
@@ -1566,19 +1566,19 @@ révolution sociale, trouva-t-on un autre homme que
 M. Waldeck-Rousseau. Je le demande. Y eut-il deux
 
 Je ne demande pas si la constitution de ce ministère
-fut heureuse ou non; je ne demande pas si le gouvernement de ce ministère fut bon ou mauvais : nous
+fut heureuse ou non; je ne demande pas si le gouvernement de ce ministère fut bon ou mauvais: nous
 examinerons en son lieu. Je demande si le gouverne-
 ment de ce ministère fut ou ne fut pas le gouvernement
 personnel de M. Waldeck-Rousseau. Et sous l'aspect à
 des institutions parlementaires je demande si nous
-n'avons pas subi, ou eu un gouvernement personnel.
+n'avons pas subi, ou un gouvernement personnel.
 Je vais plus loin. Non seulement le gouvernement des
 différents ministères particuliers fut sous la personna- À
 lité de M. Waldeck-Rousseau un gouvernement souspersonnel de personnalités secondes ou d'individualités,
 mais l'opposition de gauche faite au ministère Waldeck-
 Rousseau ne fut pas plus que l'opposition de droite
-faite par des mouvements du peuple, par des mouve- !
-ments de masse, par des mouvements d'ensemble, par '
+faite par des mouvements du peuple, par des mouve-!
+ments de masse, par des mouvements d'ensemble, par
 des mouvements profonds et larges. Les antiministères
 latents pour qui travaillaient, inconsciemment ou non,
 
@@ -1608,16 +1608,16 @@ en eût pas du tout parmi eux, soit, comme il est probable, qu'elles fussent ét
 Car le mal parlementaire n'a sévi nulle part autant
 que parmi les antiparlementaires césariens, comme le
 mal ministériel ne sévit nulle part autant que parmi
-les antiministériels. J'ai vu de très près M. Jules Guérin
+les antiministériels. J'ai de très près M. Jules Guérin
 fonctionner en des journées inoubliables. Je crois que
-s'il avait eu le commandement en chef des forces, nous n'en serions pas où nous en sommes. Mais ces grands
+s'il avait le commandement en chef des forces, nous n'en serions pas où nous en sommes. Mais ces grands
 militaires se faisaient conduire par des vieux généraux
 Parmi nous, et je continue les exemples que je citais
 au commencement de la première série, parmi nous
 n'est-il pas vrai que le jeu des personnalités a tenu
 toute l'action. N'est-ce pas des individualités, sans
 mandat, qui ont joué dans les congrès de moins en
-moins généraux des partis socialistes français ? N'estce pas des individualités qui jouaient au Comité général? Et des individualités au Groupe socialiste parlementaire? Et des individualités, identiquement, au
+moins généraux des partis socialistes français? N'estce pas des individualités qui jouaient au Comité général? Et des individualités au Groupe socialiste parlementaire? Et des individualités, identiquement, au
 Groupe socialiste révolutionnaire? La partie Hervé
 n'a-t-elle pas été jouée toute par deux individualités,
 La question si grave, et si difficile, de la participation
@@ -1650,7 +1650,7 @@ bourgeois, qui est le luxe, et du vice populaire, qui est
 le luxe de la démagogie populacière, nous ne pourrons
 ni méconnaître ni négliger les personnalités individuelles où familiales.
 Plus près de nous je vois que les institutions ne
-prospèrent qu'autant qu'elles ont pu se constituer un
+prospèrent qu'autant qu'elles ont se constituer un
 personnel. Je me demande ce que serait le Mouvement
 
 - sans Lagardelle et quelques-uns, sans Buré. Je me
@@ -1676,7 +1676,7 @@ j'étais petit que les groupes travaillent. Aujourd'hui
 nous savons que les groupes ne font aucune œuvre. Ils
 font de l'agitation; ils ne font pas de l'opération, qui
 est presque le tout de l'action. Je révèle à tout gérant
-de périodique et d'éditions un secret du métier : quand
+de périodique et d'éditions un secret du métier: quand
 on veut qu'un cahier soit fait, on le demande à quelqu'un; quand on tient absolument à ce qu'il ne soit pas
 fait, on le demande à un groupe; à un comité, de préférence à un comité de rédaction. Les cahiers que je
 connais ont été faits par Jérôme et Jean Tharaud,
@@ -1684,7 +1684,7 @@ Lagardelle, Romain Rolland, Léon Deshairs, Pierre
 Baudouin, Lionel Landry, Antonin Lavergne, par
 M. Sorel, par mademoiselle Lévi, par Charles Guieysse,
 par Jaurès, par Georges Delahache, Jean Hugues, Félicien Challaye, Bernard Lazare, par Tolstoi. Les cahiers
-que nous préparons seront faits par les mêmes, par $
+que nous préparons seront faits par les mêmes, par
 Pierre Quillard, par Louis Gillet. Tous ces auteurs, sauf À
 le respect que je leur dois, sont des personnes. Je ne
 me représente pas ce que serait un cahier qui ne serait À
@@ -1696,7 +1696,7 @@ d'organisation. Le congrès avait officiellement oublié
 de se faire enregistrer.
 Quand nous publions un cahier établi par la Société À
 des Universités Populaires, cela ne signifie pas qu'un
-groupe intitulé Société des Universités Populaires nous !
+groupe intitulé Société des Universités Populaires nous!
 a donné de la copie qu'il avait faite. Cela veut dire que
 les initiateurs, les fondateurs, les secrétaires, les commissaires, les fonctionnaires des différentes Universités
 avaient, sur demande et convocation répétée, établi
@@ -1716,7 +1716,7 @@ pas personnellement les auteurs, le public en général,
 qui ne connaît pas personnellement les auteurs, accepte
 en garantie cette espèce de crédit personnel général
 que le faisceau des personnalités qui travaillent aux
-cahiers a pour ainsi dire capitalisé sur leur nom. Parce ,
+cahiers a pour ainsi dire capitalisé sur leur nom. Parce,
 que l'on sait que notre institution garantit la vérité des
 contributions et des œuvres, parce qu'on sait que réciproquement nos auteurs se conforment à l'institution
 commune, chacun de nos abonnés accorde un crédit
@@ -1757,13 +1757,13 @@ nous envoyait de Chine, ce qui m'intéresse dans le
 courrier que Challaye nous apporta d'Indo-Chine, c'est
 justement que ces deux personnes, ayant voyagé dans
 
-_ ces deux pays, et y étant demeurées, nous contèrent ce
+ces deux pays, et y étant demeurées, nous contèrent ce
 qu'elles y virent. Qu'est-ce que le courrier de Challaye,
 sinon la narration personnelle de ce que Challaye vit en
 Indo-Chine. Et quand Bourgeois nous fit un courrier de
 Montceau, qu'était-ce que ce courrier, sinon la narration
-personnelle de ce que Bourgeois avait vu à Montceau.
-— J'étais là, telle chose m'advint : toute l'histoire est
+personnelle de ce que Bourgeois avait à Montceau.
+— J'étais là, telle chose m'advint: toute l'histoire est
 là. Si Bourgeois avait fait authentiquer son compte
 rendu par le comité de la grève, par les assemblées
 générales des grévistes, par Maxence Roldes, par
@@ -1774,9 +1774,9 @@ gendarmerie, par le préfet de Saône-et-Loire, par le
 général commandant la subdivision de région, par les
 ministères du commerce et de l'intérieur, c'est alors
 que je refuserais formellement d'y entendre. Et s'il
-avait eu l'idée d'appuyer son compte rendu sur un
+avait l'idée d'appuyer son compte rendu sur un
 ordre du jour préalablement voté à la Chambre, c'est
-alors que nous n'eussions pas eu lidée de le lire.
+alors que nous n'eussions pas lidée de le lire.
 Pareillement Challaye, s'il avait fait authentiquer son
 courrier par les résidents et les vice-résidents, par la représentation coloniale, par les journaux, par linfanterie de marine et par la flotte et par le gouvernement
 général, par le ministère des colonies, ou au contraire
@@ -1785,7 +1785,7 @@ c'est alors que son courrier serait comme s'il n'était
 pas. Landry ne s'est pas fait certifier par M. le général
 
 Le courrier de Challaye serait sans valeur s'il n'était
-pas la narration de ce que quelqu'un a vu quelque part
+pas la narration de ce que quelqu'un a quelque part
 en quelque temps.
 
 Nous publierons dès que nous le pourrons le journal
@@ -1794,11 +1794,11 @@ de Vladivostok. Ce journal de route n'est plus même
 un courrier. Dans ce journal de route il ne s'agit plus
 même de savoir ce qu'une personne a vu, dans un à pays, de la vie générale. Il s'agit de savoir ce qu'une
 personne a subi, dans un pays, comme traitement
-particulier. Or cette relation a été composée à l'imprimerie et je l'ai lue en épreuves : rien ne m'intéresse
+particulier. cette relation a été composée à l'imprimerie et je l'ai lue en épreuves: rien ne m'intéresse
 autant, rien ne me renseigne autant sur le fonctionnement du despotisme russe que cette histoire particulière
 vraie d'un voyageur particulier véridique, des événements, des accidents même qui sont survenus à ce
 
-On me dit : Les révélations de Challaye intéressent
+On me dit: Les révélations de Challaye intéressent
 vingt-cinq millions d'hommes, le courrier de Challaye
 importe au sort de vingt-cinq millions d'hommes; et
 votre polémique avec Téry concerne un seul personnage.
@@ -1829,7 +1829,7 @@ croire qu'il y a des personnalités dans la Mission. Sans
 quoi elle ne serait pas aussi forte qu'on le dit. De même
 
 ‘il doit y avoir des personnalités ou des individualités
-parmi les colons, s'il y en a, parmi les fonctionnaires, au
+parmi les colons, s'il y en parmi les fonctionnaires, au
 Gouvernement général, parmi les négociants français, au
 ministère des colonies. Et s'il n'y a pas des individualités
 bonnes ou mauvaises dans les administrations coloniales et dans les gouvernements coloniaux, il y a au
@@ -1849,7 +1849,7 @@ d'histoire, n'entreraient pas pour leur part légitime dans
 les travaux de l'histoire contemporaine, et plus en
 particulier dans les travaux moins déterminés qui
 
-| porteraient sur les formes sociales, sur les mouvements
+porteraient sur les formes sociales, sur les mouvements
 sociaux. Si l'un de nous établissait patiemment un
 relevé analysé profondément de son budget familial,
 jour par jour, mois par mois, an par an, si l'un de nous
@@ -1860,7 +1860,7 @@ le mois, dans la saison, dans l'année, dans la vie, on
 s'apercevrait que la monographie d'un homme ordinaire
 introduirait un éclairage dans beaucoup de travaux
 économiques très confus, très obscurs.
-Parmi nos souscripteurs je ne connais que des personnes ; et quand je consulte mon jeu de fiches, parmi
+Parmi nos souscripteurs je ne connais que des personnes; et quand je consulte mon jeu de fiches, parmi
 nos abonnés, je ne vois guère que des personnes. Les
 pauvres gens, ouvriers, employés, instituteurs, qui
 nous envoient ou nous apportent régulièrement un,
@@ -1899,26 +1899,26 @@ parle pas des comités politiques. Une expérience de
 deux ans, et qui nous a coûté cher, me permet d'affirmer
 Sans aucune réserve que les groupes d'études n'étudient
 
-| pas, que les groupes de lecture ne lisent pas, et que les
+pas, que les groupes de lecture ne lisent pas, et que les
 Bibliothèques peuvent bien recevoir des sous, mais
-| qu'elles se refusent obstinément à recevoir des livres.
-| Ce qui étudie dans les groupes d'études, ce qui lit dans
-| les groupes de lecture, ce sont certaines personnes. Et
+qu'elles se refusent obstinément à recevoir des livres.
+Ce qui étudie dans les groupes d'études, ce qui lit dans
+les groupes de lecture, ce sont certaines personnes. Et
 
 dans les groupes où nos cahiers ont tenu, Cest qu'il y
 avait quelqu'un qui les tenait, ou quelques-uns.
 
 Il semblerait à première vue que les citoyens s'assemblent pour contribuer. Il s'assemblent au contraire
 pour parasiter. Quand plusieurs contribuables ont
-fondé un groupe, ils ne disent pas : Puisque nous sommes
+fondé un groupe, ils ne disent pas: Puisque nous sommes
 un certain nombre, nous allons vous envoyer un peu
 plus d'argent, pour vous aider à vivre, à travailler. Ils
-disent : Puisque nous sommes un assez grand nombre,
+disent: Puisque nous sommes un assez grand nombre,
 vous ne manquerez pas de nous consentir un abonnement de propagande. — Et pendant ce temps deux
 instituteurs qui font leur année de service militaire nous
 envoient régulièrement le montant de leur prêt.
 
-Ainsi en toutes ses parts non seulement la démonstration que je donnais il ÿ a deux ans n'arien perdu, mais
+Ainsi en toutes ses parts non seulement la démonstration que je donnais il a deux ans n'arien perdu, mais
 l'expérience de ces deux années la renforce et la
 confirme. Aussi longtemps qu'on ne m'aura pas produit une réfutation, je demande qu'on tienne la démon- …
 stration pour valable et reçue.
@@ -1931,7 +1931,7 @@ auditoire les suit. Leur auditoire tient pour acquis, au
 moins provisoirement, ce qui est acquis. Quand Perrin
 fait en Sorbonne son cours de chimie physique, on ne »
 
-lui dit pas : Pardon, monsieur, voulez-vous commencer À
+lui dit pas: Pardon, monsieur, voulez-vous commencer À
 
 par nous répéter ce que c'est qu'une éprouvette.
 Je demande qu'on ne me fasse pas répéter. La vie est
@@ -1955,7 +1955,7 @@ Gémier Le 14 Juillet de Romain Rolland s'est porté
 jusque dans le grand public de Paris, dans le public
 bourgeois, dans le public populaire, dans Le public tout
 
-_ court. Les abonnements nouveaux que nous recevons
+court. Les abonnements nouveaux que nous recevons
 ne sont pas nombreux mais ils sont caractéristiques. Ils
 sont avant-coureurs.
 
@@ -1995,14 +1995,14 @@ personnalités parce qu'il y a l'adversaire, aussi longtemps qu'il y a l'adversa
 aussi longtemps qu'il y a l'adversaire, et comme il est
 évident par définition qu'il y aura l'adversaire aussi
 longtemps qu'il y aura la bataille, et réciproquement
-qu'il y aura la bataille aussi longtemps qu'il ÿ aura
-l'adversaire, mais qu'aussitôt après qu'il ny aura À
+qu'il y aura la bataille aussi longtemps qu'il aura
+l'adversaire, mais qu'aussitôt après qu'il aura À
 plus de bataille il n'y aura plus d'adversaire, et plus
 d'adversaire, plus de bataille, cela veut dire que
 tant qu'on se bat, il faut mentir. Nous refusons formellement.
 
 Dans le public plus large où nous parvenons, quelle
-sera la part du public universitaire ? celle qu'il voudra.
+sera la part du public universitaire? celle qu'il voudra.
 Nous vivons sous le régime de la liberté. Le public
 universitaire des cahiers se fera librement sa place dans
 le public général des cahiers.
@@ -2010,7 +2010,7 @@ le public général des cahiers.
 Quand j'assiste régulièrement le vendredi au cours
 de M. Bergson au Collège de France, à quatre heures
 trois quarts, je suis frappé de ceci: Dans la grande
-salle à peu près pleine, sur les cent cinquante assistants et plus, — toujours le discrédit de la métaphysique, — il y a de tout le monde : je vois des hommes,
+salle à peu près pleine, sur les cent cinquante assistants et plus, — toujours le discrédit de la métaphysique, — il y a de tout le monde: je vois des hommes,
 des vieillards, des dames, des jeunes filles, des jeunes
 gens, beaucoup de jeunes gens, des Français, des
 Russes, des étrangers, des mathématiciens, des naturalistes, j'y vois des étudiants es lettres, des étudiants
@@ -2024,7 +2024,7 @@ quelqu'un de province; on y descenddes cahiers, de Pages
 libres, de Jean-Pierre, des Journaux pour tous; on y
 vient de la Sorbonne et, je pense, de l'École normale
 j'y vois des bourgeois notoires, des socialistes, des
-anarchistes : j'y vois de tout, excepté des universitaires.
+anarchistes: j'y vois de tout, excepté des universitaires.
 Il faut croire que tous les professeurs de Paris ont
 classe à la même heure. Surtout je n'y vois à ma connaissance ni aucun professeur de sociologie, ni aucun
 professeur de philosophie. Je ne serais pas surpris que
@@ -2046,11 +2046,11 @@ autant que je pouvais. Telles propositions, par exemple:
 En France le cléricalisme et l'anticléricalisme sont les
 seuls qui nourrissent leurs hommes. Le socialisme pur
 et l'anarchisme pur laissent crever leurs modestes
-universitaires s'imaginèrent que c'étaient là de misérables rabiots, comme certains universitaires s'étaient À
+universitaires s'imaginèrent que c'étaient de misérables rabiots, comme certains universitaires s'étaient À
 imaginé que mes démonstrations des personnalités À
 étaient de lamentables bavardages. Et quand ce cahier
 parviendra, s'il y a quelqu'un, ce sera l'un d'eux, qui à
 encore, ayant d'un regard distrait parcouru ces soixante
 pages, ou ne les ayant pas lues du tout, dira: Je n'y
-comprends rien. Il n'y à pas de plan. Il n'a pas traité ‘1
+comprends rien. Il n'y à pas de plan. Il n'a pas traité
 la question. À

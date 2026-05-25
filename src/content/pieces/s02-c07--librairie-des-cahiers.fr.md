@@ -36,7 +36,7 @@ Nos finances restent lourdes. Je ne puis en donner
 l'état aujourd'hui. Le mouvement des fonds, entrées et
 sorties, est si considérable qu'un état de situation,
 où nous avons commencé la deuxième série, deux
-méthodes se présentaient : la méthode petite-bourgeoïse ,
+méthodes se présentaient: la méthode petite-bourgeoïse,
 et la méthode révolutionnaire. Sur les quatre cents
 abonnés fermes que nous avions alors, nous étions
 assurés que plus de la moitié nous resteraient fidèles.
@@ -56,25 +56,25 @@ différents publics répondirent, comment ce lancement
 devint une enquête véritable.
 Nous avons donc dépensé beaucoup d'argent, tout en
 réduisant nos frais au minimum strict. Nous avons ainsi
-répartis ainsi à peu près : LE
+répartis ainsi à peu près: LE
 cinq à six cents abonnés de propagande
-%. Dès à présent nos cahiers se suffiraïent à eaxmêmes Fe
+%. Dès à présent nos cahiers se suffiraïent à eaxmêmes
 se suffisant à eux-mêmes, les abonnements de souserip-
 - propagande. Mais nous sommes décidés à épuiser nos
 ments gratuits. Les pauvres ont droit à l'enseignement
 
 - dela vérité. Sans commencer incidemment le cahier
 que je ferai sur l'institution des cahiers, je veux dissiper a
-hr. mn malentendu. — En quoë, m'a-t-on dit, vos eshiers ne
+hr. malentendu. — En quoë, m'a-t-on dit, vos eshiers ne
 peuvent-ils servir aux institnteurs? — Nos cahiers ne
 vont pas aux instituteurs. Nos abonnements gratuits ne ee,
-“  nemenis de propagande ne vont aux répétiteurs etnes
-“ abonnements ordinaires aux professeurs. Dans Fétat
-“ présent des institutions et des esprits, nos cahiers ne de
+nemenis de propagande ne vont aux répétiteurs etnes
+abonnements ordinaires aux professeurs. Dans Fétat
+présent des institutions et des esprits, nos cahiers ne de
 à deux ou trois cents personnes, à des instituteurs, à
 
 septième cahier de la deuxième série
-écrites soit à nous soit à M. Émile Boivin, secrétaire .
+écrites soit à nous soit à M. Émile Boivin, secrétaire.
 des Journaux pour tous, ont prouvé qu'ils pouvaient lire
 utilement nos cahiers, ou qui nous étaient recommandés
 par de sérieuses références. La plupart de nos abonnés
@@ -107,7 +107,7 @@ le prix de l'abonnement de propagande est très sensiblement inférieur au prix 
 néraux, la composition, la correction, la mise en pages,
 la mise en train demeurant les mêmes, l'introduction de
 tout nouvel abonnement fait baisser le prix de revient
-pour chaque exemplaire. Tout industriel et tout commerçant me comprendra. Nous avons donc intérêt financier à ce que nos anciens abonnés nous fassent des ‘
+pour chaque exemplaire. Tout industriel et tout commerçant me comprendra. Nous avons donc intérêt financier à ce que nos anciens abonnés nous fassent des
 abonnements nouveaux, füt-ce des abonnements de propagande.
 C'est dire que nous avons le même intérêt à ce que
 nos abonnés de propagandene se désabonnent pas, sous
@@ -116,7 +116,7 @@ abonné de propagande qui se désabonne, en faisant
 monter le prix de revient, nous devient plus onéreux
 encore.
 
-Quelques abonnés de propagande ont eu la délicatesse de nous dire : Mon cher Péguy, je ne suis pas socialiste. Je ne veux pas rester à charge à une institution
+Quelques abonnés de propagande ont la délicatesse de nous dire: Mon cher Péguy, je ne suis pas socialiste. Je ne veux pas rester à charge à une institution
 socialiste. Je m'en vais. — Pour la raison que j'ai indiquée ils nous laissaient en partant une charge plus
 lourde. Et ils cédaient à un sentiment mal entendu.
 Abonnement de propagande ne veut pas dire prix doux
@@ -129,18 +129,18 @@ septième cahier de la deuxième série
 Nos abonnés ordinaires n'ont pas tous payé leur abon-
 nement à la deuxième série. Nous prions ceux qui sont
 en retard de vouloir bien s'acquitter.
-Nous avons eu quelques abonnés de souscription à la
+Nous avons quelques abonnés de souscription à la
 première série. Nous espérons qu'ils nous continueront
 leur abonnement. Nous avons peu de ces grands abonne-
 ments. Depuis que nous sommes institués nous n'avons
-pas reçu un sou des républicains honnêtes qui subven- .
+pas reçu un sou des républicains honnêtes qui subven-.
 tionnent les autres institutions de propagande républicaine. Je ne ferai pas de démarches. Mais je me per-
 mets d'attirer sur cette situation l'attention des intéressés, de ceux qui les approchent.
 
 Je répète que je n'admets pas que l'on ne soit pas
 abonné aux cahiers, quand on le peut. Non pas que j'en
 veuille aux innombrables citoyens qui ne sont pas
-abonnés. Mais quelques amis anciens et anciens camarades m'ont dit : Mon cher Péguy nous avons résolu
+abonnés. Mais quelques amis anciens et anciens camarades m'ont dit: Mon cher Péguy nous avons résolu
 d'ignorer tout à fait tes cahiers. Nous ne t'en gardons
 pas moins notre vieille amitié. — Cette vieille amitié
 me sembla de même qualité que la vieille gaieté fran-
@@ -154,7 +154,7 @@ Mais l'expérience et le calcul ont démontré que la
 principale force de nos cahiers leur viendrait des souscriptions mensuelles. Nous avons tous des budgets
 mensuels. Nous devons constituer aux cahiers un budget mensuel régulier.
 Quand je fondai les cahiers, plusieurs amis anciens
-me dirent : Mon cher Péguy nous refusons formellement de t'accorder aucuns subsides, car ce serait encourager une institution qui ne peut durer. Ce serait
+me dirent: Mon cher Péguy nous refusons formellement de t'accorder aucuns subsides, car ce serait encourager une institution qui ne peut durer. Ce serait
 mal administrer nos finances, et te servir de mauvaise
 amitié. — Aujourd'hui que nos cahiers non seulement
 durent mais sont de toutes les institutions socialistes,
@@ -188,9 +188,9 @@ cahiers une force unique.
 Malheureusement ces dévouements ne sont pas assez
 nombreux. Nos amis immédiats finiraient par succomber
 sous la charge librement assumée. Je demande instamment qu'il se révèle des vocations amies. Dansun personnel aussi nombreux, parmi douze cents abonnés
-fermes, il est impossible qu'il ne se lève pas une centaine .
+fermes, il est impossible qu'il ne se lève pas une centaine.
 environ de syndicataires. Plusieurs de nos nouveaux
-abonnés ont eu d'eux-mêmes cette intention. D'autant
+abonnés ont d'eux-mêmes cette intention. D'autant
 plus que cette souscription se confond au besoin avec
 l'abonnement. Des abonnés gratuits, des abonnés de
 propagande, des abonnés ordinaires nous ont écrit
@@ -200,7 +200,7 @@ enverrai un franc — ou deux francs — tous les mois.
 Non seulement nous le voulons bien, mais nous aimons
 beaucoup ces abonnements.
 Plusieurs amis anciens et anciens camarades m'ont
-dit : Je suis partagé entre trente-six institutions. Il n'y
+dit: Je suis partagé entre trente-six institutions. Il n'y
 a pas de raisons pour que je fasse pour les cahiers
 plus que pour n'importe quelle institution. — Je crois
 au contraire que mes camarades et mes amis doivent
@@ -219,7 +219,7 @@ plus efficace à beaucoup près qu'une accumulation de
 ceux de nos abonnés qui nous ont demandé comment se partager entre les institutions libres nous donnerons dans le neuvième cahier des indications utiles.
 
 On r'attend pas que je présente incidemment la justification des cahiers. Chacun des reproches que l'on
-nous à faits demanderait au moins un cahier. Nous respectons nos abonnés : jamais nous ne traiterons en
+nous à faits demanderait au moins un cahier. Nous respectons nos abonnés: jamais nous ne traiterons en
 cinq sec les questions importantes. L'introduction des
 romans, poèmes et drames, le choix des documents et
 contributions, les annonces, les communications, les
@@ -253,7 +253,7 @@ Enfin nous fondons La librairie des cahiers, c'est-à-dire
 que nous faisons pour nos abonnés la commission de
 tous les livres. Nous réservons rigoureusement ce service à nos abonnés.
 Nous avons en librairie une puissance d'achat assez
-considérable. Nous n'avons plus aucune raison de porter cl
+considérable. Nous n'avons plus aucune raison de porter
 ailleurs les avantages de cette clientèle. Nos cahiers ont
 besoin d'argent. Nous devons leur donner tout l'argent
 que nous pouvons. Les bénéfices de la librairie seront
@@ -265,7 +265,7 @@ Le huitième cahier sera le Bacchus de notre ami
 Lionel Landry. Nos abonnés savent que notre ami est
 en Chine. Je lui avais promis de lui faire une édition
 rouge et noire, comparable à de belles éditions anglaises
-qu'il aime. Je ne puis tenir cette promesse. Il me pardonnera. Nous avons dû corriger les épreuves sans lui.
+qu'il aime. Je ne puis tenir cette promesse. Il me pardonnera. Nous avons corriger les épreuves sans lui.
 De grosses difficultés d'orthographe se présentaient
 pour les noms propres. Il fallait passer des noms grecs
 aux noms français par des variations voulues. Nous
@@ -280,7 +280,7 @@ maître Gottfried, ont conté ce conte pour tous ceux
 qui aiment, non pour les autres. Ils vous mandent
 par moi leur salut. Ils saluent ceux qui sont pensifs
 et ceux qui sont heureux, les mécontents et les désireux, ceux qui sont joyeux et ceux qui sont troublés,
-tous les amants. Puissent-ils trouver ici consola- .
+tous les amants. Puissent-ils trouver ici consola-.
 tion contre l'inconstance, contre l'injustice, contre
 le dépit, contre la peine, contre tous les maux
 
@@ -333,18 +333,18 @@ histoire si poignante, dont l'humanité entière a été
 
 Pour plus tard, mon intention est d'utiliser, en deux
 œuvres, les notes que j'ai prises. Je voudrais, sous le
-titre : « Impressions d'audiences », conter mes procès,
+titre: « Impressions d'audiences conter mes procès,
 dire toutes les monstrueuses choses et les étranges
 figures qui ont défilé devant moi, à Paris et à Versailles.
-Et je voudrais, sous le titre : « Pages d'exil », conter mes
+Et je voudrais, sous le titre: « Pages d'exil conter mes
 onze mois d'Angleterre, les échos tragiques qui retentissaient en moi, à chaque dépêche désastreuse de
 
-j France, tout ce qui s''évoquait loin de la patrie, les faits
+France, tout ce qui s''évoquait loin de la patrie, les faits
 et les personnages, dans la complète solitude où je
 m'étais muré. Mais ce sont des désirs, des projets
 simplement, et il est bien possible que ni les circonsiances ni la vie ne me permettent de les réaliser.
 
-D'ailleurs, ce ne serait pas là une histoire de l'affaire
+D'ailleurs, ce ne serait pas une histoire de l'affaire
 Dreyfus, car ma conviction est que cette histoire ne
 saurait être écrite aujourd'hui, parmi les passions
 actuelles, sans les documents qui nous manquent
@@ -400,7 +400,7 @@ Cinquième acte, publié dans l'Aurore du 12 septembre 1899;
 Lettre à Madame Alfred Dreyfus, publiée dans
 l'Aurore du 29 septembre 1899;
 
-Lettre au Sénat, publiée dans !' Aurore du 29 mai 1900;
+Lettre au Sénat, publiée dans Aurore du 29 mai 1900;
 
 Lettre à M. Émile Loubet, président de la République, publiée dans l'Aurore du 22 décembre 1900;
 
@@ -411,14 +411,12 @@ La préface du volume a été publiée dans l'Aurore
 du samedi 16 février 1901.
 
 Pris dans nos bureaux ou franco
-Franco à domicile en province ou à l'étranger : .
+Franco à domicile en province ou à l'étranger:.
 Seul ou dans une commande inférieure
 Dans une commande égale ou supérieure
 
 Cette confrontation devait passer dans la première
 série. Nos anciens abonnés la placeront avec les discours
-et les allocutions d' Anatole France que nous avons
+et les allocutions Anatole France que nous avons
 
 - publiés l'année dernière.
-
----

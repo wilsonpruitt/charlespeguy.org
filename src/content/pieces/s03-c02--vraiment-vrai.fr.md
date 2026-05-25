@@ -19,25 +19,25 @@ Un certain nombre de jeunes gens se faisaient ces
 réflexions. Ils auraient préféré au tintamarre électoral une
 propagande persévérante et désintéressée qui n'eùt exposé
 que des idées et des faits, qui eût plus visé à l'éducation
-_ morale qu'aux succès de scrutins.
+morale qu'aux succès de scrutins.
 Ils pouvaient longtemps se faire à eux-mêmes toutes ces
-sl réflexions. Une action commune leur était impossible : ils
-(a me se connaissaient pas.
-gi Il s'est trouvé un homme qui les a mis en rapport, qui
-à " s'est dit : « Ces jeunes gens s'ignorent, il faut les présenter
+réflexions. Une action commune leur était impossible: ils
+me se connaissaient pas.
+Il s'est trouvé un homme qui les a mis en rapport, qui
+à s'est dit: « Ces jeunes gens s'ignorent, il faut les présenter
 10 les uns aux autres. »
 \8 Il nous a donc envoyé à tous des cartes d'invitation,
 _._ appelées je crois convocations, et nous a réunis.
-HR Cet homme, c'est le commandant de recrutement de
-Ke Nevers, qui convoqua ses réservistes pour leur faire faire
+Cet homme, c'est le commandant de recrutement de
+Nevers, qui convoqua ses réservistes pour leur faire faire
 1 madame Garnier, que huit ou dix Nivernais, hommes
-—_ d'études et de bonne volonté, firent connaissance. Ils
-_ s'aperçurent qu'ils avaient des idées communes, des ten-
-‘# dances pareilles. Ils regrettèrent de ne s'être pas connus
-K plus tôt, mais convinrent du moins de ne pas se perdre de
-th vue, et d'essayer d'agir ensemble.
+d'études et de bonne volonté, firent connaissance. Ils
+s'aperçurent qu'ils avaient des idées communes, des ten-
+dances pareilles. Ils regrettèrent de ne s'être pas connus
+plus tôt, mais convinrent du moins de ne pas se perdre de
+vue, et d'essayer d'agir ensemble.
 ‘(ah Pendant une marche-manœuvre dans laquelle je remplissais avec honneur et fidélité les importantes fonctions
-ee d'homme de communication, l'idée me vint de fonder ici
+d'homme de communication, l'idée me vint de fonder ici
 
 Deux amis qui à l'école de section se trouvaient être file
 de base réfléchirent à l'idée, l'approuvèrent, et ce fut placés
@@ -65,7 +65,7 @@ Pour nous aider à retrouver les Nivernais de Paris qui peuvent nous aider — n
 nous vous prions de les adresser à M. Dunois-Catonné,
 rue de Paris, à Nevers, secrétaire de la rédaction.
 
-È M. Emmanuel Defert, 45, boulevard des Batignolles, va
+È M. Emmanuel Defert, 45, boulevard des Batignolles,
 se mettre en relations avec le Groupe des Nivernais de
 
 Nous souhaitons que les cahiers nivernais naissent et se vivent justes, vrais, utiles, prospères, libres, qu'ils travaillent solidairement avec nous, mais qu'ils soient libres de nous aussi.
@@ -73,17 +73,17 @@ Nous souhaitons que les cahiers nivernais naissent et se vivent justes, vrais, u
 À Ce cahier a élé composé et tiré au tarif des ouvriers syndiquës
 
 Bee Le: prix de nos abonnements ordinaires est à peu près
-_ égal au prix de revient; le prix de nos abonnements de
-_ propagande est donc très sensiblement inférieur au prix
-_ de revient.
+égal au prix de revient; le prix de nos abonnements de
+propagande est donc très sensiblement inférieur au prix
+de revient.
 DENT: Nous envoyons éventuellement nos cahiers à qui nous
 — Les demande. — Nous envoyons pour soixante centimes renseignements nécessaires.
 
-_ Nous acceptons que nos abonnés paient leur abonne- ee.
-—_ mentpar mensualités de un ou deux francs. À
+Nous acceptons que nos abonnés paient leur abonne- ee.
+mentpar mensualités de un ou deux francs. À
 Fat M. André Bourgeois, administrateur des cahiers,
-FE reçoit pour l'administration et pour la librairie tous
+reçoit pour l'administration et pour la librairie tous
 5 les jours de la semaine, le dimanche excepté, — de
-ÉE huit heures à onze heures et de une heure à sept À
+huit heures à onze heures et de une heure à sept À
 M. Charles Péguy, gérant des cahiers, reçoit pour
 … La rédaction le jeudi soir de deux heures à cinq heures. à

@@ -17,7 +17,7 @@ l'année scolaire où nous sommes entrés.
 J'espérais un peu à part moi que les cahiers seraient
 toujours pleins et que je serais toujours dispensé de
 présenter une apologie. Mais un ami me communique
-ce morceau de journal : — cri de Paris — numéro
+ce morceau de journal: — cri de Paris — numéro
 
 On s'est demandé de qui étaient les beaux articles de La
 Petite République, signés « Un Universitaire ». On les a
@@ -32,7 +32,7 @@ moment une admirable école de philosophes socialistes,
 qui, abandonnant les abstractions et les disputes vaines,
 apportent au peuple leur intelligence et leur volonté
 
-Le nom du jeune philosophe commence par un H et finit
+Le nom du jeune philosophe commence par un et finit
 par une. Cherchez...
 
 Je ne puis savoir et je n'ai pas demandé si cette note
@@ -60,7 +60,7 @@ un libre accès à la philosophie, à la science et à l'art.
 
 est vrai que déjà nous avions abandonné (les
 abstractions vaines et les disputes vaines. Jamais nous
-n'avons entendu abandonner par là rien de ce qui fut la
+n'avons entendu abandonner par rien de ce qui fut la
 passion ou le travail de l'ancienne humanité. Personnellement je déplore que plusieurs de nos anciens cama-
 
 rades n'aient fait que substituer des vanités nouvelles
@@ -70,7 +70,7 @@ en second lieu à l'action politique parlementaire inaugurée parmi les socialis
 
 Enfin nous n'avons jamais pensé que nous apporterions au peuple aucune intelligence et volonté géné-
 reuse. Nés du peuple et peuple nous-mêmes, pauvres et
-pour la plupart fils de pauvres, nous n'avons jamais eu
+pour la plupart fils de pauvres, nous n'avons jamais
 à nous transporter auprès du peuple. Cette volonté que
 nous avons eue, que nous avons, que nous aurons
 toujours de faire de l'action morale socialiste ainsi et
@@ -92,10 +92,10 @@ articles signés dans la Petite République un Universitaire ne sont
 nullement en effet d'un M. H... qui aurait dernièrement soutenu, en
 Sorbonne, une thèse sur la philosophie allemande. Mais ils ne sont
 pas non plus d'un jeune professeur de philosophie du Midi, dont le
-nom commencerait par un Met finirait par une. Ils sont dunde .
+nom commencerait par un Met finirait par une. Ils sont dunde.
 mes anciens camarades, ancien élève de l'École Normale, agrégé de
 à philosophie, dont je ne donnerai pas les initiales, en congé à Paris,
-4 _ Bien qu'il ait deux promotions de plus que moi et qu'il soit monté
+4 Bien qu'il ait deux promotions de plus que moi et qu'il soit monté
 d'un degré plus haut en grade, il ne m'a jamais méprisé, il ne me
 
 premier cahier de la deuxtème série
@@ -117,8 +117,8 @@ salles de rédaction.
 méprise pas. Je ne sais pas s'il est d'une école formée autour de
 M. Lucien Herr. Je sais qu'il n'était pas avec M. Lucien Herr de l'ancienne compagnie dessus dite. Je le vis un peu aux récents congrès
 socialistes. Il me demanda ce que je pensais de ses articles. Si je le
-voyais aujourd'hui je lui dirais : Mon ami méfie-toi. Je n'ai pu lire
-tes premiers articles, parce que j'en fus empêché. Mais j'ai lu les
+voyais aujourd'hui je lui dirais: Mon ami méfie-toi. Je n'ai lire
+tes premiers articles, parce que j'en fus empêché. Mais j'ai les
 derniers. Prends garde. Ils ne sont pas d'un universitaire. Quand tu
 signes un universitaire, tu te désignes au public par un accident et
 non par ton caractère même — on peut parler ce langage à un
@@ -131,5 +131,3 @@ journal bourgeois. Ces polémiques deviennent aussi facilement de
 résonance fausse que la plupart des soutenances de thèse. Evite
 aussi de t'habituer au journalisme. — Je lui parlerais ainsi parce
 que je le connais et que je sais qu'il est un bon citoyen, non auloritaire, sincère, entendant la critique.
-
----

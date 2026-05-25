@@ -12,9 +12,9 @@ neige, ses hautes cheminées sans fumées, ses ateliers
 sans bruits, apparaît, à l'étranger qui débarque à l'heure
 matinale du premier train, comme une ville morte.
 Cependant descend la rue de la Gare la corvée de pain
-d'un bataillon d'infanterie : un conducteur tient par la
+d'un bataillon d'infanterie: un conducteur tient par la
 bride un cheval attelé à la voiture régimentaire toute
-remplie de sacs à distribution bourrés de pains ; derrière, glissant, butant dans la neige, les mains cachées
+remplie de sacs à distribution bourrés de pains; derrière, glissant, butant dans la neige, les mains cachées
 dans les pans de la capote relevée, six hommes de
 corvée, six hommes d'escorte armés, le fusil à la
 bretelle, trois fourriers et un caporal d'ordinaire, en
@@ -49,7 +49,7 @@ droite, derrière le canal, large et profond fossé, entourée de son mur d'ence
 de travail, avec ses cheminées énormes, comme des
 tours, ses machines géantes dressées sur les puits, ses
 bâtiments de toutes sortes, scieries, lavoirs, cribles,
-compresseurs, fours à coke, briqueteries ; c'est la ville
+compresseurs, fours à coke, briqueteries; c'est la ville
 de puissance, la cité féodale.
 
 Il y a lutte entre les deux villes.
@@ -81,7 +81,7 @@ la mine. Catholique convaincu, plutôt libéral, mais en
 somme de son temps, philanthrope comme on pouvait
 l'être alors, se croyant une mission à remplir, il aimait
 à sa manière ses ouvriers. Soucieux de leur santé, il
-bâtit un hôpital ; soucieux de leur instruction et de leur
+bâtit un hôpital; soucieux de leur instruction et de leur
 moralité, il construisit dans chacun des quartiers de
 la commune une église et une école. Il confia l'hôpital
 et les écoles aux seuls auxiliaires qu'il eût facilement
@@ -101,7 +101,7 @@ ajouter une seconde.
 Tant que Jules Chagot vécut, il représenta, aux yeux
 de l'ouvrier, le propriétaire légitime avec ses défauts et
 ses qualités. Il avait fait de gros efforts, fourni un travail
-individuel considérable, montré une grande activité ; il
+individuel considérable, montré une grande activité; il
 avait créé l'œuvre. Le mineur qui n'a pas, comme Fouvrier des väles, uniquement ses outils et la connaissance
 
 de son métier pour vivre, mais qui, de plus, très souvent
@@ -116,12 +116,12 @@ jardin ou de son champ, il ne pouvait pas être égaled ment propriétaire de ce
 travaillait d'un dur travail, où il passait la plupart de
 son temps, où plusieurs générations de ses ascendants
 avaient travaillé, sur laquelle il se trouvait avoir des
-ÿ droits de premier occupant, d'ancienneté de possession et d'exploitation. Comment pouvait-il se faire qu'un
+droits de premier occupant, d'ancienneté de possession et d'exploitation. Comment pouvait-il se faire qu'un
 - monsieur quelconque, ayant acheté un morceau de
-ÿ papier à la Bourse ou en banque, pût venir non seule-
+papier à la Bourse ou en banque, pût venir non seule-
 
 ment prétendre partager le fruit de son travail, mais
-encore lui enlever, sans fatigues, la plus grosse part .
+encore lui enlever, sans fatigues, la plus grosse part.
 des bénéfices de l'entreprise, sous forme de dividendes.
 
 Lui que l'on ne consultait en rien, à qui l'on ne demandaït jamais un avis, quelques changements que l'on
@@ -141,8 +141,8 @@ La grève fut l'arme trouvée.
 C'était la seule qui püût atteindre le Capital dansses
 forces vives. La première grande grève, présentant un
 Elle aboutit à la reconnaissance du Syndicat des
-mineurs et similaires de Montceau-les-Mines : c'étaient
-les premiers pas vers l'organisation ouvrière ; la grève
+mineurs et similaires de Montceau-les-Mines: c'étaient
+les premiers pas vers l'organisation ouvrière; la grève
 dura à peu près un mois; les ouvriers avaient bien
 choisi leur moment, ils ne souffrirent pas trop, venant
 de toucher un mois en retard qui leur était dû. Des
@@ -184,7 +184,7 @@ seulement la diminution du nombre des Sœurs infirmières et la réduction du tr
 taiïent. Elle exigea aussi la vérification des comptes de la
 
 Caisse de secours et demanda des explications à la
-Compagnie au sujet d'un déficit de plusieurs centaines fe
+Compagnie au sujet d'un déficit de plusieurs centaines
 de mille francs qu'elle y aurait trouvé. Les explications
 demandées n'auraient pas encore été fournies à l'heure
 Cependant la Compagnie; battue aux élections,
@@ -202,7 +202,7 @@ pagnie paie, par puits, ses ouvriers, selon la valeur du
 charbon tiré de chaque puits. Il s'ensuit que des
 ouvriers, qui accomplissent des travaux de même
 nature, subissent, avec ce mode de paiement, de fortes
-différences de salaires. Les mineurs, ouvriers du fond, or
+différences de salaires. Les mineurs, ouvriers du fond,
 travaillant à la tâche, et, par conséquent, payés à la
 quantité, ne souffrent pas de ce système; mais les
 ouvriers du jour, sur certains puits, se trouvent moins
@@ -241,7 +241,7 @@ quatre ou cinq oies. Les journées de huit heures qu'ils
 
 font à la mine leur rapportent de dix à douze francs.
 Mais les autres, qui, gagnant quelques fois à peine
-trois francs par jour, n'ont jamais pu faire la plus petite
+trois francs par jour, n'ont jamais faire la plus petite
 épargne, allaient se trouver, leur quinzaine épuisée,
 
 dans la misère la plus absolue. C'est alors que l'on
@@ -281,7 +281,7 @@ la salle Pézerat, salle de bal où se tiennent généralement les réunions pub
 rences. Sur le mur de la maison, près de l'entrée de la
 salle, sont collées des affiches dont celle-ci
 
-Les gouvernants de toutes les époques n'ont jamais su
+Les gouvernants de toutes les époques n'ont jamais
 prendre aucune mesure pour détruire le cléricalisme.
 
 Il faut, par des manifestations imposantes, montrer
@@ -295,7 +295,7 @@ Pézerat, à huit heures du soir.
 
 Punch monstre offert à tous les possesseurs d'une carte
 (des cantiques socialistes seront chantés par plusieurs membres de la Jeunesse Socialiste pendant que brülera le punch
-dans l'obscurité); .
+dans l'obscurité);.
 
 N. B. — On peut mener les enfants à cette fête.
 
@@ -306,7 +306,7 @@ collecteurs du groupe de la Jeunesse socialiste, chez les
 de Montceau-les-Mines
 
 Derrière la maison occupée par le Syndicat est in-
-stallée la cuisine de la première section dans la ‘cour ci
+stallée la cuisine de la première section dans la ‘cour
 donnant sur la rue de la Cantine. A côté de la porte
 de planches vermoulues surmontée d'un grand drapeau
 rouge, une longue bande de toile rouge a été pendue
@@ -324,9 +324,9 @@ gauche, écrit à la main
 Il est interdit à toute personne étrangère ‘op
 de stationner sans autorisation.
 Au-dessus du guichet, imprimée, affiche blanche, js.
-encadrée d'un filet rouge : Ni
+encadrée d'un filet rouge: Ni
 
-partir du 14 février, les syndiqués auront seuls droit “
+partir du 14 février, les syndiqués auront seuls droit
 à la soupe populaire.
 Il leur sera distribué avec la soupe 100 grammes de viande
 par personne et par repas.
@@ -345,7 +345,7 @@ Ce matin soupe maigre sans portion.
 Ce soir rata avec portion.
 
 Soulevons la portière et entrons dans la baraque.
-Une dizaine de forts gaillards sont là s'agitant dans la
+Une dizaine de forts gaillards sont s'agitant dans la
 vapeur. « Vous venez goûter la soupe? — Bien sûr. »
 
 Et tout de suite l'on vous tend la cuiller. « Excellente,
@@ -362,17 +362,17 @@ d'absinthe mélangée d'eau; de temps en temps dans
 l'assistance circulent des quarts de soldat. Comme il a
 neigé toute la nuit et que la tente est mal close, le sol
 a cette boue grasse qu'on retire trop souvent des cuisines dans les casernes. Les cuisiniers sont des « lascars »
-et d'humeur excellente ; ils soignent amoureusement
+et d'humeur excellente; ils soignent amoureusement
 leur soupe, et, de fait, La font vraiment bonne; et puis
-ces gens ont malgré tout gardé une sorte d'esprit militaire ; ils sont cuisiniers comme au régiment; un malin,
-lou Crassou, porte un vieux bonnet de police ; en somme,
+ces gens ont malgré tout gardé une sorte d'esprit militaire; ils sont cuisiniers comme au régiment; un malin,
+lou Crassou, porte un vieux bonnet de police; en somme,
 enchantés de jouer encore au soldat.
 Cependant l'heure a passé et les femmes grévistes
-s'amassent à la porte de la rue. Un des cuisiniers va
+s'amassent à la porte de la rue. Un des cuisiniers
 l'ouvrir et la tête de la colonne arrive au guichet. Ces
 femmes, toujours proprement vêtues, sont plutôt les
 
-mères de famille, les jeunes ne venant guère à la corvée; :
+mères de famille, les jeunes ne venant guère à la corvée;:
 sous le fichu blanc ou la fanchon dont elles se couvrent
 la tête, elles ont en général des airs fatigués et vieillis;
 abîimées par la maternité, l'insuffisance de nourriture
@@ -386,14 +386,14 @@ dont la capacité corresponde à la ration qu'elles doivent
 emporter dans la serviette dont elles auront noué les
 quatre coins, et qu'elles prendront ensuite par le nœud
 comme par une anse pour ne pas se brüler. « Ditesdonc, les fumelles, faudrait voir à venir éplucher les
-truffes, ce soir », commande lou Crassou, & et puis
+truffes, ce soir commande lou Crassou, et puis
 tâächez de dire à vos hommes de venir à la corvée de
 La corvée de bois, si vous saviezcomme c'est simple!
 Il y a sur le port tout le chargement d'un bateau
 destination d'un marchand de bois de Chalon. Eh bien,
 ce chargement est certainement abandonné puisqu'il ne
 se trouve jamais personne pour protester quand on y
-puise chaque jour ! Dans la campagne, c'est aussi peu
+puise chaque jour! Dans la campagne, c'est aussi peu
 compliqué. L'autre jour, à Saint-Vallier, les cuisiniers
 manquaient de bois; une trentaine d'hommes avec des
 haches et deux voitures allèrent dans les bois du grand
@@ -405,18 +405,18 @@ Quand tout le monde est à peu près là, un des cuisiniers, un ancien zouave, p
 glands d'ordonnance à torsade tricolore, sort dans la
 rue et s'arrête au milieu du carrefour, caresse un instant
 de ses lèvres l'embouchure de l'instrument, puis, le pavillon en l'air, sonne à coups de langue secs, le refrain
-connu : « Tonnerre de Dieu, vous n'êtes jamais contents »,
+connu: « Tonnerre de Dieu, vous n'êtes jamais contents
 qu'il fait suivre aussitôt de la sonnerie réglementaire
 C'est pas de la soupe,
 C'est du rata,
 C'est pas de la soupe, -
 C'est du rata.
-Et comme c'est un loustic, le Malgache, et que ses !
+Et comme c'est un loustic, le Malgache, et que ses!
 « clients » attendent depuis une demi-heure à battre la
 semelle dans la neige, il s'empresse d'ajouter à pleins
 
 poumons, à la volée, en tournant sur lui-même, aux
-quatre coins de l'horizon le refrain : « Au pas gymnastique », vous savez, impossible à transcrire. Et, satisfait, se passant le dos de la main sur la bouche, rentre,
+quatre coins de l'horizon le refrain: « Au pas gymnastique vous savez, impossible à transcrire. Et, satisfait, se passant le dos de la main sur la bouche, rentre,
 son clairon sous le bras.
 
 Alors commence la distribution.
@@ -427,7 +427,7 @@ bonne volonté. Quand tous les syndiqués sont passés,
 arrivent les vrais misérables, des mariniers dont les
 bateaux sont bloqués par les glaces, des sans-travail,
 grévistes forcés, des mendiants, des « trois sous par
-lieue » ; s'il reste de la soupe, on leur en donne, sinon
+lieue »; s'il reste de la soupe, on leur en donne, sinon
 « Eh bien, vous n'êtes qu'à la première section ici,
 vous en avez encore trente-deux autres à visiter, c'est
 
@@ -439,12 +439,12 @@ La grande occupation du gréviste, c'est demanifester.
 La manifestation, c'est le défilé dans tout le pays; en
 colonne par quatre et par sections, avec fanfares de
 trompettes, musiques, tambours et clairons, drapeaux
-rouges ou tricolores; c'est aussi l'assemblée sur la place ;
+rouges ou tricolores; c'est aussi l'assemblée sur la place;
 de Grève, sous le balcon de la mairie. C'est donc, en
 somme, une sorte de revue à laquelle les hommes ne se
 rendent que soigneusement rasés et fort proprement
 vêtus. IL est très fréquent d'entendre le matin, dans les
-groupes ou dans les cuisines : « Allons, viens-tu prendre
+groupes ou dans les cuisines: « Allons, viens-tu prendre
 soir, faut que j'aille me faire raser. »
 Pour ces manœuvres, les cuisiniers revêtent la grande
 tenue de service. La plupart portent le costume clas-
@@ -455,19 +455,19 @@ calotte de toile blanche en forme de pot à fleur renversé de
 avec un gros pompon rouge comme en ont les marins.
 Quelques vieux barbus ajoutent à leur costume un
 grand tablier blanc, ce qui, avec la hache sur l'épaule,
-leur donne l'air d'anciens sapeurs ; certains même de
+leur donne l'air d'anciens sapeurs; certains même de
 ceux-là ont cousu sur le haut de la manche gauche de
 leur veston la brisque rouge des rengagés. Le plus fin
 cuisinier porte les galons de première classe; ses camarades l'appellent le Colo.
-Tous les grévistes, femmes et hommes, portent, agrafée à la poitrine, l'insigne des mineurs : un ruban rouge
-avec en lettres d'or l'inscription : Syndicat des ouvriers
+Tous les grévistes, femmes et hommes, portent, agrafée à la poitrine, l'insigne des mineurs: un ruban rouge
+avec en lettres d'or l'inscription: Syndicat des ouvriers
 mineurs et similaires de Montceau-les-Mines, et en
 dessous, en faisceau, métal jaune, le chapeau, la lampe,
 le pic du mineur et le marteau du similaire. Ces insignes
 ne sont délivrés par le Syndicat qu'à ses adhérents ou
 à des militants connus. Aussi tout inconnu, qui n'a pas
 cette décoration' est-il dévisagé de la tête aux pieds.
-La Compagnie a toujours entretenu une très nom_  breuse police secrète; il est certain qu'à Montceau les
+La Compagnie a toujours entretenu une très nom_ breuse police secrète; il est certain qu'à Montceau les
 mouchards sont nombreux; les grévistes sont donc extrêmement défiants, et tout individu suspect qui ne
 donnerait pas d'explications suffisantes de sa présence
 ou de ses allées et venues, pourrait bien s'attirer quelque désagrément.
@@ -480,15 +480,15 @@ subissent un chômage forcé font de même. Les deux
 cents environ qui travaillent encore, contremaîtres, surveillants, gradés de toute sorte qui sont restés à la mine,
 justement pour ne pas perdre leur grade, ceux-là ne
 sortent pas du territoire de la Compagnie et couchent
-sur les puits; certains ont pu faire venir leurs femmes,
-mais il en est qui n'ont pas vu les leurs depuis le commencement de la grève, satisfaits seulement de se faire
+sur les puits; certains ont faire venir leurs femmes,
+mais il en est qui n'ont pas les leurs depuis le commencement de la grève, satisfaits seulement de se faire
 de bonnes journées; car, surveillants à des degrés
 divers en temps habituel, ils font maintenant toutes les
 besognes, suflisant même à peine à conserver la mine
 - en état. On prétend d'ailleurs que la Compagnie les paie
 double; dans tous les cas, ils reçoivent de fortes allocations, et l'on cite tel et tel, employés aux écuries, qui
 sont payés sur le pied de cinq cents francs par mois.
-C Si le matin viennent en ville quelques corvées mili-
+Si le matin viennent en ville quelques corvées mili-
 
 taires, dans le jour on n'y voit pas un troupier. Il n'y a
 pas de postes dans la ville populaire: Seul, un escadron
@@ -502,16 +502,16 @@ les rues. Et de part et d'autre on évite toutes causes de
 conflits. Le soir, à la tombée de la nuit, si dans le dos
 des pelotons de gendarmes passant impassibles sur
 leurs chevaux, on entend parfois quelques cris isolés
-poussés par des femmes ou des gamins : « Enlevez-les…
+poussés par des femmes ou des gamins: « Enlevez-les…
 Tas d'assassins.. Hé! les Pandores.. Tu parles d'une
-tête. », — immédiatement il se produit dans les groupes des réprobations : &« Et puis après... Oh! c'est malin
-ce que tu fais là... Oh! oui, ça vaut bien le coup... » Se
+tête. — immédiatement il se produit dans les groupes des réprobations: Et puis après... Oh! c'est malin
+ce que tu fais là... Oh! oui, vaut bien le coup... » Se
 
 semble bien que ce soit d'ailleurs la tactique gouvernementale d'abandonner les grévistes à eux-mêmes
 et de laisser au maire rouge toute la responsabilité de
-ce qui peut se passer en ville. C'est une idée .admise
+ce qui peut se passer en ville. C'est une idée.admise
 par tous les esprits que s'il y avait un « coup de chien »
-la grève serait le lendemain finie; de là à admettre que
+la grève serait le lendemain finie; de à admettre que
 certains désirent le « coup de chien » en question, il n'y
 a évidemment qu'un pas. Aussi la municipalité et le Syndicat rouges, seules forces dirigeantes à Montceau, voulant garder à la grève toute sa puissance et la maintenir
 jusqu'à la soumission de la Compagnie, comprennent
@@ -521,12 +521,12 @@ sont tout de suite tentés de voir dans les exaltés, dans
 
 les anarchistes, de simples agents provocateurs soudoyés par la Compagnie ou même le gouvernement, et
 destinés à amener le « coup de chien » désiré.
-Il y a, en effet, des anarchistes à Montceau. Combien
-sont-ils ? pas beaucoup. Une bande de jeunes gens de
+Il y en effet, des anarchistes à Montceau. Combien
+sont-ils? pas beaucoup. Une bande de jeunes gens de
 seize à vingt et un ans, plus ou moins membres des
 sociétés de gymnastique, et quelques vieux terribles.
 C'est ce que tous les orateurs qui se disent socialistes
-appellent là-bas les « Inconscients », et le mot est passé
+appellent là-bas les « Inconscients et le mot est passé
 dans les masses. Et puis les mineurs, qui réclament
 pour eux la propriété de la mine, sont loin d'être anarchistes. Ils disent que le paysan peut, comme il veut et
 sans péril, cultiver son champ, sans s'occuper de personne, mais que le mineur ne peut pas individuellement
@@ -537,11 +537,11 @@ autorité responsable, individuelle ou non, possédant les
 plus grandes garanties scientifiques et techniques possibles, capable de prévenir les catastrophes et de veiller
 à la sûreté du travailleur, en exigeant de tous l'observance de règles rigoureuses de salut public. Le mineur
 admet donc, dans la mine, par expérience personnelle,
-la discipline de sécurité : et c'est pour lui, cela, tout le
+la discipline de sécurité: et c'est pour lui, cela, tout le
 contraire de l'anarchie. L'anarchie ne signifie donc, à
-Montceau, que violences immédiates contre les nonrouges et leurs propriétés. Or les grévistes de Montceau,
+Montceau, que violences immédiates contre les nonrouges et leurs propriétés. les grévistes de Montceau,
 sans avoir un respect religieux de la propriété d'autrui
-inutile, n'éprouvent en aucune façon le besoin de la violer pour le plaisir ; quand c'est nécessaire, pourquoi ne
+inutile, n'éprouvent en aucune façon le besoin de la violer pour le plaisir; quand c'est nécessaire, pourquoi ne
 prendrait-on pas ce qu'il y a sous le soleil, mais quand
 seule violation de domicile privé depuis le début de la
 
@@ -549,24 +549,24 @@ Donc, tout s'étant passé jusque-là le plus paisiblement
 du monde, les anarchistes de Montceau décidèrent de
 
 Ce fut le dimanche 17 février, au lendemain de l'émeute
-de Chalon-sur-Saône, qui avait eu pour résultat de faire
+de Chalon-sur-Saône, qui avait pour résultat de faire
 coffrer cinquante ouvriers, qu'ils résolurent de tâter le
 terrain. Ils avaient été renforcés par six des principaux
-meneurs de Chalon, qui avaient eu le soin de ne pas se
+meneurs de Chalon, qui avaient le soin de ne pas se
 laisser arrêter, et qui, sentant que cela allait mal pour
 eux dans leur propre ville, étaient partis, le soir même
 des troubles, à grande allure, à bicyclette, pour venir
 chercher asile à Montceau; et enfin dans la matinée du
-dimanche, par une douzaine d'autres, aussi peu rassurés, arrivés par chemin de fer ; naturellement, sous
+dimanche, par une douzaine d'autres, aussi peu rassurés, arrivés par chemin de fer; naturellement, sous
 prétexte de goûter la soupe, tous ces braves allèrent
-immédiatement dans les sections prêcher la révolte. Seulement, ça ne prenait pas, les grévistes de Montceau
-trouvant fort mauvais qu'ils aient ainsi « eu l'air » de
+immédiatement dans les sections prêcher la révolte. Seulement, ne prenait pas, les grévistes de Montceau
+trouvant fort mauvais qu'ils aient ainsi « l'air » de
 se sauver de Chalon. Ils donnaient d'ailleurs sur « la
 journée » des détails plus complets que ceux des journaux, à peine arrivés, et l'on écoutait leurs histoires.
 L'un d'eux racontait donc que lorsque les grévistes, au
 sortir d'une usine qu'ils venaient de saccager, voulurent
 se porter en masse sur une autre, ils se heurtèrent à un
-fort barrage de police et de troupes rassemblées là par
+fort barrage de police et de troupes rassemblées par
 le sous-préfet. Celui-ci leur ordonna de s'arrêter, mais
 ils ne voulurent rien entendre. Alors un tambour sortit
 des rangs pour qae l'on fit les sommations. Au premier
@@ -583,9 +583,9 @@ cuisiniers en tête, tenue de gala, avec tambours, clairons, trompettes, et la f
 jouant l'Internationale. Quantité de drapeaux rouges.
 dont quelques-uns atteignent le premier étage des maisons. Des groupes se forment bientôt autour de deux
 drapeaux noirs, l'un tout noir, l'autre avec l'inscription
-rouge : « Ni Dieu, ni Maître, vive l'Anarchie », encadrée
+rouge: « Ni Dieu, ni Maître, vive l'Anarchie encadrée
 de rouge. Ce sont les anarchistes qui réclament leur
-place. Un clairon sonne le rassemblement : « Allons les
+place. Un clairon sonne le rassemblement: « Allons les
 hommes de garde, mettez vite sac au dos... » Toute la
 foule se porte sur la place. Tous les cuisiniers et les
 porteurs de drapeaux se massent sur le perron de lhô-
@@ -594,28 +594,28 @@ deux hommes armés de fusils dont un baïonnette au
 canon, la lame claire au-dessus des têtes. Trois coups
 de feu éclatent, coups de fusil à blanc disent les uns,
 simples pétards disent les autres. La foule s'entasse
-curieuse avec l'impression qu'on va peut-être faire un
-peu de « boucan ». On crie de temps en temps : Vive
-VAnarchie, vive la Révolution. Il y a bien là cinq cents
+curieuse avec l'impression qu'on peut-être faire un
+peu de « boucan ». On crie de temps en temps: Vive
+VAnarchie, vive la Révolution. Il y a bien cinq cents
 personnes, mais pas plus. La neige d'ailleurs tombe
 serrée sur une tortue de parapluies. Toutes les portes de
 la mairie sont ouvertes, le peuple occupe sa maison.
 À Alors les orateurs arrivent au balcon. Fort peu ont la
-] parole facile, et leurs discours, d'ailleurs assez brefs, ne
+parole facile, et leurs discours, d'ailleurs assez brefs, ne
 
 sont guère qu'une suite de mots à effets, sans liaison,
 jetés à la foule qui applaudit indistinctement. L'un
-réclame la grève générale dans toute la France et termine en criant : Vive la Révolution. Un autre s'écrie
+réclame la grève générale dans toute la France et termine en criant: Vive la Révolution. Un autre s'écrie
 « Camarades, au nom du Creusot, je vous apporte un
 salut fraternel et rrrévolutionnaire. (Il faut entendre ce
 rrrévolutionnaire et sur quel ton aigu.) Camarades, ne
-vous laissez pas duper par l'offre de l'arbitrage gouvernemental. (Cris : Non, non.) Les camarades du Creusot
+vous laissez pas duper par l'offre de l'arbitrage gouvernemental. (Cris: Non, non.) Les camarades du Creusot
 et ceux de Montceau feront leur devoir. Nous sommes
 la force, nous devons agir. Nous avons essayé de faire
 au Creusot un mouvement, seulement il a manqué. Les
 camarades de Montceau tiendront ferme et haut le drapeau de la Révolution. »
 
-Un autre encore : « Camarades, le temps n'est plus de
+Un autre encore: « Camarades, le temps n'est plus de
 patienter. IL y a en ce moment, dans les prisons de la
 citoyens qui, hier, ont fait tout leur devoir. Camarades,
 allez-vous tolérer plus longtemps les crimes du Capital?
@@ -624,12 +624,12 @@ laisser égorger? Camarades, l'heure est aux actes
 vous marcherez derrière le drapeau noir, car c'est le
 drapeau de deuil et de misère. »
 
-On applaudit ferme ; la foule s'excite visiblement, et
-puis, c'est si commode de crier sous un parapluie !
+On applaudit ferme; la foule s'excite visiblement, et
+puis, c'est si commode de crier sous un parapluie!
 
 Enfin paraissent au balcon les orateurs habituels de
 la grève, les plus écoutés jusqu'à ce jour par les gré”
-vistes : Goujon, Chalmandrier, secrétaire du syndicat,
+vistes: Goujon, Chalmandrier, secrétaire du syndicat,
 et Maxence Roldes; ils combattent la violence, font
 appel à l'union, défendent le drapeau rouge. Mais l'expression deuil et misère a frappé la foule; elle reste
 
@@ -640,19 +640,19 @@ la figure une expression de tristesse, à la fois maire et
 ouvrier, il a ce rôle difficile de résister aux excès de
 ceux qui l'ont élu, de ses compagnons de travail, sur
 lesquels il voudrait n'avoir qu'une autorité amicale. Il
-risque d'être pris entre deux feux, responsable désigné à tous les coups. Il a la police de la ville ; il a à sa
-disposition un commissaire de police et cinq ou six sérgots ; mais rouge lui-même, ses agents sont rouges par
-définition : ils représentent des moyens extrêmes qu'il
+risque d'être pris entre deux feux, responsable désigné à tous les coups. Il a la police de la ville; il a à sa
+disposition un commissaire de police et cinq ou six sérgots; mais rouge lui-même, ses agents sont rouges par
+définition: ils représentent des moyens extrêmes qu'il
 ne voudrait pas employer. Il sent qu'il faut composer
 que s'il résiste autrement, c'est le conflit, peut-être bien
 le « coup de chien désiré ». Il sait parfaitement que
 les mineurs, depuis l'attentat de Martin (ce jaune qui
 tira, il y a une quinzaine, des coups de revolver sur un
-des adjoints), ont chacun un revolver en poche. Or il
+des adjoints), ont chacun un revolver en poche. il
 n'est pas douteux pour lui que cette journée est une
-journée d'essai. Il parle : « Bien sûr qu'il faut désirer la
+journée d'essai. Il parle: « Bien sûr qu'il faut désirer la
 Révolution; mais si nous voulons faire la Révolution,
-nous ne voulons pas de sanglantes bagarres : pour
+nous ne voulons pas de sanglantes bagarres: pour
 faire de la besogne révolutionnaire, il n'est besoin
 ni d'emballement ni d'exaspération. Aujourd'hui est
 pour nous un jour de deuil, puisque nous allons tout
@@ -666,7 +666,7 @@ paisiblement nos morts à leur dernière demeure. »
 trois heures que l'on piétine dans la neige, tout le 2"
 monde en a assez. On vote plus ou moins un vague
 ordre du jour, beaucoup de mains restant dans les
-poches : &« Ah! zut, il fait trop froid pour les lever. »
+poches: Ah! zut, il fait trop froid pour les lever. »
 Tous les drapeaux, les noirs en tête, rentrent à l'inté-
 rieur de la mairie, les cuisiniers aussi. La foule s'écoule,
 la plupart des grévistes se rendant au domicile des
@@ -674,7 +674,7 @@ Et ce fut un long cortège qui suivit les deux cercueils
 portés chacun, sans drap, sur les épaules de quatre
 mineurs, précédés de deux drapeaux noirs sans inscription, accompagnés de toutes les sociétés avec fan- La
 fares, tambours et clairons, et tous les drapeaux rouges.
-Il y eut au cimetière quelques discours d'adieux, puis ‘4
+Il y eut au cimetière quelques discours d'adieux, puis
 une quête fut faite sur place au profit des deux familles;
 elle produisit une cinquantaine de francs, et chacun
 s'en fut chez soi commentant les événements de la
@@ -690,24 +690,24 @@ faire tomber les grévistes dans un piège.
 Le mardi, qui était le mardi gras, on annonça larrivée de Guesde et de Lafargue venant de Chalon.
 Beaucoup de monde s'en fut au devant d'eux à la gare.
 
-Is débarquèrent le soir par le train de 3 heures 47 et,
+débarquèrent le soir par le train de 3 heures 47 et,
 précédés d'un seul drapeau tricolore, escortés des
 grévistes, se rendirent à la mairie. La foule les attendait en bas sur la place. L'anarchiste Broutchoux
 déploya sur le perron un drapeau noir bordé de rouge.
-Bouveri lui cria du balcon : « J'engage le nommé Broutchoux à se retirer avec son drapeau noir. » L'autre ne
+Bouveri lui cria du balcon: « J'engage le nommé Broutchoux à se retirer avec son drapeau noir. » L'autre ne
 bougea pas. C'est alors qu'une grosse vieille coiffée
 d'un bonnet blanc, suivie de quelques autres femmes
 déterminées, écartant les manifestants, montèrent lentement les marches de l'hôtel de ville, et arrivant près de
 Broutchoux serré dans la foule, lui arrachèrent, après
 une courte résistance, son drapeau noir qu'elles mirent
 en pièces et dont elles brisèrent la hampe aux applaudissements de l'assistance. Les sergents de ville, des
-fenêtres du premier, regardaient en spectateurs. Alors .
+fenêtres du premier, regardaient en spectateurs. Alors.
 l'excellent bon que paraît être Lafargue vint crier
 pleine voix, du balcon, que le drapeau noir n'était que
 le drapeau des bourgeois, que le drapeau tricolore
 s'était souillé dans trop de criminels attentats contre
 lhumanité, qu'il n'y avait qu'un seul drapeau possible,
-le drapeau rouge, et : « Vive le drapeau rouge! ».
+le drapeau rouge, et: « Vive le drapeau rouge! ».
 Guesde et les orateurs ordinaires vinrent ajouter quelques paroles de conciliation, et donnèrent rendez-vous
 pour le même soir, salle Pézerat, à 8 heures.
 
@@ -721,7 +721,7 @@ sacristie, et trouva même le moyen, à ce propos, de
 à citer saint Paul; il plaignit ses auditrices et les flatta
 
 sous toutes les formes; il fut très applaudi. Guesde fit
-ensuite le tableau de la cité future, celle où l'on travail- =
+ensuite le tableau de la cité future, celle où l'on travail-
 lera de trois à quatre heures, et même peut-être une
 heure à peine par jour, et où tout le reste du temps on
 pourra se livrer aux joies de la nature; « eh bien,
@@ -731,21 +731,21 @@ bulletin de vote et un peu de patience vous arriverez à +.
 tout! » Mais à peine eut-il fini ce sermon, qu'il eut
 comme un remords, et, revenant sur l'estrade, ajouta
 qu'il craignait qu'on ne l'eût peut-être pas tout à fait
-compris ; qu'il avait voulu dire qu'on devrait se servir
+compris; qu'il avait voulu dire qu'on devrait se servir
 le plus longtemps possible du bulletin de vote et des
 moyens légaux, mais que le jour où il n'y aurait plus Si
 qu'un petit coup d'épaule à donner pour entrer dans la
 nouvelle légalité, il ne faudrait pas hésiter à le donner.
 En somme accueil assez froid. Maxence aussi vint
 dire son mot, raïllant ceux qu'il appelle les chevaliers
-de l'apéritif et du digestif, toujours prêts à souffler la Ds
+de l'apéritif et du digestif, toujours prêts à souffler la
 tourmente et à fomenter le désordre, mais trouvant « toujours le moyen de disparaître lorsqu'il s'agit de
 récolter. Enfin, sur la demande de Chalmandrier, Bou-
 veri, qui présidait, entonna l'Internationale qu'il ne Me
 savait d'ailleurs pas, et qui lui fut soufflée mot par
 mot par Maxence et les autres, assis derrière lui; cela
 eut un succès énorme et la soirée s'acheva le plus
-gaiement du monde en chantant les chants révolutionnaires. va
+gaiement du monde en chantant les chants révolutionnaires.
 Il avait été bien convenu et annoncé la veille au peuple
 du haut du balcon de l'hôtel de ville que le mercredi il
 y aurait, à une-heure, manifestation pour entendre
@@ -753,35 +753,35 @@ Guesde et Lafargue. A une heure, les cinq ou six
 
 cents grévistes qui ne manquent pas une réunion
 étaient groupés aux abords de l'hôtel de ville sur la
-place et dans la rue Carnot. La neige tombait ; il faisait
+place et dans la rue Carnot. La neige tombait; il faisait
 très froid; une heure entière se passa à piétiner dans la
 boue, car il avait un peu dégelé le matin, et toujours
 rien. Les grévistes commencèrent à s'impatienter. « Probable que Guesde ne s'est jamais attendu, sans ça,
 il saurait ce que c'est. »
 
-Il y a, près de la mairie, un café qui s'appelle Café
-de l'Hôtel-de-Ville, mais que l'on ne désigne que sous  .
-le nom de Fort-Chabrol, parce que cest là que les
+Il y près de la mairie, un café qui s'appelle Café
+de l'Hôtel-de-Ville, mais que l'on ne désigne que sous.
+le nom de Fort-Chabrol, parce que cest que les
 jaunes se réunissent. Or, en attendant Guesde et
 Lafargue, on surveillait du coin de lœil le FortChabrol, et voilà que, tout d'un coup, on y voit entrer,
 se suivant de près et narguant la foule, deux jaunes
 des plus connus. Alors, il y eut une poussée; les
-femmes arrivaient, voulant voir : « Fallait-il qu'ils en
+femmes arrivaient, voulant voir: « Fallait-il qu'ils en
 eussent un toupet, ces jaunes; qu'ils essaient donc de
 ressortir! » Mais Bouveri arrive avec deux agents qu'il
 laisse près de la porte du café, et lui-même, paternellement, engueula la foule. Jurant, sur un ton très doux
-« Allons, nom de Dieu ! allons, descendez sur la place. « Et puis, quand vous les aurez vus, ça vous aura fait
+« Allons, nom de Dieu! allons, descendez sur la place. « Et puis, quand vous les aurez vus, vous aura fait
 bien du bien! Allons, bon Dieu! allez-vous-en. » Et il
 réussit ainsi, aidé d'un ou deux adjoints ou conseillers,
 à faire reculer les grévistes de quelques pas. « Allons,
-nom de Dieu de bon Dieu ! vous remplissez toute la rue,
-maintenant ; on ne peut plus passer; allez-vous empêcher
+nom de Dieu de bon Dieu! vous remplissez toute la rue,
+maintenant; on ne peut plus passer; allez-vous empêcher
 la circulation? Tenez, voilà une voiture qui est arrêtée.
 Allons, descendez. Eh quoi! vous les connaissez bien
 vous savez bien qu'ils ne valent pas la peine d'être (
 regardés.… » Et il gagne encore ainsi un peu de terrain.
 Enfin, le clairon sonne l'assemblée, et tout le monde
-Alors il fallut bien annoncer qu'il y avait eu erreur,
+Alors il fallut bien annoncer qu'il y avait erreur,
 et que ni Guesde ni Lafargue n'avaient l'intention de
 parler ce jour-là. Ce fut Maxence qui se chargea de
 sauver la situation. Maxence est l'orateur favori des
@@ -790,17 +790,17 @@ peuvent pas suffire à fournir de médaillons leurs clientes
 qui gardent comme une relique un poil de la barbe
 de Maxence. Jeune, la figure agréable, grand, bien fait,
 le chapeau mou à larges bords, la coiffe en pointe, « à
-l'artiste », toujours élégamment vêtu, grand pardessus
+l'artiste toujours élégamment vêtu, grand pardessus
 à double collet, les pans rejetés sur les épaules, le
 mouchoir blanc sortant bouffant de la poche de poitrine,
 Maxence Roldes « emballe » la foule, car au contraire
 de ses amis moins brillants, il s'exprime avec la plus
-grande facilité sans jamais chercher les mots ; les gens
-disent : il parle bien.
+grande facilité sans jamais chercher les mots; les gens
+disent: il parle bien.
 Maxence est donc très populaire. On appelle Maxence
-tous les nouveau-nés. Il y a, dit-on, maintenant trois
+tous les nouveau-nés. Il y dit-on, maintenant trois
 balcon, s'y appuie d'une main, et de l'autre se découvre,
-saluant la foule. Comme il neige, on lui crie : « Cha-
+saluant la foule. Comme il neige, on lui crie: « Cha-
 peau, Maxence, mettez votre chapeau! » Maxence sourit
 d'un vaste sourire. La foule rit enchantée. Maxence met
 son chapeau. Et il parle. « Citoyennes, citoyens. Ce n'est
@@ -812,7 +812,7 @@ rien nous faire. Voyez ce qui s'est passé à Chalon. Dès
 le lendemain de la grève, on fit l''émeute. Cinquante de
 nos meilleurs camarades sont maintenant en prison.
 Dès le lendemain de l'émeute, on reprit le travail. Vous
-avez eu au contraire pour vous, citoyennes, citoyens,
+avez au contraire pour vous, citoyennes, citoyens,
 la vraie tactique; voilà plus d'un mois que vous tenez
 en échec la bande de vos exploiteurs. Nous allons faire
 un appel à la France entière, et nous aurons la victoire. »
@@ -828,20 +828,20 @@ puits Sainte-Marie les pompes qui puisaient un mètre
 cube d'eau par coup de piston sont cassées et l'on n'a
 pas encore pules réparer. On retire l'eau avec les bennes
 mais C'est tout à fait insuffisant. Les deux cents hommes
-quela Compagnie a pu garder ne peuvent tout faire. Elle
+quela Compagnie a garder ne peuvent tout faire. Elle
 ne peut même pas faire appel à ses employés de bureau,
 les commis, que lesgrévistes savent tellement incapables
-de toute besogne à la mine, qu'ils les laissent parfaitement tranquilles, en dehors du conflit ; et c'est un spec-
+de toute besogne à la mine, qu'ils les laissent parfaitement tranquilles, en dehors du conflit; et c'est un spec-
 tacle assez curieux que de voir tous les jours à onze
 heures ces bandes d'employés sortir de la Direction —
-où ils n'ont évidemment pu passer leur matinée qu'à se
+où ils n'ont évidemment passer leur matinée qu'à se
 chauffer, — et qui s'en retournent déjeuner chez eux,
- universellement considérés comme inoffensifs.
+universellement considérés comme inoffensifs.
 
 Cependant le mineur, dans sa campagne, jouit, contre
 son habitude, de son foyer. Il reste dans sa petite maison à deux pièces où il habite avec ses vieux, sa femme
 et ses enfants; sur les murs blanchis à la chaux les
-vieilles images ont été laissées : une chromo représentant le Sacré-Cœur de Jésus, deux crucifix et un bénitier. Comme elle est bâtie sur la mine, et presque sans
+vieilles images ont été laissées: une chromo représentant le Sacré-Cœur de Jésus, deux crucifix et un bénitier. Comme elle est bâtie sur la mine, et presque sans
 fondations, sans caves, elle suit les mouvements du
 terrain, la petite maison; à l'intérieur, les meubles y
 sont tout de travers; la vieille armoire à linge et l'antique pendule y ont l'air de se saluer; de temps en
@@ -853,7 +853,7 @@ distrait en mangeant; pendant que sa femme ourle un
 mouchoir, il surveille le fricot. Quelle que soit l'heure
 de la journée, il y a quelque chose sur le poële. On
 mange des frites à trois heures.
-Alors qui l'emportera? Qui le sait? Cela na pas
+Alors qui l'emportera? Qui le sait? Cela pas
 un bien grand intérêt. Cela n'a même pas du tout d'intérêt que les similaires de Montmaillot obtiennent ou
 n'obtiennent pas cette fois-ci la même paie que leurs
 camarades des autres puits. On sait bien que cette concession faite ne changera en rien la condition des tra-
@@ -861,7 +861,7 @@ vailleurs. Il n'est pas douteux qu'après cette grève,
 d'autres grèves viendront. Car tout ceci n'est bien qu'un
 épisode d'une longue lutte maintenant irrévocablement
 
--_ Nous prions ceux de nos abonnés qui nous envoient
+Nous prions ceux de nos abonnés qui nous envoient
 
 des documents et des renseignements de vouloir bien
 
@@ -891,8 +891,8 @@ M. Péguy recevra le jeudi de huit heures à onze heures
 
 et de une heure à sept heures.
 
-k Adresser à M. André Bourgeois, administrateur des
-cahiers, 16, rue de la Sorbonne, Paris, la correspon-  ”
+Adresser à M. André Bourgeois, administrateur des
+cahiers, 16, rue de la Sorbonne, Paris, la correspon-
 dance d'administration et de librairie: abonnements et
 réabonnements, rectifications et changements d'adresse,
 
@@ -901,13 +901,13 @@ cahiers manquants, mandats, indication de nouveaux
 abonnés. N'oublier pas d'indiquer dans la correspon-
 
 dance le numéro de l'abonnement, comme il est inscrit
-z sur l'étiquette, avant le nom.
+sur l'étiquette, avant le nom.
 Adresser à M. Charles Péguy, gérant des cahiers,
 16,rue de la Sorbonne, Paris, la correspondance de
 rédaction et d'institution. Toute correspondance d'admi-
 nistralion adressée à M. Péguy peut entrainer pour
 la réponse un retard considérable.
-à Nous avons pu reconstituer avec nos retours quelques
+à Nous avons reconstituer avec nos retours quelques
 premières séries complètes. Nous les vendons au prix
 dun abonnement ordinaire. Nous ne les vendons qu'à
 nos abonnés.
@@ -915,7 +915,7 @@ Nous avons donné le bon à tirer après correction pour
 seize cents exemplaires de ce neuvième cahier le mardi
 
 Nous tenons gratuitement à la disposition de nos
-abonnés la Jeanne Œ Arc de Marcel et Pierre Baudouin
+abonnés la Jeanne Arc de Marcel et Pierre Baudouin
 et la Lumière de Jérôme et Jean Tharaud. Envoyer un
 franc pour les frais d'envoi.
 Nous avons mis ou nous mettons dans le commerce

@@ -7,22 +7,22 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 18861
 ---
-de [a Quinzaine
+de Quinzaine
 8, rue de la Sorbonne, au rez-de-chaussée
-J1 va de soi que la note publiée dans le quatorzième
+de soi que la note publiée dans le quatorzième
 ture, n'engageait en aucun sens Romain Rolland. Cette
 note était l'expression de mon sentiment personnel.
 Comme lecteur, comme spectateur, comme éditeur,
 comme gérant, je devais dire, au moins en bref, ce que
 je pensais de la suspension. Je dois déclarer qu'un assez
 grand nombre d'abonnés étaient venus nous dire où nous bE.
-avaient écrit qu'ils avaient l'intention d'aller ouderetour- $
+avaient écrit qu'ils avaient l'intention d'aller ouderetour-
 ner au théâtre et nous avaient demandé pourquoi les re-
 présentations étaient suspendues. Au demeurant je me -
 tais. Si je disais tout ce que je pense, je dirais de
 Rolland et de ses drames plus de bien, et de certains
 de ses critiques plus de mal qu'il ne jui serait agréable.
-EL il va de soi que le quatorzième cahier delatroisième
+il de soi que le quatorzième cahier delatroisième
 série devait parvenir à nos abonnés au plus tard le
 dimanche matin, pour le premier tour des élections
 législatives. Depuis deux semaines les auteurs, le
@@ -37,13 +37,13 @@ pensèrent que ce cahier n'était pas du courrier pour les
 Dans la Petite République datée du dimanche
 fmai, Téry, par manière d'apologue, nomme libelle
 diffamatoire mon cahier des personnalités, Sur ce que
-lui-même je l'aurais nommé arriviste cruel. Cette vio- "à
+lui-même je l'aurais nommé arriviste cruel. Cette vio-
 lence de langage ne me fera pas sortir de la mesure où
-je veux rester. J'ai seulement écrit : Quand nous barrons
+je veux rester. J'ai seulement écrit: Quand nous barrons
 la route à un jeune ambitieux sans scrupules, nous À
 courons une chance de sauver à vingt millions de
 nos indigènes un Gouverneur général sans scrupules.
-_ Sur les relations troubles de Téry et de M. Jules
+Sur les relations troubles de Téry et de M. Jules
 Lemaitre, on consultera utilement plusieurs numéros
 récents de la Petite République.
 
@@ -54,16 +54,16 @@ prions nos nouveaux abonnés de vouloir bien noter que
 nos cahiers sont avant tout des cahiers d'enregistrement. Il sera utile pendant les quatre ou les six ans qui
 viennent de consulter, en un format commode, les
 _nombres et les noms, vérifiés, que nous avons lus
-” depuis deux mois dans les journaux. M. Charles
+depuis deux mois dans les journaux. M. Charles
 Guieysse a bien voulu établir ce cahier.
 Quelques-uns de nos abonnés se sont émus, amicalement, de ce que nous avons publié dans le quatorzième cahier. Si l'on veut bien relire mon texte, on reconnaïîtra
 que cette inquiétude n'est pas fondée. On m'oppose
 quelques élections dont la campagne était honorable.
-Aussi ai-je mis : sauf de rares et d'honorables exceptions. Je sais par exemple que la campagne électorale
+Aussi ai-je mis: sauf de rares et d'honorables exceptions. Je sais par exemple que la campagne électorale
 de Jaurès à Carmaux fut honorable. On nm'oppose que,
 le suffrage universel étant comme il est, on doit tout de
 même s'en servir, puisque nous n'avons rien de mieux.
-| Aussi ai-je mis : Quoi que l'on pense et quoi que l'on
+Aussi ai-je mis: Quoi que l'on pense et quoi que l'on
 
 puisse penser du devoir électoral, et Toutes spéculations
 théoriques sur le suffrage universel étant réservées.
@@ -74,17 +74,17 @@ documents que nous pourrons reproduire parmi tant de
 Les élections ont prouvé que la poussée nationaliste
 est beaucoup plus compacte, beaucoup plus dense,
 beaucoup plus serrée, beaucoup plus carrée qu'on ne
-{ s'y attendait. Les querelles individuelles des principaux
+s'y attendait. Les querelles individuelles des principaux
 antisémites et des principaux nationalistes ne peuvent
 nous masquer le danger antisémite et nationaliste. Au
 contraire si les partis nationalistes, aussi mal conduits
-par des chefs rivaux, ont obtenu pourtant les résultats !
+par des chefs rivaux, ont obtenu pourtant les résultats!
 que nous connaissons, quine voit qu'il faut que ces partis
 aient à leur service des passions compactes dans des
 masses compactes. On ne fabrique pas par stratagème, À
 artifice, des mouvements aussi étendus, aussi profonds,
 aussi durables.
-On me dit : « Les élections sont bonnes, parce qu'on
+On me dit: « Les élections sont bonnes, parce qu'on
 pouvait redouter bien pire que ce qui est arrivé. » Je
 réponds que rien ne prouve autant la gravité du mal
 que cette consolation.
@@ -95,14 +95,14 @@ République et pour la santé du pays que la répétition
 . égales,ce seraitunsymptôme évidemment grave queleur
 simple répétition. Pour qu'il y eût amélioration de l'état
 général, de la santé, il ne suffirait pas que les crises
-périodiques ne fussent pas en augmentation ; il faudrait
-i qu'elles fussent en diminution. Quand même elles
+périodiques ne fussent pas en augmentation; il faudrait
+qu'elles fussent en diminution. Quand même elles
 resteraient égales, par cela seul qu'elles recommencent,
-F il y aurait déperdition de la santé, aggravation de l'état
+il y aurait déperdition de la santé, aggravation de l'état
 général. Un qui a la fièvre quarte, premièrement on ne
-dit pas qu'il a une bonne santé sous prétexte qu'il va
+dit pas qu'il a une bonne santé sous prétexte qu'il
 bien trois jours sur quatre, secondement on sait qu'il
-va plus mal dès que les crises recommencent régulièrement aussi fortes. Les forces d'un homme et d'un
+plus mal dès que les crises recommencent régulièrement aussi fortes. Les forces d'un homme et d'un
 pays sont des forces limitées.
 
 Nous devons nous demander, mutations faites, si les
@@ -111,37 +111,37 @@ pas envers la République ainsi que les États Généraux
 se sont comportés envers l'ancien régime. Au lycée
 nous avons tous entendu ou fait la leçon sur les États
 
-| Généraux. C'était la dernière invention du genre. On
+Généraux. C'était la dernière invention du genre. On
 prend successivement les États Généraux successifs
 Henri III 1588, la Ligue Paris 1593, Paris Louis XIII
 1614, Robert Miron, Jean Savaron, Henri de Mesme,
-) Louis XVI Versailles 5 mai 1789 ; on étudie sur pièces,
+) Louis XVI Versailles 5 mai 1789; on étudie sur pièces,
 : naturellement, et l'on s'aperçoit que tous ces États Généx raux avaient la même institution, les mêmes événements,
 
 les mêmes accidents, les mêmes caractères, les mêmes
 résultats. Quand la leçon était mal faite, on apercevait
-} * clairement l'incontestable filiation de ces manifestations
+clairement l'incontestable filiation de ces manifestations
 et de ces actions successives. Mais quand la leçon était
 bien faite, les différents États Généraux se ressemblaient
-tant qu'on ne voyait plus du tout pourquoi ça n'avait pas
+tant qu'on ne voyait plus du tout pourquoi n'avait pas
 continué dans les siècles des siècles. Et pourtant il faut
 croire que des éléments nouveaux intervenaient peu à
 peu dans ces répétitions homologues; il faut croire que
 tout ne revient pas toujours au même, et qu'il y avait le
 5 mai 1789 quelque chose qu'il n'y avait pas en 1302,
-puisque depuis le 5 mai 1789 on n'a jamais vu aucun '
+puisque depuis le 5 mai 1789 on n'a jamais aucun
 roi de France ouvrir solennellement les États Généraux
 des trois ordres.
 Pareiïllement on nous fait une leçon bien faite sur les
 crises nationalistes et réactionnaires qui assaillent
 périodiquement la troisième République. Mais ce qui À
 m'inquiète, c'est justement qu'il faille nous faire une
-lecon. Le Seize-Mai, nous dit-on, le boulangisme etle .
+lecon. Le Seize-Mai, nous dit-on, le boulangisme etle.
 nationalisme sont également inoffensifs parce que nous
 les battons régulièrement tous les dix ans. — Non, ils à
 sont de plus en plus dangereux parce que nous avons à
 les battre périodiquement tous les dix ans. A force
-d'avoir des crises parfaitement régulières, il finira par ‘4
+d'avoir des crises parfaitement régulières, il finira par
 y avoir une crise qui ne ressemblera pas aux autres, et
 qui emporterait la République. Aïnsi procèdent les
 volcans et les tremblements de terre.
@@ -152,28 +152,28 @@ est allé, nous serons de grands insensés devant le
 ; pays et de grands coupables.
 
 Par l'effort des antiministériels, et surtout des nationalistes, la bataïlle à fini par se livrer à peu près partout entre les ministériels et les antiministériels. Ainsi
-‘ engagée, elle s'est terminée par un certain agrandisse-
+engagée, elle s'est terminée par un certain agrandisse-
 ; ment des ministériels et un certain amoindrissement
 des antiministériels. Un classement ainsi obtenu a
 d'ailleurs un sens politique marqué. Mais ces résultats
 grossiers ne sont pas tout.
-Disons-le hautement : ce qu'il y a de bon dans les
+Disons-le hautement: ce qu'il y a de bon dans les
 deux scrutins n'a qu'un pouvoir suspensif, et ce qu'il y
 a de mauvais dans ces mêmes scrutins a le pouvoir
 d'une indication. Ce qu'il y a de mauvais dans le
 scrutin, les voix antiministérielles, antirépublicaines,
 représentent vraiment ce qu'elles indiquent, des mécontentements, des insanités, des colères, des intérêts, des
-espérances prêtes ; les voix antiministérielles représen-
-| tent vraiment des gens qui en ont assez de ce ministère
+espérances prêtes; les voix antiministérielles représen-
+tent vraiment des gens qui en ont assez de ce ministère
 les voix antirépublicaines représentent vraiment des
-4 gens qui en ont assez de cette république ; elles représentent vraiment des gens qui sont contre nous ; elles
+4 gens qui en ont assez de cette république; elles représentent vraiment des gens qui sont contre nous; elles
 ont donc leur plein pouvoir de représentation; elles
 ont le pouvoir d'une indication même sur l'avenir de
 11 ces sentiments, de ces intérêts, et de ces passions.
 Au contraire ce qu'il y a de bon dans ies deux scrutins, les voix ministérielles et républicaines, les voix de
 gauche, n'a que le pouvoir d'une suspension. Elles ne
 représentent pas des gens qui sont contents de ce ministère, contents de cette république. Elles ne représentent
-| pas des gens qui sont pour nous. Elles signifient que ce
+pas des gens qui sont pour nous. Elles signifient que ce
 1 pays nous accôrde, accorde à la république, à la poli_ tique, à l'action républicaine un crédit beaucoup plus
 ; grand que celui que nous avons mérité. Elles signifient
 
@@ -193,16 +193,16 @@ Cet effort est encore assez près de nous pour que le
 peuple en ait gardé la mémoire profonde, mais de plus
 en plus obscure. Ainsi le peuple n'a plus la mémoire de
 la révolution républicaine assez claire, assez présente
-‘ pour la continuer en une révolution sociale. Mais il en
+pour la continuer en une révolution sociale. Mais il en
 a gardé la mémoire assez profonde pourse rappeler que
-ça coûte cher, que ça devait être bien, qu'il faut dès
+coûte cher, que devait être bien, qu'il faut dès
 lors conserver les résultats; le peuple est devenu sinon
 conservateur de la révolution au moins conservateur
-des résultats de la révolution ; et en ce sens nous À
+des résultats de la révolution; et en ce sens nous À
 devons à l'instinct de la conservation cette constance
 populaire qui provisoirement sauvegarde les résul- À
-tats et l'espoir de la révolution. Vraiment il s'agit fl
-là d'un crédit, dont nous ne pouvons ni mesurer la
+tats et l'espoir de la révolution. Vraiment il s'agit
+d'un crédit, dont nous ne pouvons ni mesurer la
 profondeur ni prévoir l'administration. Si donc pendant
 les quatre ou les six ans qui viennent les partis républicains recommencent les bafouillages politiques de
 ces dernières années, ils auront lieu de redouter le
@@ -220,29 +220,29 @@ français, unité fédérative, qui furent dreyfusistes, on
 me permettra de spécifier ce que j'ai nommé la décomposition du dreyfusisme en France. D'autant plus qu'il
 n'y a pas de raison pour que j'écrive cette étude avant
 que l'affaire elle-même ait reçu la conclusion qu'elle
-_ Je persiste à croire que siles dreyfusistes avaient
+Je persiste à croire que siles dreyfusistes avaient
 poussé à fond l'avantage qu'ils avaient commencé de
 remporter pour le recouvrement de la justice et pour la
-* reconnaissance de la vérité; s'ils avaient poussé au
+reconnaissance de la vérité; s'ils avaient poussé au
 è fond, sans réserve, sans peur, et sans mesure; en un mot
-_ s'ils avaient totalement refusé à l'universelle paresse,
+s'ils avaient totalement refusé à l'universelle paresse,
 à la paresse de leurs ennemis, et surtout à la paresse
-de leurs amis, à leur propre paresse, toute espèce d'amnistie, c'est-à-dire d'amnésie ; je persiste à croire que
+de leurs amis, à leur propre paresse, toute espèce d'amnistie, c'est-à-dire d'amnésie; je persiste à croire que
 si les dreyfusards avaient exercé leur dreyfusisme jusqu'au bout, comme ils devaient, sans limite et sans
 halte, non seulement la conscience morale de ce pays
 et sa conscience mentale en eussent été libérées, mais
 les dreyfusards eux-mêmes se fussent trouvés en meilleure situation. C'est ce que j'essaierai de montrer quand
 nous traiterons de l'amnistie. Je persiste à croire que
-| si quatre cents candidats dreyfusards, honnêtement,
-| avaient sans relâche continué la campagne de démons-
+si quatre cents candidats dreyfusards, honnêtement,
+avaient sans relâche continué la campagne de démons-
 
 tration que nous avons commencée, mais qu'ils ont
 abandonnée, sinon reniée, il y aurait quatre cénts
 dreyfusards élus. Et la République ne se porterait
 pas aussi mal. C'est un fait que les purs dreyfusards,
 impénirents et insolents, ont passé bien ou très bien.
-Le triomphe ne va pas aux incertains et aux faibles.
-On a fait l'amnistie ; et il y avait de bonnes raisons
+Le triomphe ne pas aux incertains et aux faibles.
+On a fait l'amnistie; et il y avait de bonnes raisons
 pour la faire; outre les raisons qu'on a communément
 publiées, Jaurès m'en a données, en conversation, qui
 me paraissent beaucoup plus fortes. Je persiste à croire
@@ -252,12 +252,12 @@ de méthode même et d'art qui prévalaient pour la
 totale recherche et pour la totale exécution de la justice.
 Et il est notable que Jaurès, à peine revenu à Carmaux, "1
 a conduit toute sa campagne électorale exactement
-comme s'il n'était jamais intervenu amnistie dans l'affaire Dreyfus. £
+comme s'il n'était jamais intervenu amnistie dans l'affaire Dreyfus.
 A péine rentré dans son ancienne circonscription, à
-Jaurès a dit mes chers concitoyens, je n'ai pu lya
+Jaurès a dit mes chers concitoyens, je n'ai lya
 quatre ans vous rendre compte de mon mandat comme
 je le devais, parce qu'il y avait les gendarmes et les
-bandes réactionnaires ; aujourd'hui qu'il n'y a plus de à
+bandes réactionnaires; aujourd'hui qu'il n'y a plus de à
 gendarmes et que les bandes réactionnaires ne sont
 plus les plus fortes, je vais commencer par vous expli-
 quer ce que c'est que l'affaire Dreyfus. Vous verrez par ge.
@@ -267,9 +267,9 @@ resté un dreyfusard. Ainsi le grand orateur pratiquait
 pour son compte et sous sa responsabilité la méthode
 qu'il n'avait pas voulu garder pour le pays tout entier.
 Jaurès homme politique avait plaidé pour l'amnistie.
-Jaurès candidat parla comme s'il n'y avait jamais eu
+Jaurès candidat parla comme s'il n'y avait jamais
 d'amnistie. Et tout se passa dans la deuxième circonscription d'Albi, Tarn, exactement comme s'ilny
-avait pas eu d'amnistie. En réalité ce ne fut pas son
+avait pas d'amnistie. En réalité ce ne fut pas son
 élection de 1902 que Jaurès fit en 1902; ce fut son élection de 1898, ajournée en 1898 pour cause d'accident,
 
 Cette méthode réussit; elle devait réussir; on
@@ -278,7 +278,7 @@ n'avaient pas fait beaucoup. Mais on ne pouvait pas
 
 ; embèêter Jaurès. — Nous ne pouvons pas lui reprocher
 l'affaire Dreyfus, disaient les réactionnaires, c'est lui
-qui s'en vante, il ne parle que de ça l'animal.
+qui s'en vante, il ne parle que de l'animal.
 
 En devons-nous conclure, ainsi que le feraient beaucoup de bons socialistes, que Jaurès avait une politique
 double? Non, la contrariété si importante que nous
@@ -286,32 +286,32 @@ avons notée dans la conduite et dans la pensée de
 Jaurès peut se résoudre assez facilement. Il suflit de
 supposer que Jaurès n'eût pas été partisan de l'amnistie en politique générale s'il avait pensé que toutes
 
-| les circonscriptions de France étaient aussi solides que
-| la circonscription de Carmaux, j'ajouterai: si tous les
-| candidats républicains avaient été aussi solides que
+les circonscriptions de France étaient aussi solides que
+la circonscription de Carmaux, j'ajouterai: si tous les
+candidats républicains avaient été aussi solides que
 lui. Mais comme il savait que beaucoup de circon-
 
-> scriptions étaient beaucoup plus faibles que la circonscription de Carmaux, il n'aura pas voulu faire affronter
-au pays un risque dont il n'a pas eu peur pour sa propre circonscription. Ainsi contrairement à la plupart des candidats, qui ont peur pour leur circonscription beaucoup plus que pour le pays, Jaurès aurait
-eu peur pour le pays et n'a pas eu peur pour sa circonscription.
+scriptions étaient beaucoup plus faibles que la circonscription de Carmaux, il n'aura pas voulu faire affronter
+au pays un risque dont il n'a pas peur pour sa propre circonscription. Ainsi contrairement à la plupart des candidats, qui ont peur pour leur circonscription beaucoup plus que pour le pays, Jaurès aurait
+peur pour le pays et n'a pas peur pour sa circonscription.
 
 Ainsi interprétée la conduite et la pensée de Jaurès
-redevient à peu près constante; ou peut-être son attitude a-t-elle eu des causes beaucoup plus simples; à
+redevient à peu près constante; ou peut-être son attitude a-t-elle des causes beaucoup plus simples; à
 Paris, parmi les journalistes, les parlementaires, les
 hommes politiques, il inclinait à l''amnistie par le mouvement régulièrement accéléré de l'automatisme et de
 la lassitude. Maïs quand il eut retouché terre, il sentit
 brusquement, d'instinct, que c'était au cœur de ce
 vieux débat qu'il fallait emporter la victoire. L'instinct
-de Jaurès est de beaucoup supérieur à ses raisonne- ‘à
+de Jaurès est de beaucoup supérieur à ses raisonne-
 ments. Et ses véritables amis ont noté depuis longtemps
-que ce qu'il écrit dans la retraite et dans la solitude &
+que ce qu'il écrit dans la retraite et dans la solitude
 est de beaucoup supérieur à ce qu'il écrit dans la
 dispersion fatigante. C'est naturel ainsi.
 La troisième crise réactionnaire de la troisième répu-
 blique est plus grave que les deux précédentes. Le
 Seize-Mai fut très grave en importance, en événement;
 il ne fut pas très grave en effet; et surtout il n'étaitpas
-très grave en indication, parce qu'il était beaucoup ‘
+très grave en indication, parce qu'il était beaucoup
 plus une survivance de la réaction versaillaise, de la
 vieille réaction, que le commencement des réactions
 prochaines. La bourgeoisie républicaine était là; les
@@ -336,7 +336,7 @@ pendant quelques mois. Je ne crois pas qu'il fût aussi
 profond, ni que le mal fût aussi grand, ni la maladie
 aussi avancée, ni l''empoisonnement aussi caractérisé.
 
-$ Il y avait dans le boulangisme un grand nombre de
+Il y avait dans le boulangisme un grand nombre de
 républicains fourvoyés, et la carrière honnête qu'ils ont
 fournie depuis dans les partis républicains a prouvé
 que de nombreux malentendus avaient avantagé le
@@ -353,18 +353,18 @@ nationaliste comme étant les forces réactionnaires
 
 . d'aujourd'hui. Ceux qui votaient pour les boulangistes
 
-| pouvaient se tromper; ceux qui ont voté récemment pour les nationalistes savaient parfaitement ce qu'ils
+pouvaient se tromper; ceux qui ont voté récemment pour les nationalistes savaient parfaitement ce qu'ils
 Aussi le nationalisme est-il beaucoup plus durable
-que ne le fut le boulangisme ; commencé en 1886, le
+que ne le fut le boulangisme; commencé en 1886, le
 boulangisme était mort, avait fui en avril 1889; com-
 mencé en 1898, et même avant, le nationalisme est loin
 d'avoir fini en 1902. Ce qui a contribué beaucoup sans
 doute à nous sauver du boulangisme, c'est qu'il y avait
 : Boulanger. Ce qui rend dangereux le nouveau nationa-
 lisme, c'est qu'il n'y a pas de Boulanger.
-On nous dit : Les réactionnaires ont fait un si gros
+On nous dit: Les réactionnaires ont fait un si gros
 effort de travail et d'argent qu'ils sont épuisés et ne
-recommenceront pas. C'est connaître mal toute lopiniâtreté de la réaction ; c'est apprécier mal toutes les
+recommenceront pas. C'est connaître mal toute lopiniâtreté de la réaction; c'est apprécier mal toutes les
 espérances qu'elle a reçues des derniers événements
 et pour parler avec des hommes d'affaires le langage
 des affaires, c'est justement parce que la réaction a
@@ -372,23 +372,23 @@ placé des capitaux considérables sur l'opération réactionnaire qu'elle conti
 cette opération. Quand une affaire a mangé des capi-
 taux, tant qu'elle dure, et laisse quelque chance, elle
 attire les capitaux.
-Enfin c'est mal connaître la souple opiniâtreté de \#
+Enfin c'est mal connaître la souple opiniâtreté de
 l'Église; au moment que nous nous croirons débarrassés
 du nationalisme réactionnaire, le nationalisme en
 France ne fera que commencer, car c'est alors que nous
 aurons affaire au nationalisme radical. Au moment que
 M. Jules Lemaître aura par devant notaire acheté sa
 ferme en Beauce, M. Paul Doumer commencera de
-Le nationalisme est si vivant que la situation politique est sensiblement la même qu'elle était il y'a deux !
+Le nationalisme est si vivant que la situation politique est sensiblement la même qu'elle était il y'a deux!
 
-| ans. Les quantités ministérielles sont plus nombreuses;
+ans. Les quantités ministérielles sont plus nombreuses;
 
-| mais les qualités ministérielles ne sont pas meilleures
+mais les qualités ministérielles ne sont pas meilleures
 les disponibilités ne sont pas plus abondantes; on est
 aussi embarrassé de former un ministère; les regards
 se tournent toujours vers le même homme.
 
-On est aussi embarrassé de combattre le nationalisme ; les mêmes expédients misérables se préparent;
+On est aussi embarrassé de combattre le nationalisme; les mêmes expédients misérables se préparent;
 les mêmes imaginations précaires, les mêmes lâchetés;
 aujourd'hui comme il y a deux ans des radicaux gribouillards se demandent si le meilleur moyen de
 repousser le nationalisme, ce ne serait pas de lui abandonner toute France, pourvu que l'opération fût faite
@@ -406,11 +406,11 @@ trop considérable dans les événements de ce monde. Si
 l'univers était un immense guignol où seul importerait
 le jeu des sanctions grotesques, le remplacement de
 vingt progressistes, et plus, par autant de nationalistes
-serait tout à fait amusant ; les mélinistes ont tout fait
+serait tout à fait amusant; les mélinistes ont tout fait
 pour chauffer la place aux nationalistes leurs complices
-et il est tout à fait amusant que leurs anciennes complaisances et que leurs anciennes lâchetés leur viennent re Du
+et il est tout à fait amusant que leurs anciennes complaisances et que leurs anciennes lâchetés leur viennent Du
 
-sur le nez en échecs électoraux ; ilest toujours amusant
+sur le nez en échecs électoraux; ilest toujours amusant
 que le complaisant saute justement par le bénéficiaire
 de la complaisance; il est toujours amusant que le
 Sganarelle soit battu par qui de droit. Mais nous
@@ -419,7 +419,7 @@ pénétré dans l'action pour y jouer un immense guignol.
 Ce qui importe, ce n'est pas que les mélinistes soient
 battus et contents, c'est que le pays aille bien. Nous ne
 jouons pas pour l'embêtement des mélinistes, nous travaillons pour le bien du pays. Ricaner à l'aspect amusant des mélinistes, ce serait jouer le jeu parlementaire. Nous ne le ferons pas. Nous ne considérons que
-la justice, et que le bien du pays. Or il est tout à fait
+la justice, et que le bien du pays. il est tout à fait
 évident que les nationalistes sont beaucoup plus dangereux pour la justice, et pour le bien du pays, que ne
 l'étaient les mélinistes.
 Si au contraire quand on dit tant mieux on sait que
@@ -433,16 +433,16 @@ il fallait que nous fissions passer partout des natio- Le
 nalistes. Nous avons réfuté si souvent le sophisme je
 guesdiste que l'on nous permettra de n'en pas recommencer aujourd'hui la réfutation.
 Les nationalistes sont beaucoup plus dangereux que
-ne l'étaient les mélinistes ; on s'en apercevrait à l'usage:
+ne l'étaient les mélinistes; on s'en apercevrait à l'usage:
 comme on doit distinguer parmi nous, nous devons
 distinguer parmi nos adversaires et parmi nos ennemis
 
 de ce qu'ils sont eux-mêmes divisés, variés, comme la
 plupart des réalités politiques, nous aurions tort de
-conclure qu'ils ne formeraient pas bloc en certaines circonstances ; mais de ce qu'ils forment bloc en certaines circonstances nous aurions tort de conclure que toujours
+conclure qu'ils ne formeraient pas bloc en certaines circonstances; mais de ce qu'ils forment bloc en certaines circonstances nous aurions tort de conclure que toujours
 et partout ils reviennent identiquement au même; il
 n'est pas fréquent dans l'action que rien revienne au
-même ; une majorité nationaliste serait beaucoup plus
+même; une majorité nationaliste serait beaucoup plus
 dangereuse qu'une majorité méliniste; les nationalistes
 sont ingouvernables; des nationalistes feraient des
 coups de tête; les nationalistes sont des forcenés, sincères pour la plupart, j'entends les troupes; les nationalistes feraient des coups de folie; avec les nationalistes la menace d'une guerre contre l'Angleterre n'est
@@ -454,57 +454,57 @@ jeu vicieux de sanction les destinées de la France et
 du monde.
 
 Les socialistes ont perdu beaucoup, au moins les
-partis socialistes ; ils ont subi un véritable désastre
+partis socialistes; ils ont subi un véritable désastre
 
 deux jalousies envieuses contraires, le socialisme français, candidats, journaux, comités, la plupart des
 électeurs, s'est présenté au scrutin en deux formations
 
 L'Unité Socialiste Révolutionnaire, Parti Socialiste
 
-| de France, guesdo-blanquistes, avait résolu de présenter des candidats de classe dans toutes les circonscrip15
+de France, guesdo-blanquistes, avait résolu de présenter des candidats de classe dans toutes les circonscrip15
 
-tions ; ou cette résolution n'avait aucun sens, ou elle
+tions; ou cette résolution n'avait aucun sens, ou elle
 signifiait que la coalition nouée parmi les antiministé- À
-riels, ou plutôt contre les ministériels, présenterait des &
-candidats dans les circonscriptions mêmes, très nom- fe
+riels, ou plutôt contre les ministériels, présenterait des
+candidats dans les circonscriptions mêmes, très nom-
 breuses, où elle n'avait aucune force, réelle, aucun Le
 travail fait, aucun résultat. Elle n'y a pas manqué.
-Jetées dans le jeu douteux et mouvementé des candida- %
+Jetées dans le jeu douteux et mouvementé des candida-
 tures bourgeoises, des candidatures locales, ces
 prétendues candidatures de classe pouvaient, devaient a
-‘jouer les aventures les plus dangereuses. Elles n'y ont ‘4
-pas manqué. ji
+‘jouer les aventures les plus dangereuses. Elles n'y ont
+pas manqué.
 Les guesdistes présentaient honnêtement un certain
-nombre de candidatures sérieuses ; les blanquistes pré- pu
-sentaient honnêtement un certain nombre de candida- ‘
-tures sérieuses ; plusieurs de ces candidatures échouè- is
+nombre de candidatures sérieuses; les blanquistes pré-
+sentaient honnêtement un certain nombre de candida-
+tures sérieuses; plusieurs de ces candidatures échouè-
 rent; quelques-unes réussirent. On a voulu nous faire
 croire qu'elles avaient mieux réussi que les candidatures
-interfédératives honnêtes, qu'elles avaient réussi d'une ‘À
+interfédératives honnêtes, qu'elles avaient réussi d'une
 réussite éminente, parce que les candidats avaient
-affirmé plus officiellement, au sens nouveau que l'on veut L À
+affirmé plus officiellement, au sens nouveau que l'on veut À
 donner à ce mot parmi les Socialistes Révolutionnaires, 1"
-leur attachement à l'idéal socialiste révolutionnaire, à oi
+leur attachement à l'idéal socialiste révolutionnaire, à
 la méthode, à la politique socialiste révolutionnaire.
-Je ne crois pas que l'élection de Vaillant, de Sembat, .
-soient des élections éminentes. Il est déjà notable X vs
-qu'elles sont de bonnes élections. Les candidats socialistes révolutionnaires ont comme les candidats inter- | *
-fédératifs bénéficié des suffrages radicaux ; les adversaires parlementaires les plus farouches de la défense
+Je ne crois pas que l'élection de Vaillant, de Sembat,.
+soient des élections éminentes. Il est déjà notable
+qu'elles sont de bonnes élections. Les candidats socialistes révolutionnaires ont comme les candidats inter-
+fédératifs bénéficié des suffrages radicaux; les adversaires parlementaires les plus farouches de la défense
 républicaine ont dans la réalité des scrutins bénéficié
-de la défense républicaine. Ils ont cumulé seulement ; et
+de la défense républicaine. Ils ont cumulé seulement; et
 cela n'est pas une supériorité. Aux suffrages de défense
 
 républicaine ils ont ajouté sans doute, par une inconséquence, mais les inconséquences et les contrariétés
 sont usuelles aux scrutins, en particulier sous le régime
 électoral où nous vivons, et elles ne furent jamais aussi
 fréquentes, aussi graves qu'aux dernières élections, ils
-ont ajouté beaucoup de voix antiministérielles ; inconsciemment ou plus ou moins consciemment beaucoup
+ont ajouté beaucoup de voix antiministérielles; inconsciemment ou plus ou moins consciemment beaucoup
 de mécontents, beaucoup d'opposants, quelques réactionnaires, des antiministériels enfin votèrent pour eux.
 Ils doublèrent ainsi leur contingent socialiste incontestable et incontesté d'un renforcement ministériel de
 défense républicaine et d'un renforcement antiministériel non moins incontestable.
 On nous a dit qu'au premier tour et surtout au second les voix radicales ou de défense républicaine, les ora-
 
-| teurs, les programmes radicaux et radicaux-socialistes
+teurs, les programmes radicaux et radicaux-socialistes
 étaient ignominieux quand ils allaient au secours des
 Portefoin, mais qu'ils étaient grandement louables
 quand ils allaient au secours des guesdistes. Je suis
@@ -530,15 +530,15 @@ conscriptions, qui étaient meilleures, moralement, et À
 surtout économiquement meilleures, n'ayant pas depuis à
 les derniers scrutins, ceux des élections municipales,
 et depuis les avant-derniers, ceux des élections législatives, subi certains mouvements de population ou en
-ayant profité; ces mouvements économiques ont eu la de
+ayant profité; ces mouvements économiques ont la de
 plus grande importance électorale, et je suis honteux
 à d'avoir à le dire à des marxistes; à Paris en particu-
 lier les arrondissements du centre se sont peu à peu à
 vidés de leur contenu populaire; le vieux peuple de
-Paris s'élimine; la population qui élisait Louis Blanc, Fi
+Paris s'élimine; la population qui élisait Louis Blanc,
 qui élut Goblet, s'est peu à peu excentrée; aujourd'hui
-elle a débordé les boulevards intérieurs; aujourd'hui ‘à
-elle déborde les boulevards extérieurs; elle emplira %
+elle a débordé les boulevards intérieurs; aujourd'hui
+elle déborde les boulevards extérieurs; elle emplira
 demain la banlieue, la Seine et la Seine-et-Oise. Il
 suflit de jeter un regard sur les résultats comparés des
 scrutins depuis vingt ans pour suivre ce dégorgement
@@ -553,7 +553,7 @@ générale, des renseignements tout à fait importants.
 Charles Guieysse et Moreau tâcheront de nous faire ce
 travail pour la quatrième série de nos cahiers.
 Nous espérons aussi pouvoir publier dansla quatrième
-* série un plan de Paris par métiers et professions.
+série un plan de Paris par métiers et professions.
 
 Il est singulier que de jeunes marxistes, séduits par
 des haïnes et par des affections politiques, oublient à ce
@@ -581,29 +581,29 @@ hauteur de son destin, c'est une autre affaire. Mais je
 demande ce que Zévaès ou Delory eussent fait à sa place.
 Ou plutôt je le sais. Ils n'eussent pas moins flatté les
 petits commerçants, mais ils auraient pris la précaution
-j de commencer par les intituler petits commerçants de
+de commencer par les intituler petits commerçants de
 classe, ou commerçants de petite classe. N'avons-nous
-pas le programme agraire ? À
+pas le programme agraire? À
 Je ne sais pas ce que l'on a contre M. Viviani. Il
 aurait mieux aimé, lui, avoir des bons électeurs, des
 mineurs solides, ou des ouvriers d'usine. Ce n'est pas
-de sa faute si un profond mouvement naturel automatiquement lui a soutiré ses bons électeurs. Il ne lui est n'
+de sa faute si un profond mouvement naturel automatiquement lui a soutiré ses bons électeurs. Il ne lui est
 resté que les mauvais. Il fallait donc qu'il se fit mauvais, pour être un mandataire fidèle, un représentant
-qui représentât, qui fût image. Il n'a pas pu se faire
+qui représentât, qui fût image. Il n'a pas se faire
 aussi mauvais qu'Auffray. Il y a tâché.
-Mettez-vous à sa place, à cet homme. Il n'avait pas tà
-de chance. Un vaste mouvement automatique lui avait ti
-soutiré ses bons électeurs. C'est un accident qui était NA
-arrivé dans sa circonscription. Ça pouvait arriver dans
-une autre. Ça lui était arrivé dans la sienne. C'est toujours comme ça. Il avait donc porté secours. Généreu- . qù
+Mettez-vous à sa place, à cet homme. Il n'avait pas
+de chance. Un vaste mouvement automatique lui avait
+soutiré ses bons électeurs. C'est un accident qui était
+arrivé dans sa circonscription. pouvait arriver dans
+une autre. lui était arrivé dans la sienne. C'est toujours comme ça. Il avait donc porté secours. Généreu-.
 Il ne lui restait plus que des petits commerçants, dans
 sa circonscription. Il ne pouvait tout de même pas leur
 déclarer que les petits commerçants sont tous des
-canailles et que le socialisme supprime le petit com20
+canailles et que le socialisme supprime le petit
 merce. D'abord il n'est pas vrai que tous les petits
 commerçants soient malhonnêtes. IL ne faut pas que
-_ l'on soit féroce. IL ne faut pas faire de la peine au
-_ monde. Il a mieux aimé dire aux petits commerçants
+l'on soit féroce. IL ne faut pas faire de la peine au
+monde. Il a mieux aimé dire aux petits commerçants
 le bien qu'il pensait des petits commerçants. Qui aurait
 le cœur de l'en blâmer? Autant vaudrait, sinon, ne plus
 faire de politique.
@@ -614,9 +614,9 @@ Je consens qu'on rabaïisse M. Viviani et les politiciens interfédéraux; mais 
 devant les politiciens socialistes révolutionnaires.
 
 Dans beaucoup de circonscriptions les guesdo-blanquistes ont fait au second tour et même au premier
-leur devoir de républicains ; dans un très grand nombre
+leur devoir de républicains; dans un très grand nombre
 
-_ de circonscriptions au premier tour, et surtout au
+de circonscriptions au premier tour, et surtout au
 second, ils ont fait, inconsciemment ou, presque toujours, consciemment, souvent avec une joie mauvaise
 et tenace et croissante, le jeu de la réaction nationaliste. Ils ont encouru ainsi devant le pays et devant la
 paix internationale une redoutable responsabilité. Cette
@@ -640,12 +640,12 @@ autour duquel se sont agrégées deux ailes d'éléments
 étrangers, une aile gauche de défense républicaine,
 une aile droite, extrême souvent, d'opposition réactionnaire. C'est ici un cas particulier de la duplicité guesdiste, l'inertie déterministe, l'inintelligence fataliste,
 limmoralité, la déloyauté du mal maximum; quand il
-nom de la société future ; et quand il y a du mal dans
+nom de la société future; et quand il y a du mal dans
 la société présente, on déclare que c'est tant mieux à
 pour la société future. Le
-| Je ne m'attarde pas au raisonnement prodigieux par
+Je ne m'attarde pas au raisonnement prodigieux par
 lequel un très grand nombre de candidats guesdistes se
-retirent purement et simplement après le premier tour. %
+retirent purement et simplement après le premier tour.
 Ils veulent bien demander aux électeurs, pour quatre
 ans, un mandat qui n'est pas même impératif. Ils ne
 veulent pas, ils n'osent pas donner aux mêmes électeurs un conseil même afin de les guider ou simplement
@@ -653,22 +653,22 @@ de les renseigner au second tour. Ils veulent bien
 demander quatre ans de mandat libre. Ils ne veulent
 pas demander huit jours de confiance, d'audience,
 
-_ d'entretien. IL ne faut pas se compromettre. Soyons
+d'entretien. IL ne faut pas se compromettre. Soyons
 sages. Rappelons-nous en temps opportun qu'après tout
 ces élections ne sont que des élections bourgeoises.
 Tous ces candidats nous sont indifférents.
 
 C'est ici le même coup, généralisé, que Guesde
 essaya de faire aux indépendants au premier congrès
-national, salle Japy. C'est la même duplicité silencieuse, $
+national, salle Japy. C'est la même duplicité silencieuse,
 
 Les interfédéraux, Unité fédérative, Parti Socialiste
 Français, ont beaucoup perdu moralement. Challaye
 me disait aux vacances de Pâques, avec son air de
-n'y toucher pas : « Quand je suis revenu à Paris, —
+n'y toucher pas: « Quand je suis revenu à Paris, —
 on sait qu'il vient de faire le tour du monde, — je
 me suis demandé s'il n'y avait pas une révolution capi-
-tale dans les théories du socialisme français : on
+tale dans les théories du socialisme français: on
 n'entend plus parler que de sauver le petit commerce. »
 Rouanet a déshonoré sa victoire et Viviani a déshonoré
 sa défaite en envoyant à l'Aurore la lettre que nous
@@ -714,7 +714,7 @@ gauche et contrefaçon vers la droite; les interfédéraux
 étaient diminués par étendu d'eau, faiblesse, lâcheté,
 paresse, affadissement et limonade. Les mauvais éléà LES ÉLECTIONS
 ments guesdistes étaient l'outrance et la caricature des
-bons éléments guesdistes ; les mauvais éléments interfédéraux étaient la pâle image, la nulle imitation des
+bons éléments guesdistes; les mauvais éléments interfédéraux étaient la pâle image, la nulle imitation des
 
 En plusieurs circonscriptions les socialistes interfédéraux jouèrent contre les socialistes révolutionnaires
 le jeu nationaliste que dans un très grand de circonscriptions les socialistes révolutionnaires jouèrent contre
@@ -729,19 +729,19 @@ travail, pour avoir osé parler de l'unité socialiste immédiatement après la 
 
 Je ne veux pas revenir sur mon cahier des personnalités. Mais je suis heureux qu'on se réjouisse un peu
 partout de ce qu'il y aura dans la prochaine Chambre
-un plus grand nombre de têtes : Jaurès, Briand, Pressensé, Buisson, comme on s'est réjoui qu'il y eût au
+un plus grand nombre de têtes: Jaurès, Briand, Pressensé, Buisson, comme on s'est réjoui qu'il y eût au
 Sénat Clemenceau. Du point de vue parlementaire, on
 mieux vaut des têtes. Mieux vaut dans une assemblée
 avoir Méline qu'un méliniste, Waldeck-Rousseau qu'un
 Waldeckiste, Clemenceau qu'un clemenciste, Guesde
-qu'un guesdiste, et Jaurès qu'un rédacteur à [a Petite
+qu'un guesdiste, et Jaurès qu'un rédacteur à Petite
 
 Personnalité. On a voulu nous faire de lPélection
 Pressensé une élection éminente. C'est déjà beaucoup
 qu'elle fut une bonne élection. Je fus au courant de
 ; l'élection Pressensé peut-être avant le candidat luimême; je connais assez l'initiateur, l'inventeur de la
 ; candidature Pressensé; il est aujourd'hui totalement
-débordé par son invention ; nous avons pour cet inventéur une estime respectueuse, beaucoup d'estime ; je lui
+débordé par son invention; nous avons pour cet inventéur une estime respectueuse, beaucoup d'estime; je lui
 dis dès le principe combien cette invention, combien
 cette imagination parlementaire me paraissait dangereuse.
 Lagardelle nous dit dans l'Aurore du jeudi 15 mai
@@ -751,16 +751,16 @@ mais à la qualité de ses conquêtes nouvelles. Les lecteurs de
 l'Aurore sentent toute la portée, pour le rayonnement de
 notre parti, de l'élection de Pressensé. Quillard à indiqué
 ici-même comment une politique internationale socialiste
-va pouvoir enfin s'affirmer, dans tout son éclat, par la parole
+pouvoir enfin s'affirmer, dans tout son éclat, par la parole
 savante de Pressensé, en face de la politique traditionnelle
 d'oppression et de mensonge.
 Non, mon cher camarade, Francis de Pressensé
-; n'apporte pas à notre parti un rayonnement ; il nous
+; n'apporte pas à notre parti un rayonnement; il nous
 apporte ce qui vaut beaucoup mieux, ce que nous
 devons tous apporter, sa force detravail. Nous sommes
 un parti de travail et non pas un parti d'illuminations.
 Je suis surpris désagréablement, et je ne suis pas le
-seul, de lire incessamment dans l'Aurore, depuis plusieurs semaines, un éloge particulier de Francis de Pressensé; je suis fatigué de l'entendre intituler le juste ;
+seul, de lire incessamment dans l'Aurore, depuis plusieurs semaines, un éloge particulier de Francis de Pressensé; je suis fatigué de l'entendre intituler le juste;
 je pense qu'il est un honnête homme, etc'estbeaucoup,
 et c'est rare, au moins parmi les hommes politiques.
 
@@ -771,20 +771,20 @@ nous a-t-elle pas dégoûtés par la plate insolence avec
 laquelle des collaborateurs attendris parlaient de Jaurès
 et de Gérault-Richard. Il serait déplorable, et en un
 sens il serait beaucoup plus grave, qu'un homme du
-talent de Lagardelle, étant devenu à l' Aurore un collaborateur tout à fait important, régulier, sans doute
+talent de Lagardelle, étant devenu à Aurore un collaborateur tout à fait important, régulier, sans doute
 rémunéré, fit profession d'encenser l'homme de talent
 qui ést évidemment devenu le maître du journal. Cela
-se fait à /a Libre Parole, où le moindre échotier prend
+se fait à Libre Parole, où le moindre échotier prend
 sur soi de déclarer que décidément M. Édouard Drumont
 est un grand sociologue.
 
 Francis de Pressensé entre à la Chambre au même
-titre que plusieurs, aussi honorablement, aussi vaillamment que plusieurs ; il n'y a pas de raisons pour que
+titre que plusieurs, aussi honorablement, aussi vaillamment que plusieurs; il n'y a pas de raisons pour que
 son élection soit plus éminente que l'élection de Jaurès ou que l'inélection de Guesde.
 
 On peut penser beaucoup de bien de Pressensé,
 comme de Jaurès ou de Fournière, de Rouanet ou de
-Guesde. Mais le bien que je pense de Jaurès, de Fournière, je ne vais pas le dire dans {a Petite République.
+Guesde. Mais le bien que je pense de Jaurès, de Fournière, je ne vais pas le dire dans Petite République.
 Et si j'écrivais dans la Petite République, je ne parlerais pas de Jaurès comme je le fais dans les cahiers.
 
 afin d'y travailler, ou au groupe socialiste révolutionnaïire, tant mieux, du moins au point de vue parlementaire. Mais s'il y entre avec l'arrière-pensée de devenir
@@ -839,20 +839,20 @@ Au moment où nous mettons sous presse, nous lisons
 dans l'Aurore du lundi 19 mai les discours prononcés
 par les principaux convives au banquet Pressensé
 l'avant-veille samedi 17 mai. Les discours ainsi publiés
-ne laissent malheureusement aucun doute. ,
+ne laissent malheureusement aucun doute.,
 
 Qu'est-ce qu'un banquet intime où La liste entière des
 citoyens qui tinrent à honneur de prendre part. ne
 comporterait pas moins de quatre-vingt-dix noms.
 Quatre-vingt-dix intimes, c'est beaucoup pour un
 homme seul. Qu'est-ce qu'un tel banquet, sinon une
-grande manifestation politique ? une manifestation parlementaire? une manifestation électorale ? Qu'est-ce
+grande manifestation politique? une manifestation parlementaire? une manifestation électorale? Qu'est-ce
 que ces discours où il n'est question que d'honneur, de
 très grand honneur, de politique et de cérémonie. Ayant
 lutté pendant quatre ans contre un État-Major militaire
 et contre un faux honneur de l'armée, allons-nous insti-
 
-tuer parmi nous un État-Major parlementaire et un honneur spécial dreyfuso-socialiste ?
+tuer parmi nous un État-Major parlementaire et un honneur spécial dreyfuso-socialiste?
 Je lis dans le discours de Pierre Quillard ces paroles
 Dans un discours prononcé à Remiremont, je crois,
 M. Méline souhaitait qu'il y eût à la Chambre des personnes
@@ -861,14 +861,14 @@ qu'il était premier ministre, il ne pensait point ainsi; il
 préférait machiner, avec son Gabriel Hanotaux et son
 André Lebon, l'imbécile aventure de Fashoda ou laisser
 égorger trois cent mille Arméniens, qu'il pouvait sauver.
-Que M. Méline se réjouisse avec nous ; désormais vous
+Que M. Méline se réjouisse avec nous; désormais vous
 Nous lisons dans l'allocution d'Émile Zola
-Voici ce que je voudrais dire à Pressensé : je considère
+Voici ce que je voudrais dire à Pressensé: je considère
 son élection comme une très heureuse chose, comme une
 grande victoire, parce que maintenant nous sommes certains qu'il y aura à la Chambre un brave et un vaillant
 pour poser les questions nécessaires et dire les paroles
 Zola espère donc que Pressensé sera non pas seulement un député rare, mais un député unique, tout à
-| fait extraordinaire, comme il n'y en a jamais eu. Nous
+fait extraordinaire, comme il n'y en a jamais eu. Nous
 verrons. Zola paraît oublier qu'un assez grand nombre
 de députés socialistes révolutionnaires et de députés
 socialistes parlementaires ont depuis longtemps posé
@@ -877,14 +877,14 @@ M. Psichari est beaucoup plus imprudent
 Vous êtes de ceux, rares, dont on peut dire qu'une fois
 députés ils ne changent pas, sinon pour déployer encore
 plus d'énergie chaque jour. À
-M. Psichari n'en sait rien. C'est là une assurance que
+M. Psichari n'en sait rien. C'est une assurance que
 
 l'on ne peut avoir qu'après épreuve. Nous en reparlerons
 dans quatre ans.
 
 C'est en vain qu'Anatole France, avec son esprit, avec
 sa délicatesse, avec sa justesse, qui est de la justice,
-avait nommé quelques absents : Avec Clemenceau,
+avait nommé quelques absents: Avec Clemenceau,
 avec Jaurès, avec Guieysse et quelques autres vous avez
 montré que dans le combat la plus grande habileté est
 encore le courage. L'assemblée délirante n'entendit pas:
@@ -897,22 +897,22 @@ et de congratulation coula de plus belle.
 C'est en leur nom, messieurs, dit Pierre Quillard,
 
 Vous savez que je ne parle pas à titre personnel, ce
-n'aurait aucune importance ; je vous exprime la gratitude
+n'aurait aucune importance; je vous exprime la gratitude
 et l'espoir d'amis lointains, de frères inconnus qui luttent
 contre l'exil, la faim, la prison, la mort. C'est en leur nom,
 messieurs, que je vous propose de boire à l'entrée dans le
 Parlement français de notre compagnon, Francis de
-Pressensé, citoyen du monde !
+Pressensé, citoyen du monde!
 
 Ou citoyen du monde est un compliment de littérature,
-ou ça veut dire internationaliste. Si ça veut dire inter-
+ou veut dire internationaliste. Si veut dire inter-
 
-* nationaliste, nous sommes tous internationalistes, etily
+nationaliste, nous sommes tous internationalistes, etily
 avait déjà au Parlement, parmiles socialistes, plusieurs
 
 Le discours de Lagardelle cause beaucoup de tristesse
 Je suis sûr de traduire les sentiments intimes des jeunes
-! socialistes qui sont ici ce soir, en disant quelle joie pro31
+! socialistes qui sont ici ce soir, en disant quelle joie
 
 fonde ils éprouvent à rendre, comme vous, hommage à la
 haute personnalité de Francis de Pressensé.
@@ -935,7 +935,7 @@ très grand honneur de nous appeler à mener autour de
 lui, à l'Aurore, le combat socialiste et à essayer de préciser,
 de répandre les idées socialistes,
 
-Ou ces paroles n'ont aucun sens, — el nous ne pouvons supposer que dans un concours aussi solennel,
+Ou ces paroles n'ont aucun sens, — nous ne pouvons supposer que dans un concours aussi solennel,
 dans une assemblée aussi importante, au commencement d'une action aussi concertée, notre jeune camarade ait parlé pour ne rien dire, — ou nous avons
 ci-dessus l'annonciation d'un nouveau parti. Je ne
 reviens pas sur quelques-uns, très grand honneur,
@@ -949,13 +949,13 @@ signifient rien, ou elles signifient que Pressensé est
 
 . devenu le maître de l'Aurore, que Vaughan, d'administrateur-directeur qu'il était, est devenu administrateur
 tout court, qu'iln'est plus le maître dans son journal,
-que Pressensé est le chef reconnu de la nouvelle rédaction, que Pressensé va se comporter comme un chef de
+que Pressensé est le chef reconnu de la nouvelle rédaction, que Pressensé se comporter comme un chef de
 parti, que le Mouvement Socialiste est entré à
 l'Aurore.
 
 Si j'avais besoin de chercher confirmation de cette
 annonce, le discours de Pressensé tout entier témoignerait. Ou les mots n'ont aucun sens, ou le discours de
-Pressensé est un discours-programme, un discoursministre. Et quel programme : Nous sommes de ceux,
+Pressensé est un discours-programme, un discoursministre. Et quel programme: Nous sommes de ceux,
 dit sentencieusement Pressensé, nous sommes de ceux
 
 . qui estiment que si on veut faire un sillon bien droit et
@@ -970,7 +970,7 @@ sue. Car tel est le sort échu à la race des hommes.
 
 Je relève dans le discours de Pressensé ce paragraphe
 inoui de naïveté enfantine
-Une des conclusions logiques, Lagardelle l'a dit, ç''a été ?
+Une des conclusions logiques, Lagardelle l'a dit, ç''a été?
 pour moi le socialisme, auquel je me suis donné sans
 retour, sans réserve. Et j'ai la joie de penser que je vais
 pouvoir le servir, non plus comme un simple soldat, mais
@@ -1009,9 +1009,9 @@ Mais d'abord il ne faut pas que ce soit à l'avantage
 . des citoyens qui n'ont pas été dreyfusards du tout.
 Nous qui avons été dreyfusards dès la deuxième heure
 nous pouvons demander compte à ceux de nous qui sont
-devenus partisans de l'amnistie ; ceux de nous quin'ont
-jamais été véritablement dreyfusards ne sont pas qualifiés pour le faire. Lagardelle, qui n'a jamais eu le sens
-profond, réel, moral, du dreyfusisme, qui n'a jamais vu
+devenus partisans de l'amnistie; ceux de nous quin'ont
+jamais été véritablement dreyfusards ne sont pas qualifiés pour le faire. Lagardelle, qui n'a jamais le sens
+profond, réel, moral, du dreyfusisme, qui n'a jamais
 le dreyfusisme qu'en politique et en utilitaire marxiste,
 n'a pas qualité pour demander compte à Jaurès. A plus
 forte raison ne peut-on inculper Jaurès et les partisans
@@ -1029,26 +1029,26 @@ ce n'était déjà fait avant l'affaire, les méthodes qui
 dans l'affaire Dreyfus reçurent leur application éminente. Garder dans l'affaire et dans les conséquences
 étroites de l'affaire une attitude efligielle et pour tout
 le reste conduire sa vie exactement comme s'il n'y avait
-jamais eu d'affaire, comme si l'on n'avait jamais reçu les
+jamais d'affaire, comme si l'on n'avait jamais reçu les
 enseignements de l'affaire, à parler proprement, c'est
 ne pas être demeuré dreyfusard.
 
-C'est être devenu partisan de l'amnistie ; non pas de
+C'est être devenu partisan de l'amnistie; non pas de
 cette amnistie parlementaire et législative qu'un ministre propose, que des orateurs soutiennent, que des orateurs combattent, qu'une Chambre vote, qu'un Sénat
 
-laisse passer, qu'un Président de ia République promulgue; mais de cette amnistie beaucoup plus dangereuse,
+laisse passer, qu'un Président de République promulgue; mais de cette amnistie beaucoup plus dangereuse,
 de cette amnistie morale que l'on s'accorde à soi-même
 
-, La première fois qu'après l'affaire j'ai vu un dreyfusard mentir, jen ai eu un retournement.
+, La première fois qu'après l'affaire j'ai un dreyfusard mentir, jen ai un retournement.
 
 J'ai senti d'un coup à cet instant que l'affaire ne
 recommencerait jamais, qu'elle était morte.
 
-Et puis on s'y fait. J'en ai tant vu mentir depuis que
+Et puis on s'y fait. J'en ai tant mentir depuis que
 l'on s'y habitue. Seulement je les classe antidreyfusards, partisans de l'amnistie.
 
 C'est ici la grande amnistie. On se la vote soi-même.
-Et on va lancer des accusations contre les autres.
+Et on lancer des accusations contre les autres.
 
 Quand je commençai les cahiers, je pensaï que les grands dreyfusistes les accueilleraient justement. Je
 dirai sans doute quelque jour comme on nous reçut.
@@ -1062,18 +1062,18 @@ parce que les dreyfusistes petites gens nous ont souteÉ nus désespérément,
 : Pressensé, en même temps qu'il gardait, dans l'affaire
 même et dans ses conséquences, une attitude strictement dreyfusiste, a-t-il étendu à toute son action la
 méthode qui avait reçu pendant l'affaire Dreyfus une
-Il y a eu depuis l'affaire Dreyfus une affaire non moins
+Il y a depuis l'affaire Dreyfus une affaire non moins
 passionnante, au moins moralement, car socialement,
 politiquement, économiquement, elle n'a pas reçu la
 
 même ampleur. C'est l'affaire Jaurès. Par une singulière
 coïncidence l'accusé ici était aussi accusé de trahison.
 Il n'était pas accusé d'avoir trahi son pays au profit de
-l'étranger ; il était accusé d'avoir trahi la République,
+l'étranger; il était accusé d'avoir trahi la République,
 réaction. Trahison qui serait capitale aussi. L'accusation était formelle. On ne la présentait pas comme une
 injure usuelle de politique, de polémique et d'élection,
 L'accusation était formelle et tous les jours paraissait
-dans le journal où Pressensé écrit et signe, puisqu'il ya
+dans le journal où Pressensé écrit et signe, puisqu'il
 un journal où il écrit et ne signe pas. Tous les jours
 dans l'Aurore un collaborateur de Pressensé accusait
 formellement Jaurès d'avoir trahi tout ce que nous
@@ -1094,9 +1094,9 @@ mois en mois nous avons attendu. En vain, Les bons
 dreyfusards se taisaient. Pressensé nous parlait des
 brouillards de la Tamise ou de la Constitution anglaise,
 qu'il connaît à merveille. Dans ce journal où il était
-censé libre, nous n'avons jamais pu savoir ce qu'il
+censé libre, nous n'avons jamais savoir ce qu'il
 
-seizième cahier , de la troisième série pensait, il n'éprouva jamais le besoin de nous dire ce qu'il savait, ce qu'il pensait du cas Jaurès. Quand il rompit le silence complice, quand il écrivit, ce fut
+seizième cahier, de la troisième série pensait, il n'éprouva jamais le besoin de nous dire ce qu'il savait, ce qu'il pensait du cas Jaurès. Quand il rompit le silence complice, quand il écrivit, ce fut
 pour exposer un antiministérialisme qui pouvait faire croire qu'il avait secrètement participé aux accusa- tions.
 
 Il avait le droit d'être antiministériel, ou antiministérialiste, ou antiwaldeckiste. Il est seulement regrettable qu'à peine élu député il soit devenu d'un ministérialisme et d'un waldeckisme auprès duquel Jaurès
@@ -1105,7 +1105,7 @@ n'aient pas les mêmes opinions que les candidats, j'admets que les candidats n'
 que les journalistes. IL n'est pas étonnant que ces
 hommes, ayant des situations politiques et sociales
 différentes, aient des vues différentes, Mais il faut qu'au
-* moins les journalistes qui veulent devenir députés ne
+moins les journalistes qui veulent devenir députés ne
 soient pas féroces contre les orateurs qui sont déjà
 devenus députés. Aucuns antiparlementaires ne sont
 aussi féroces et aussi injustes que les futurs parlementaires.
@@ -1115,25 +1115,25 @@ fut un manquement de parole. Quand Vaughan nous
 présenta l'Aurore, il fut entendu formellement que ce
 journal ne serait jamais un journal de parti, et pour
 donner à cet engagement une expression particulièrement accusée, il fut entendu formellement que les collaborateurs du journal ne solliciteraient jamais aucun
-mandat politique. Jamais ils ne seraient candidats. '
+mandat politique. Jamais ils ne seraient candidats.
 Que cet engagement fût ou ne fût pas abusif, excessif,
 
 nous ne traiterons pas cette question aujourd'hui. Elle
-_ n'importe aucunement au débat. Il suffit que Vaughan
+n'importe aucunement au débat. Il suffit que Vaughan
 ait fait cette condition, et que ses collaborateurs, sans
 aucune exception, l'aient acceptée. Vaughan était
 majeur, et ses collaborateurs aussi. Les fondateurs de
 l'Aurore posaient leurs conditions, établissaient leur
 institution en toute liberté. Aujourd'hui, après quelques
 années d'existence, eux-mêmes ils brisent leur propre
-institution. N'est-ce pas encore une amnistie ?
+institution. N'est-ce pas encore une amnistie?
 On me dit: L'engagement formel pris par Vaughan
 au nom de {'Aurore, et que nous nous rappelons fort
-_ bien, tant il nous avait frappés, ne pouvait lier Pressensé, parce que Pressensé est entré au journal dans des
-conditions un pen différentes ; il n'était pas appointé ; il
-fournissait du travail gratuit ; il pouvait donc demeurer
-_ libre. Je n'accepte aucunement cette interprétation.
-_ Quandles collaborateurs d'un journal gardent la liberté
+bien, tant il nous avait frappés, ne pouvait lier Pressensé, parce que Pressensé est entré au journal dans des
+conditions un pen différentes; il n'était pas appointé; il
+fournissait du travail gratuit; il pouvait donc demeurer
+libre. Je n'accepte aucunement cette interprétation.
+Quandles collaborateurs d'un journal gardent la liberté
 de leur opinion, ce qui était officiellement le cas à l'Aurore, ils sont au moins liés par la solidarité financière,
 économique. Je ne crois pas que Pressensé pût se
 soustraire au moins à cette solidarité. Sinon nous
@@ -1146,28 +1146,28 @@ un avantage injuste sur ceux qui n'en ont pas, soil
 qu'ils n'en aient jamais eus, soit qu'ils aient commencé
 par mettre dans l'action tout ce qu'ils avaient.
 Je n''admets donc pas que Pressensé fût dans l'Aurore moins engagé que les autres; je regrette qu'il
-_ ait rompu un engagement constitutionnel ; je regrette
+ait rompu un engagement constitutionnel; je regrette
 
 que cette rupture ait été fomentée, vantée, féêtée,
 
-Ÿ Plus je vais, et l'expérience des cahiers ne fait que
+Plus je vais, et l'expérience des cahiers ne fait que
 « me confirmer dans cette opinion, plus je crois profondément qu'il n'y a rien au monde qui pour laction
 vaille la force d'une institution.
 
 Rien n'est donc aussi grave que la rupture d'une
-institution ; aucun avantage ne peut compenser la rupture d'une institution ; ce n'est pas du même ordre.
+institution; aucun avantage ne peut compenser la rupture d'une institution; ce n'est pas du même ordre.
 
-Non seulement cela, mais il y avait pacte entre Vaughan et nous ; il n'y avait pas seulement engagement
+Non seulement cela, mais il y avait pacte entre Vaughan et nous; il n'y avait pas seulement engagement
 et pacte entre les directeur et collaborateurs de
 l'Aurore, mais il y avait pacte entre l'Aurore et nous
 son public.
 
 Tout le monde sait que l'Aurore a subi des crises
-dificiles ; depuis longtemps, et ce n'était un secret
+dificiles; depuis longtemps, et ce n'était un secret
 pour personne, la vie lui était devenue dure, financièrement. Vaughan l'a écrit plusieurs fois. Beaucoup de
 lecteurs aussi pensaient qu'elle subissait des crises de
 rédaction; beaucoup déploraient ce qu'ils nommaient
-ses erreurs ou ses injustices ; beaucoup déploraient ses
+ses erreurs ou ses injustices; beaucoup déploraient ses
 campagnes. Mais au plus fort de ses égarements il
 restait que ce n'étaient pas des égarements politiques.
 On pouvait faire à M. Gohier beaucoup de reproches
@@ -1185,8 +1185,8 @@ par la fidélité à la parole donnée.
 J'ai peur que Vaughan, voulant remonter l'Aurore,
 n'ait fait récemment un mauvais calcul. Je sais que la
 vie lui était pénible; autour de lui les journaux de
-parti réussissaient plus ou moins ; la tentation était
-grande ; il a dû penser que devenue le journal d'un parti
+parti réussissaient plus ou moins; la tentation était
+grande; il a penser que devenue le journal d'un parti
 l'Aurore vivrait, comme tout le monde. J'ai peur qu'il
 ne se soit trompé. L'Aurore ne ressemblait pas aux
 autres journaux; la clientèle de l'Aurore ne ressemblaït pas aux autres clientèles: ce qu'elle aimait dans
@@ -1197,8 +1197,8 @@ donner la chance d'attirer une clientèle nouvelle, parce
 que les clientèles de parti sont pourvues de journaux
 et que les journaux de parti satisfont leur clientèle.
 
-J'ai peur que M. Vaughan n'ait pas vu où était sa .
-véritable force ; la véritable force de l'Aurore était
+J'ai peur que M. Vaughan n'ait pas où était sa.
+véritable force; la véritable force de l'Aurore était
 où est la force de nos cahiers: la véritable force de
 l'Aurore étaient les petites gens qui donnaient leurs
 deux sous tous les matins. Il y a dans le discours de
@@ -1212,37 +1212,37 @@ J'avais dès le principe redouté la candidature Pressensé. J'en ai suivi le d�
 En effet quelle devenait la politique de {Aurore au
 moment où cette candidature futannoncée, etquelleétait
 la politique du Mouvement, politique récente, mais formellement recommandée? La politique de l'Aurore
-‘était antiministérielle ; Pressensé lui-même était antiministériel; Gohier demandait que dans toutes les
+‘était antiministérielle; Pressensé lui-même était antiministériel; Gohier demandait que dans toutes les
 circonscriptions, et à Carmaux même, ce qui fut fait,
 PUnité Socialiste Révolutionnaire présentât des candidats contre les socialistes ministériels; Pressensé
 n'était pas moins sévère. La politique du Mouvement
 Socialiste n'était pas moins antiministérialiste. Lagardelle nous recommandait cette action parallèle avec
 les anciens partis socialistes qui devenait huit jours
-après une action connexe ; Le Mouvement Socialiste était
-tout à la lutte de classe ; et qu'avons-nous vu?
+après une action connexe; Le Mouvement Socialiste était
+tout à la lutte de classe; et qu'avons-nous vu?
 
 Justement dans la circonscription de Lyon où Pressensé a laissé poser sa candidature il y avait un candidat de classe, un vrai, un guesdiste, non un illustre
 intellectuel, mais un ouvrier menuisier, me dit-on, un
 syndicaliste, présenté par l'Unité Socialiste Révolutionnaire. Et c'est en partie contre ce candidat au
 
 _thentique de classe que la candidature Pressensé fut À
-un candidat qui avait l'investiture de l'Unité Socialiste ”
+un candidat qui avait l'investiture de l'Unité Socialiste
 Révolutionnaire. Et Lagardelle fit le voyage pour aller
-soutenir la candidature de Pressensé. Ainsi nos nouveaux chefs commencent par établir des règles absolues ; à
-puis ils font une seule exception ; et comme par hasard
+soutenir la candidature de Pressensé. Ainsi nos nouveaux chefs commencent par établir des règles absolues; à
+puis ils font une seule exception; et comme par hasard
 
-1h cette exception leur profite personnellement; cette ‘
+cette exception leur profite personnellement; cette
 
 exception, c'est la leur.
 
 C'est toujours le manquement à la parole donnée, le
 manquement à l'institution librement consentie.
 
-(ie Or je crois que rien au monde, argent, talent,
-_ | théorie, dogme ou casuistique, ne vaut une institution.
+(ie je crois que rien au monde, argent, talent,
+théorie, dogme ou casuistique, ne vaut une institution.
 Rien ne les force à faire de la lutte de classe; mais,
 s'ils en font, qu'ils en fassent sérieusement.
-Or je ne suis pas suspect d'aimer la lutte de classe,
+je ne suis pas suspect d'aimer la lutte de classe,
 mais je me représente ceux qui en font sérieusement.
 Je ne me représente absolument pas qu'on en fasse en
 - Ainsi au point de vue socialiste révolutionnaire au
@@ -1250,20 +1250,20 @@ premier tour la candidature Pressensé faisait division.
 Mais au point de vue moral au second tour Francis de
 Pressensé a hérité les voix de M. Thévenet. Cet héritage n'est pas reluisant. Pressensé, littéralement,
 représente à la Chambre les électeurs de M. Thévenet. Cela ne suffit pas pour le discréditer. Cela suffit
-pour que son élection ne soit pas éminente ; et pour
-que Lagardelle n'ait pas eu le droit de présenter l'élection de Carmaux comme une élection scandaleuse,
+pour que son élection ne soit pas éminente; et pour
+que Lagardelle n'ait pas le droit de présenter l'élection de Carmaux comme une élection scandaleuse,
 après traité conclu entre Jaurès et radicaux. Si M. Thévenet et ses électeurs ne sont pas ignominieux pour
 Pressensé, les radicaux ne sont pas ignominieux pour
 Pressensé a aimé sa candidature d'une affection qui
 nous surprend de sa part. Et à peine élu, comme il
 nous est revenu changé. Qu'est-ce que ce banquet, ces
-discours, ces honneurs ? Où est l'ancienne simplicité ?
+discours, ces honneurs? Où est l'ancienne simplicité?
 Comme il est déjà gagné de politique et de cérémonie
-comme il supporte qu'on l'encense; comme ses préoccupations sont nouvelles ; et comme il parle un langage
-_ Lisons attentivement ses articles : déjà il tranche du
-parlementaire ; il donne des consultations ministérielles, parlementaires, politiques ; il est entré dans le jeu;
+comme il supporte qu'on l'encense; comme ses préoccupations sont nouvelles; et comme il parle un langage
+Lisons attentivement ses articles: déjà il tranche du
+parlementaire; il donne des consultations ministérielles, parlementaires, politiques; il est entré dans le jeu;
 il fait des pronostics; il forme des combinaisons; il
-conseille et déconseille ; un tel ferait bien à la présidence de la Chambre ; on pourrait mettre tel autre à la
+conseille et déconseille; un tel ferait bien à la présidence de la Chambre; on pourrait mettre tel autre à la
 présidence du conseil; il connaît les disponibilités, les
 éventualités, les cadres et fournitures. Nous lisons dans
 l'Aurore du jeudi 15 mai
@@ -1286,23 +1286,23 @@ socialiste en même temps que de la fidélité plus disciplinée
 de la majorité radicale, de porter au fauteuil un homme
 dont les qualités mêmes ne seraient pas sans danger à la à
 tête du gouvernement, mais dont les défauts mêmes me
-seraient pas sans leurs avantages à la présidence ?
+seraient pas sans leurs avantages à la présidence?
 
 Mixture et combinaison. Ce même jeudi je vis beaucoup de monde aux cahiers. Je demandai qui était
 l'homme dont les qualités mêmes ne seraient pas sans danger à la tête du gouvernement, mais dont les
 défauts mêmes ne seraient pas sans leurs avantages à
 la présidence. Quelques-uns, malavisés, conjecturèrent
 
-: Brisson ; la moitié conjectura Doumer, la moitié conjectura Bourgeois. Voilà comme on écrit quandona
+: Brisson; la moitié conjectura Doumer, la moitié conjectura Bourgeois. Voilà comme on écrit quandona
 commencé à faire de la politique.
 
 11 paraît qu'il fallait conjecturer Bourgeois. Jaurès
-ayant eu la veille l'imprudence de penser à un ministère Bourgeois, Pressensé ne pouvait moins faire que
+ayant la veille l'imprudence de penser à un ministère Bourgeois, Pressensé ne pouvait moins faire que
 d'imaginer un ministère Waldeck. Cr, pour avoir un
 ministère Waldeck, il ne fallait pas avoir un ministère
 Bourgeois; et pour ne pas avoir un ministère Bourgeois,
 il fallait mettre M. Bourgeois à la présidence de la
-Chambre. Vous m'entendez. Ce sont là combinaisons
+Chambre. Vous m'entendez. Ce sont combinaisons
 que l'on entend, quand on veut. Le malheur est que
 
 On m'assure que pour comprendre un article de
@@ -1314,25 +1314,25 @@ la Petite République. Sinon elle équivaudrait, en un
 sens, à la Petite République. Elle mérite d'avoir une
 existence propre. Elle en est digne.
 
-Pendant deux ans Pressensé journaliste antiministériel a traité durement Jaurès parlementaire et journaliste ministériel ; après deux ans Jaurès pense que le
+Pendant deux ans Pressensé journaliste antiministériel a traité durement Jaurès parlementaire et journaliste ministériel; après deux ans Jaurès pense que le
 ministère Waldeck a fait son œuvre de restitution républicaine et qu'un ministère radical est indiqué. Aussitôt Pressensé devient waldeckiste, s'aperçoit que les
 radicaux sont faibles, demande la continuation d'un
-ministère Waldeck. Mais Waldeck — serait-il jaurésiste ? verrait-il comme Jaurès ? — Waldeck s'en va.
-Que deviennent les combinaisons ?
+ministère Waldeck. Mais Waldeck — serait-il jaurésiste? verrait-il comme Jaurès? — Waldeck s'en va.
+Que deviennent les combinaisons?
 
 Les deux attitudes étaient tenables. J'admets qu'au
-point äe vue politique on fût ministériel ou antiministériel. Je suis très libéral. Mais ce qui m'inquiète, c'est
+point vue politique on fût ministériel ou antiministériel. Je suis très libéral. Mais ce qui m'inquiète, c'est
 ce brusque changement, et surtout cette sévérité pour
 des situations que soi-même on aura bientôt.
-Dans le même numéro l'article de Lagardelle commençait ainsi :
+Dans le même numéro l'article de Lagardelle commençait ainsi:
 Le socialisme ne sort pas diminué des élections. Il a légerement accru le nombre de ses voix et compensé les pertes
 subies par des conquêtes nouvelles. Il demeure une force
 politique importante et son action parlementaire sera nécessairement décisive.
 
-Pourquoi nécessairement ? Nous n'avons pas renoncé !
+Pourquoi nécessairement? Nous n'avons pas renoncé!
 loptimisme de Jaurès pour endosser un nouvel optimisme, fataliste.
 Le même article finit ainsi
-.… Mais les mystères de la diplomatie et les obscurités de ‘4
+.… Mais les mystères de la diplomatie et les obscurités de
 la politique internationale ne peuvent être percés que par
 ceux-là qui les connaissent. C'est ne frôisser personne
 parmi nos camarades de combat que de reconnaître sur ce
@@ -1345,13 +1345,13 @@ et les déviations ministérialistes. -
 Prècher la paix sur un mot de guerre, cela est encore
 de la politique. À
 Sans se laisser aller à un optimisme de commande, il est Le
-permis d'affirmer que, sous l'action des circonstances, vont (à
+permis d'affirmer que, sous l'action des circonstances, vont
 s'imposer à notre parti des formations nouvelles, qui,
 mieux que par le passé, maintienäront l'idéal socialiste.
 Ou les mots n'ont aucun sens, ou formations nouvelles
 signifient un tiers parti, un nouveau parti dans le parti.
 
-F Le discours de Lagardelle au banquet Pressensé
+Le discours de Lagardelle au banquet Pressensé
 finissait ainsi
 Citoyens, c'est pour ce socialisme-là qu'à côté de Pressensé
 et de Vaughan et de nos autres camarades, nous continue- rons à lutter dans l'Aurore, en essayant de donner des
@@ -1375,12 +1375,12 @@ qui est le prolétariat moderne, qui est la création de nouvelles institutions.
 On peut objecter que nous nous trompons sur la portée
 du mouvement ouvrier et sur.sa valeur révolutionnaire. Je
 ne le crois pas, mais ce que nous pouvons dire, sans
-crainte, c'est que nous avons le droit d'être optimistes, dé
+crainte, c'est que nous avons le droit d'être optimistes,
 croire que le monde est en train de faire une révolution,
 puisque nous marchons avec l'agent essentiel de la Révolution. Citoyens, les jeunes hommes qui, à l'Aurore, à côté
 de Francis de Pressensé lutteront pour la doctrine nouvelle,
 auront au milieu de la lutte, la joie profonde de se dire —
-et peu de générations se le seront dit : Nous marchons avec
+et peu de générations se le seront dit: Nous marchons avec
 
 ; l'histoire.
 
@@ -1394,24 +1394,24 @@ ce que c'est; comme on sait ce que c'est que les interfédéraux. Je ne me repr�
 parti. J'ai peur qu'il ne cumule tous les défauts des
 guesdistes avec tous les défauts des interfédéraux, et
 qu'il n'ait les avantages ni des uns ni des autres; c'est
-ù ainsi du moins qu'il a commencé ; il aura toute la ‘
+ù ainsi du moins qu'il a commencé; il aura toute la
 raideur guesdiste sans aucune rigidité; il aura toute la
 fluctuation interfédérale sans aucune souplesse. Il fera
 de la lutte de classe avec et parmi des bourgeois.
 Ainsi au banquet Pressensé on se nommaïit amis,
-messieurs, citoyens et compagnons ; Lagardelle faisait
+messieurs, citoyens et compagnons; Lagardelle faisait
 de la lutte de classe devant M. Ludovic Trarieux. Si les.
 convives s'étaient pris au sérieux, comme on le doit, ils à
 n'auraient pas diné ensemble. Car la lutte de classe eût À
-mis en fuite M. Ludovic Trarieux; et la situation poli- ti
-‘ tique et sociale de M. Trarieux eût indisposé Lagar-,
+mis en fuite M. Ludovic Trarieux; et la situation poli-
+tique et sociale de M. Trarieux eût indisposé Lagar-,
 Quand on fait de la lutte de classe, on vote pour le
-candidat de classe. !
+candidat de classe.!
 L'Aurore sera un journal officiel du nouveau parti, et
-cependant l'Aurore ne sera pas un journal officiel. Or
+cependant l'Aurore ne sera pas un journal officiel.
 on est ofliciel ou on ne l'est pas. Si une qualité ne se
 6 partage pas, c'est l'officialité. Lagardelle nous parle
-toujours d'organisation ; et pour commencer il s'établit
+toujours d'organisation; et pour commencer il s'établit
 
 dans le journal justement qui n'est d'aucune organisation, qui ne représente aucune organisation.
 
@@ -1425,19 +1425,19 @@ l'investiture, au moins officieuse, de l'Unité Fédérative.
 Voilà ce que la politique fait d'un homme, d'un honnête homme et d'un homme courageux. On me dit
 Le Mouvement Socialiste ne fait rien que la Revue
 Socialiste ne fasse depuis longtemps; Lagardelle ne fait
-rien que ne fasse Rouanet ; Pressensé ne fait rien que
+rien que ne fasse Rouanet; Pressensé ne fait rien que
 
-Jaurès ne fasse ; tous les partis font ou préparent des
-banquets; l' Aurore ne fera rien que la Petite République
+Jaurès ne fasse; tous les partis font ou préparent des
+banquets; Aurore ne fera rien que la Petite République
 n'ait fait depuis longtemps. — Si cette raison suffit. à
 Lagardelle, à Pressensé, au Mouvement et à l'Aurore,
 si cette assimilation les contente, je me tais. Mais pourquoi Lagardelle, Pressensé, le Mouvement et l'Aurore
-ont-ils tant blâmé Rouanet, Jaurès et la Petite République ?
+ont-ils tant blâmé Rouanet, Jaurès et la Petite République?
 
 Si Lagardelle pense que nous devons recommencer
 identiquement l'action de nos aînés, je me tais.
 
-D'ailleurs on me dit au contraire : Qu'importent ces
+D'ailleurs on me dit au contraire: Qu'importent ces
 deux hommes. Ils sont tombés dans la politique. C'est
 qu'ils devaient quelque jour y tomber. Ils ont descendu
 la pente que l'on ne remonte pas. Ils mentiront plus de
@@ -1452,19 +1452,19 @@ Ce qui déplaïît aussi dans le banquet Pressensé, dans à
 les discours, c'est cette vieille idée indéracinable que
 l'entrée d'un homme au Parlement peut changer la face
 du monde. Ainsi tantôt on nie l'importance légitime des à
-personnalités, tantôt on l'exagère. Non l'entrée d'un ‘]
+personnalités, tantôt on l'exagère. Non l'entrée d'un
 homme au Parlement n'est que l'entrée d'un homme au
 L'entrée d'un homme au Parlement est beaucoup moins
 importante que l'entrée d'un homme au ministère.
 Généralité. Si la Ligue française pour la défense des
 Droits de l'Homme et du Citoyen. veut avoir un organe
 outre son bulletin bi-mensuel, si elle veut avoir un quotidien, mieux vaut qu'elle ait un organe officiel que d'avoir … me
-un organe officieux ; un organe oflicieux a tous les incon- … ‘à
-vénients d'un officiel ; mais il n'a aucun des avantages ; Eh
+un organe officieux; un organe oflicieux a tous les incon- …
+vénients d'un officiel; mais il n'a aucun des avantages; Eh
 les responsabilités s'y diffusent; la suspicion du publie
 est la même, au moins; et l'action manque de vigueur,
 d'exactitude, de loyauté.
-Si la Ligue veutrestituer l'ancienne action dreyfusiste, \
+Si la Ligue veutrestituer l'ancienne action dreyfusiste,
 ce n'est point par des banquets et des congratulations
 
 je qu'elle y réussira. Laissons aux partis politiques les
@@ -1473,14 +1473,14 @@ je qu'elle y réussira. Laissons aux partis politiques les
 Laissons aux partis vainqueurs les réjouissances et
 commémorations. Ne faisons pas comme les militaristes
 français, qui célèbrent les anniversaires de toutes nos
-défaites militaires. Nous n'avons déjà pas à être si fiers ?
+défaites militaires. Nous n'avons déjà pas à être si fiers?
 de ce que nous avons fait, de ce qui nous est arrivé, de
 ce que nous avons obtenu. Le droit est resté violé. Nousmêmes nous avons oublié nos méthodes.
 Si la Ligue veut restituer l'ancienne activité dreyfusiste, elle n'y parviendra point en instituant un parti
 dreyfusiste, un parti politique dreyfusiste. Composé des
-anciens éléments dreyfusistes, ce parti dreyfusiste n'aurait aucun programme politique. M. Ludovic Trarieux ,
+anciens éléments dreyfusistes, ce parti dreyfusiste n'aurait aucun programme politique. M. Ludovic Trarieux,
 et Lagardelle ne peuvent pas faire de la politique
-| ensemble. ls pouvaient ensemble faire de l'action
+ensemble. pouvaient ensemble faire de l'action
 morale et même socialiste. Non seulement ils ne peuvent ensemble faire de la politique socialiste, mais ils
 ne peuvent ensemble faire aucune politique.
 Le dreyfusisme ayant été la libération de l'action
@@ -1508,8 +1508,8 @@ français dont il se ferait des ennemis propres; et il
 risque de se faire avantager dans la lutte politique de
 Pautorité qu'il doit à cette noble fonction, avantage qui
 serait injuste. Pressensé a ici une situation comparable
-à celle de Quillard. J'ai toujours peur quand je vois un ‘À
-homme comme Quillard mêlé à nos débats. Quillard !
+à celle de Quillard. J'ai toujours peur quand je vois un
+homme comme Quillard mêlé à nos débats. Quillard!
 est vraiment parmi nous l'ambassadeur des Arméniens
 persécutés. De tels hommes ont vraiment parmi nous
 un droit d'asile, un droit souverain, une exterritorialité.
@@ -1535,9 +1535,9 @@ elles reviennent ici à compenser une aumône par une
 licence, par le privilège d'une licence. La vraie solution,
 la solution normale, régulière, et surtout la solution
 socialiste, c'est-à-dire celle qui assurait la bonne administration du travail, était que Pressensé fût rémunéré
-à l'Aurore pour son travail, juste assez pour vivre, eb
-que l'Aurore marchât ; ainsi le cas de conscience ne se
-fût pas même présenté. Or pour beaucoup de cas de
+à l'Aurore pour son travail, juste assez pour vivre,
+que l'Aurore marchât; ainsi le cas de conscience ne se
+fût pas même présenté. pour beaucoup de cas de
 conscience, en particulier pour les économiques, la
 meilleure solution est souvent d'instituer une situation
 où ils ne se posent plus.
@@ -1565,25 +1565,25 @@ on ne demandait pas le secret, pour qui on ne m'a pas
 demandé la confidence. On parlait devant Pressensé de À
 ma brève intervention dans l'affaire Jaurès et du beau
 cahier, Études Socialistes, que nous avons formé en
-articles de Jaurès. Il a eu tort, dit Pressensé ; il ne faut
+articles de Jaurès. Il a tort, dit Pressensé; il ne faut
 pas soutenir Jaurès, parce qu'en ce moment sa politique fait le plus grand tort au socialisme.
 Ainsi Pressensé journaliste et ancien dreyfusiste,
 autant qu'il était en lui, dans la mesure de son action,
 traitait l'affaire Jaurès par le silence, qui est l'appro-
 priation, l'adaptation individuelle du huis clos; etquand
-il en parlait il abandonnait Jaurès. Mais je le demande, ‘4
-qu'est-ce qui était en cause ? Etait-ce de savoirsila
-politique de Jaurès était mauvaise, ou était-ce de savoir si Jaurès, au sens littéral des mots, avait trahi. ‘à
+il en parlait il abandonnait Jaurès. Mais je le demande,
+qu'est-ce qui était en cause? Etait-ce de savoirsila
+politique de Jaurès était mauvaise, ou était-ce de savoir si Jaurès, au sens littéral des mots, avait trahi.
 Confondre les deux questions, répondre sur la pre- À
-mière quand c'était la deuxième qui était posée, répon- ‘x &
+mière quand c'était la deuxième qui était posée, répon-
 dre sur la première comme si c'était la deuxième, voilà Kat
-ce que je nomme de la politique ; et c'est en ce pre- ‘3
+ce que je nomme de la politique; et c'est en ce pre-
 mier sens que je dis que Pressensé fait de la politique.
 Survinrent les élections. Brusquement on se débarrassa de Gohier. Nous publierons bientôt le dossier de
 
 cette affaire. Des pièces que nous publierons, des renseignements que j'ai, des renseignements qué nous aurons quelque jour, il semble malheureusement résulter que
 l'expulsion de Gobhier fut un coup de politique. Entre
-qui fut-elle concertée ? Vaughan adopta brusquement
+qui fut-elle concertée? Vaughan adopta brusquement
 une attitude que rien ne faisait prévoir. Pressensé —
 encore le huis clos — n'écrivit pas un mot pendant la
 crise. Il allait à Lyon, travaillait sa candidature. Tout
@@ -1591,11 +1591,11 @@ crise. Il allait à Lyon, travaillait sa candidature. Tout
 nouveau journal — voir le discours de Lagardelle.
 
 Ainsi Pressensé n'a pas affronté Gohier, qu'il fallait
-affronter ; il a éliminé Gohier, qu'il ne fallait pas éliminer. Il a éliminé quand il fallait affronter. Il n'a pas
+affronter; il a éliminé Gohier, qu'il ne fallait pas éliminer. Il a éliminé quand il fallait affronter. Il n'a pas
 affronté quand il fallait affronter. Affronter, c'est-à-dire
 opposer des raisons, en toute liberté économique. Éli-
 
-L miner, c'est-à-dire opposer des servitudes économiques.
+miner, c'est-à-dire opposer des servitudes économiques.
 
 Quand je vois ce qu'a duré Allemane au feu de fièvre
 de la politique parlementaire, je me demande ce que
@@ -1603,8 +1603,8 @@ de la politique parlementaire, je me demande ce que
 Soit dit sans offenser Pressensé, Allemane paraissait
 un rude homme.
 
-J'ai l'impression que Pressensé va monnayer en politique son capital de dreyfusisme; quand je dis capital,
-je suis le premier à déclarer par là qu'il avait acquis
+J'ai l'impression que Pressensé monnayer en politique son capital de dreyfusisme; quand je dis capital,
+je suis le premier à déclarer par qu'il avait acquis
 beaucoup par son courage.
 
 Ligue des Droits de l'Homme. C'est toujours la même
@@ -1616,22 +1616,22 @@ assez peu pour ne pas enfoncer la Ligue de la Patrie
 Certains dreyfusistes, oubliant trop ce qui reste à
 faire, n'ont pas oublié assez leurs mérites et leurs histoires. Nous connaissons ces événements, dont nous
 fûmes une petite part. Et on nous en a déjà parlé beaucoup. M. Trarieux prononce un dernier discours. C'est
-un toast au colonel Picquart :
+un toast au colonel Picquart:
 Le 9 juin 1898, ma maison a été le théâtre d'un crime
 véritable. C'est chez moi qu'a été arrêté le colonel Picquart. (Mouvement)
 Je comprends ce mouvement. On ne s'attendait plus
 à cette révélation. Depuis le 9 juin 1898 il coule de
-l'eau sous les ponts et il y a eu beaucoup de crimes À
+l'eau sous les ponts et il y a beaucoup de crimes À
 véritables. Ne nous laissons pas fasciner. Ne tombons
 pas dans le fétichisme.
 Socialisme. Si les partis socialistes ont perdu aux À
 élections, il ne semble pas que le socialisme lui-même
 ait été atteint. Ilne pouvait pas beaucoup perdre parce
-que dans la réalité il n'a pas beaucoup. La déperdition ‘1
+que dans la réalité il n'a pas beaucoup. La déperdition
 apparente vient au contraire de ce que l'on avait embauché hâtivement dans le socialisme, et classé sans contrôle, par vanité, par mensonge, par politique, une
-innombrable quantité de non socialistes ; de mécon- ! ai
+innombrable quantité de non socialistes; de mécon-! ai
 : tents, de brouillons, ou de réactionnaires, parmi les
-socialistes-révolutionnaires ; de radicaux parmi les li
+socialistes-révolutionnaires; de radicaux parmi les
 Jaurès a bien raison de dire que pour la première
 fois depuis la fondation de la troisième république les
 élections indiquent formellement une majorité, un
@@ -1654,7 +1654,7 @@ c'est ce que nous examinerons dans un des premiers
 cahiers de la quatrième série.
 
 Le Petit Sou ne paraît plus depuis le 15 de ce mois
-né du caprice d'un capitaliste véreux, l'organe officiel
+du caprice d'un capitaliste véreux, l'organe officiel
 de l'Unité Socialiste Révolutionnaire, Parti Socialiste
 de France, est mort comme il était né.
 
@@ -1662,23 +1662,23 @@ Vendredi 23 mai 1902. Pressensé ne parle plus que
 de politique, et de politique parlementaire. Après avoir
 parce que M. Waldeck-Rousseau ne quittait pas le
 pouvoir, il querelle aujourd'hui M. Waldeck-Rousseau
-parce que M. Waldeck-Rousseau quitte le pouvoir. di
+parce que M. Waldeck-Rousseau quitte le pouvoir.
 Enfin M. Waldeck-Rousseau n'est pas à ses ordres. À
 
-Nous lisons dans l'Aurore de ce matin :
+Nous lisons dans l'Aurore de ce matin:
 Voilà, paraît-il, qui est une affaire faite. M. Waldeck- À
-Rousseau n'entend pas seulement quitter le pouvoir : il est he
+Rousseau n'entend pas seulement quitter le pouvoir: il est
 démissionnaire, il n'a pas voulu attendre la nouvelle Chambre, il a placé le pays, le président et le Parlement en face
-d'un fait accompli. di
+d'un fait accompli.
 .…. C'est précisément cette manière de voir qui me faisait Ni
 et me fait encore envisager la continuation du ministère
 Waldeck-Rousseau — avec les quelques modifications né- mr:
 cessaires — comme l'issue la plus naturelle et la plus heureuse de la crise électorale.
 Des volontés, qu'il n'eût peut-être pas été impossible à
-: un certain moment de plier à un meilleur parti, en ont dé
-' cidé autrement. On me permettra de regretter que le minis- "M
+: un certain moment de plier à un meilleur parti, en ont
+cidé autrement. On me permettra de regretter que le minis-
 ière même, s'il croyait devoir passer la main, p'ait pas. KES
-compris la haute utilité, je dirai presque la nécessité morale lt
+compris la haute utilité, je dirai presque la nécessité morale
 et politique d'une rencontre avec la Chambre. “ra à
 L'esprit de la Constitution, tous les précédents du régime
 parlementaire faisaient presque une loi de cette comparu- A
@@ -1689,9 +1689,9 @@ jonctures actuelles, l'intérêt majeur de la cause républicaine demandait un g
 
 : La Chambre est novice. Elle vient à peine de naître.
 
-_ Toute assemblée a besoin, à ses premiers pas, d'une main
+Toute assemblée a besoin, à ses premiers pas, d'une main
 
-_ ferme qui la guide, qui l'oriente, qui lui fasse voir ce qu'elle
+ferme qui la guide, qui l'oriente, qui lui fasse voir ce qu'elle
 
 . veut, qui l'accouche, en quelque sorte, de ses volontés ob- seures dont son expérience n'a pas pleinement conscience.
 Et cela était plus nécessaire que jamais avec un Parlement
@@ -1714,12 +1714,12 @@ rester abonnés au Mouvement Socialiste. Notre consti-
 Un avenir prochain fera voir qui étaient les véritables
 amis de Lagardelle, de ceux qui ont tout fait, qui ont
 risqué la rupture même et l'inimitié pour l'empécher de
-tomber dans la politique et dans le journal, ou de ceux ”
+tomber dans la politique et dans le journal, ou de ceux
 qui, parce qu'ils y avaient avantage, l'y ont encouragé.
 
 Nous pouvons évaluer à cinq mille francs le dommage que les élections nous auront causé, par abaissement de recettes; nos souscriptions ont baissé d'un
 millier de francs presque; nos abonnements anciens
-nous ont rendu moins; nous n'avons pas reçu d'abonnements nouveaux ; nous avons moins vendu de cahiers
+nous ont rendu moins; nous n'avons pas reçu d'abonnements nouveaux; nous avons moins vendu de cahiers
 séparés; nous avons moins vendu de livres en librairie.
 Nous publierons le bilan de la troisième série dans le
 premier cahier de la quatrième. Alors nous pourrons
@@ -1727,7 +1727,7 @@ mesurer plus exactement la déperdition que nous avons
 
 Depuis quelques jours nos recettes remontent; mais
 il est évident que nous ne pouvons plus rattraper le
-retard ; l'année est fortement avancée; dans dix semaines auront commencé les examens et les vacances.
+retard; l'année est fortement avancée; dans dix semaines auront commencé les examens et les vacances.
 
 Nous sommes ainsi conduits à effectuer dès cette
 année une opération que je gardais pour le commencement de la quatrième série.
@@ -1742,29 +1742,29 @@ mais ceux-là seuls qui pourraient me la reprocher, les
 miens, n'ont pas la pensée de me la reprocher.
 
 Pour assurer la marche des trois premières séries, je
-m'engageai personnellement ; un abonné de la première
+m'engageai personnellement; un abonné de la première
 heure eut le courage de m'avancer plusieurs milliers de
 francs. Je dus, sur ce premier établissement, asseoir
 - trois années de travail. Ce fut difficile.
-Nous avons tous lu dans les images d'Épinal ce conte
+Nous avons tous dans les images d'Épinal ce conte
 véridique. Le père en mourant n'avait plus que dix-huit
-sous ; qu'il partagea également entre ses trois fils; le
+sous; qu'il partagea également entre ses trois fils; le
 plus jeune, ayant pleuré le père; s'en fut à pied à la
 ville voisine; où il acheta pour six sous de rubans et
-_ dentelles ; qu'il revendit huit sous aux femmes dans les
-villages ; puis il s'en fut à la ville voisine; où il acheta
+dentelles; qu'il revendit huit sous aux femmes dans les
+villages; puis il s'en fut à la ville voisine; où il acheta
 pour huit sous de rubans, déntelles et merceries; qu'il
 revendit pour vingt sous dans les villages; puis il
 acheta un âne; qui portait les épiceries sur son dos;
-puis il acheta une petite voiture; et un cheval ; et une !
-maison ; et une femme; et des enfants; et un château
+puis il acheta une petite voiture; et un cheval; et une!
+maison; et une femme; et des enfants; et un château
 où il reçut fraternellement, sur ses vieux jours, son
 frère le soldat, qui avait une jambe de moins; et son
 frère le viveur, qui enfin revenait aux joies de la
 Tel fut mon sort, pour les débuts s'entend. Je
-| dus à chaque fois spéculer sur le bénéfice de l'opé- HD
+dus à chaque fois spéculer sur le bénéfice de l'opé-
 ration antérieure pour en constituer la mise de
-fonds de l'opération suivante. Or ce procédé pouvait.
+fonds de l'opération suivante. ce procédé pouvait.
 réussir au temps que nous étions petits. Et même alors
 il avait commencé à se démoder. Il était bon du temps
 de Louis-Philippe, et sous le gars Napoléon: Un Rességuier pouvait alors édifierune immense fortune. Aujourd'hui, par le progrès de la concurrence commerciale,
@@ -1779,7 +1779,7 @@ Pour faire les cahiers, selon la loi commune, il faut
 constituer un capital. Nous n'avons pas constitué ce
 capital au commencement de la première série; nous
 
-| avons voulu travailler d'abord, marcher, vivre, faire
+avons voulu travailler d'abord, marcher, vivre, faire
 nos preuves; nous avons tenu tant bien que mal pendant
 la première série.
 
@@ -1789,7 +1789,7 @@ bien que mal pendant la deuxième série.
 
 Je voulais constituer ce capital au commencement de
 
-; la troisième série ; je pensais dès lors que les élections
+; la troisième série; je pensais dès lors que les élections
 nous feraient la vie diflicile; mais je savais aussi que
 Lagardelle et Besnard cherchaient des fonds pour constituer un capital au Mouvement Socialiste hebdomadaire;
 que cela n'allait pas tout seul; je savais qu'il est toujours difficile de trouver des fonds; je savais qu'au
@@ -1802,15 +1802,15 @@ au commencement de la quatrième série; nous avons
 tenu tant bien que mal pendant la troisième série.
 
 Je voulais constituer ce capital au commencement de
-la quatrième série ; nous ne pouvons tenir jusque-là
+la quatrième série; nous ne pouvons tenir jusque-là
 nous avons souffert des élections plus que je ne m'y
 
-attendais ; l'accroissement de nos opérations exige un
+attendais; l'accroissement de nos opérations exige un
 fonds d'accroissement, un fonds de roulement plus
 considérabie que je ne n'y attendais.
 
 La librairie demande un fonds de trois mille francs
-” quelle que soit la diligence de nos clients, ïl y a
+quelle que soit la diligence de nos clients, y a
 toujours trois mille francs de livres que nous avons
 payés aux commissionnaires et que nos clients ne nous.
 ont pas payés encore, soit que nous les ayons en
@@ -1819,22 +1819,22 @@ magasin, à disposition, soit que nous les ayons livrés
 La papeterie des cahiers nous demandera bientôt un
 
 Les éditions des cahiers nous demandent un fonds
-de cinq mille francs ; il y a déjà cinq mille francs de
+de cinq mille francs; il y a déjà cinq mille francs de
 cahiers que nous avons payés aux imprimeurs et que
-nous n'avons pas vendus encore ; toute maison d'éditions
-est dans le même cas ; mais toute maison d'éditions
+nous n'avons pas vendus encore; toute maison d'éditions
+est dans le même cas; mais toute maison d'éditions
 sérieuse a des capitaux.
 
 Ce fonds de marchandises ne pourra que s'accroître
 il est indispensable que nous fassions de forts tirages
 pour la plupart de nos cahiers; c'est l'intérêt commun
-des auteurs, du publie, des cahiers ; nos éditions se
+des auteurs, du publie, des cahiers; nos éditions se
 vendent lentement, mais régulièrement; plusieurs de nos
 cahiers sont déjà épuisés; plusieurs sont en épuisement.
 
 Ainsi notre situation générale est assez bonne; l'inventaire, où entre la valeur des marchandises, est bon
 le bilan, où n'entreraient que les recettes en espèces,
-laisse à désirer. Or on ne paie pas ses traites avec des
+laisse à désirer. on ne paie pas ses traites avec des
 
 Pour spécifier que cette opération n'estpas un emprunt
 effectué en cours de route, mais l'emprunt initial des
@@ -1842,12 +1842,12 @@ effectué en cours de route, mais l'emprunt initial des
 cahiers effectué avec trois ans de retard, nous le
 nommons emprunt de fondation.
 Pour la même raison, et pour que cette opération soit
-faite une fois pour toutes, il faut qu'elle soit complète; *
+faite une fois pour toutes, il faut qu'elle soit complète;
 nous ne pouvons marcher bien à moins d'avoir obtenu
 vingt mille francs; c'est le prix d'un arrondissement
 bon marché; il nous faut l'année prochaïne un fonds de
 roulement plus considérable que cette année, pour
-_ l'accroissement normal de nos cahiers, et pour l'accroissement de leur nombre dans la série. La bonne copie
+l'accroissement normal de nos cahiers, et pour l'accroissement de leur nombre dans la série. La bonne copie
 abonde. Nous avons pour le commencement de la quatrième série plusieurs cahiers tout faits etles meilleures
 promesses. La véritable moyenne, la moyenne réelle
 entre le mensuel, qui produit douze numéros par an, et
@@ -1857,19 +1857,19 @@ Il nous faut en outre un fonds de roulement permanent pour effectuer des lanceme
 plus en plus larges.
 Pour simplifier l'opération nous partageons les vingt
 mille francs de l'emprunt en deux cents parts de cent
-francs ; ceux de nos abonnés qui ne pourront souscrire
+francs; ceux de nos abonnés qui ne pourront souscrire
 une part entière s'entendront d'eux-mêmes à plusieurs
 pour constituer une part.
 Je me permets de recommander ce procédé à nos
 abonnés pauvres, qui sont nombreux. A nos abonnés
-très pauvres, qui sont plus nombreux, je me permets de faire cette loyale déclaration : nous ne leur
+très pauvres, qui sont plus nombreux, je me permets de faire cette loyale déclaration: nous ne leur
 demandons rien cette fois-ci; nous savons qu'ils ne
 
 peuvent pas nous envoyer plus qu'ils ne nous envoient
-* régulièrement; nous ne voulons pas que pour nous
+régulièrement; nous ne voulons pas que pour nous
 envoyer aujourd'hui une souscription extraordinaire ils
 manquent à leurs devoirs d'état ou à leurs devoirs de
-= famille, qui sont les premiers devoirs ; nous ne sommes
+famille, qui sont les premiers devoirs; nous ne sommes
 pas des chefs qui font massacrer des troupes en leur
 affirmant que la garde civique ne tirera pas; nous
 sommes simplement des ouvriers qui travaillons le plus
@@ -1888,7 +1888,7 @@ Les carnets seront prêts le 28 mai.
 Pour faciliter la libération des titres, les titulaires des
 parts s'acquitteront à leur volonté
 ou en souscrivant
-ou par cinquièmes, c'est-à-dire : $
+ou par cinquièmes, c'est-à-dire:
 vingt francs avant le 28 juin;
 vingt francs avant le 28 juillet; "4
 vingt francs avant le 28 août;
@@ -1896,7 +1896,7 @@ vingt francs avant le 28 septembre;
 vingt francs avant le 28 octobre.
 Pour que nos cahiers gardent leur autonomie, nous
 
-‘A exigeons que les titulaires des parts soient de nos abon-
+exigeons que les titulaires des parts soient de nos abon-
 
 Les parts ne porteront pas intérêt.
 
@@ -1923,11 +1923,11 @@ nous-mêmes; sans aucune exception les forces politiques
 sont contre nous.
 
 Il nous faut au moins deux cents souscripteurs à
-cent francs ; il est évident que je ne puis pas écrire
+cent francs; il est évident que je ne puis pas écrire
 deux cents lettres particulières ou faire deux cents
 visites avant la fin de cette année; on n'attend pas
 que j'aille insister auprès de nos abonnés; je suis
-assuré que nd ' tient la présente invitation pour
+assuré que tient la présente invitation pour
 
 Beaucoup de nos abonnés veulent bien me reprocher
 d'avoir l'air malheureux et fatigué. Il est vrai que je ne
@@ -1937,7 +1937,7 @@ Les deux se tiennent. Je suis fatigué de travail, de souci
 et de peine.
 Le travail est encore le moins fatigant. Ce n'est pas
 le travail qui tue, si lourd qu'il soit. Ce qui tue, c'est le
-” travail accompagné de souci et de peine.
+travail accompagné de souci et de peine.
 Je ne recherche pas le souci par plaisir. De mon
 naturel j'aimerais mieux n'en pas avoir. Mais je ne
 puis fuir les redoutables soucis des responsabilités matérielles que j'encours. Depuis trente mois je me demande
@@ -1947,7 +1947,7 @@ mois. Ma valeur de travail en est considérablement
 diminuée. Il est temps que cela cesse. Il me faut des
 successeurs. Une responsabilité financière qui écrase
 une seule tête redevient légère répartie sur deux cents
-budgets. Ma situation personnelle 6st depuis je ne sais
+budgets. Ma situation personnelle depuis je ne sais
 quand descendue au-dessous du minimum indispensable.
 Je ne recherche pas la peine. J'avais fondé sur la
 génération dont je suis les espérances les plus grandes.
@@ -1956,7 +1956,7 @@ désillusion n'en est pas moins amère. Lagardelle sera
 le dernier homme en qui j'aurai mal placé mes illusions.
 Le tour que me joue le Mouvement en contribuant à
 à étouffer les cahiers, et en devenant une revue de parti,
-< m'aura fait la dernière blessure dont j'aurai à me cicatriser. ‘
+m'aura fait la dernière blessure dont j'aurai à me cicatriser.
 On doit s'y faire; les années passent; lhabitude
 vient; libres de toute haine et de toute illusion, mais
 non pas libres de toute vigueur et de toute fraîcheur,
@@ -1973,12 +1973,12 @@ On nous reprochera de lancer l'emprunt des cahiers
 à une date où les élections ont épuisé le marché. On
 fait comme on peut, et je ne suis pas politique. Nous
 avons consciemment encouru ces conditions défavorables pour laisser passer, au commencement de cette
-année, l'emprunt du Mouvement ; il y aurait de l'injustice à nous en faire porter une responsabilité pénale.
+année, l'emprunt du Mouvement; il y aurait de l'injustice à nous en faire porter une responsabilité pénale.
 Je m'adresse aux véritables hommes d'affaires, à
 ceux qui savent la valeur de l'argent, et je leur dis
-Sans doute les élections ont coûté cher aux partis républicains ; mais les prochaines élections coûteront beaucoup plus cher si vous laissez languir d'inanition
+Sans doute les élections ont coûté cher aux partis républicains; mais les prochaines élections coûteront beaucoup plus cher si vous laissez languir d'inanition
 pendant les quatre oules six ans qui viennent les organes
-réguliers de l'indispensable vérité. À dépense égale, nos !
+réguliers de l'indispensable vérité. À dépense égale, nos!
 cahiers fournissent, comme je le montrerai dans le bilan
 de la troisième série, un rendement maximum. Enfin,
 à travail égal, et à rendement maximum, une entreprise
@@ -1998,22 +1998,22 @@ la part de souscription modeste où ils ont droit. Nos
 cahiers ne peuvent pas s'effacer indéfiniment devant nos
 camarades plus favorisés.
 
-Il va de soi qu'au-dessous de cette opération extraor-
+Il de soi qu'au-dessous de cette opération extraor-
 dinaire la nutrition de nos cahiers doit continuer par,
-tous les moyens ordinaires, souscriptions et abonnements, librairie et papeterie. }:
+tous les moyens ordinaires, souscriptions et abonnements, librairie et papeterie.
 
 Vient de paraître à la Société Nouvelle de librairie et
-_ d'édition, en vente à la librairie des cahiers
+d'édition, en vente à la librairie des cahiers
 
 Quatrième congrès générai du Parti Socialiste
 Français, tenu à Tours du 2 au 4 mars 1902, compte
-rendu sténographique officiel, un fort volume in-18 de
+rendu sténographique officiel, un fort volume de
 Ce volume contient le texte sténographique des six
 séances du congrès de Tours, — le procès-verbal des
 
-_ séances de la commission du programme, — le texte des
-projets de résolutions présentés au congrès et des résolu- *
-tions adoptées : Déclaration de principes, Programme politique et économique, modifications apportées aux Statuts
+séances de la commission du programme, — le texte des
+projets de résolutions présentés au congrès et des résolu-
+tions adoptées: Déclaration de principes, Programme politique et économique, modifications apportées aux Statuts
 du Parti socialiste, résolutions relatives à la Presse du
 Parti, à la participation au gouvernement bourgeois, aux
 élections, etc., — les différents rapports présentés au
@@ -2039,9 +2039,9 @@ a fait dresser une
 Table analytique des matières contenues dans les
 comptes rendus des Congrès généraux des Organisations Socialistes Françaises. — Paris 1899,
 Paris 1900, Lyon 1901, Tours 1902, une brochure
-in-18 de 24 pages o franc
+de 24 pages o franc
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
-la rédaction ni sur l'administration : ces fonctions
+la rédaction ni sur l'administration: ces fonctions
 
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;

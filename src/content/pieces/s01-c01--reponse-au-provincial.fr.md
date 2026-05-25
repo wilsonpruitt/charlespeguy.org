@@ -19,18 +19,18 @@ avaient également raison. Toujours faut-il que l'on s'entende.
 De cette fête j'avais préparé un compte rendu, non pas
 pour toi, mais pour une revue amie. Je t''enverrai, par
 exception, ce compte rendu dans mon premier cahier. J'y
-ajouterai les principaux documents de l'affaire Liebknecht, ‘
+ajouterai les principaux documents de l'affaire Liebknecht,
 et quelques notes sur les derniers événements de décembre
 
 La République avait triomphé le 11 novembre par la
-décision de la Haute Cour : 153 juges contre 91 avaient
+décision de la Haute Cour: 153 juges contre 91 avaient
 ce jour-là repoussé les conclusions de la défense, pré-
-sentées et défendues la veille par M° Devin, tendant
+sentées et défendues la veille par Devin, tendant
 faire déclarer l'incompétence. Puis la République avait
-triomphé le jeudi 16 par le vote de la Chambre : 317 dé-
+triomphé le jeudi 16 par le vote de la Chambre: 317 dé-
 putés contre 212 avaient voté l'ordre du jour, présenté
 par les Gauches, « approuvant les actes de défense
-républicaine du Gouvernement »; les mots de défense
+républicaine du Gouvernement les mots de défense
 républicaine avaient été proposés par M. Vaillant et
 plusieurs socialistes, et acceptés d'eux par le Président
 du Conseil.
@@ -42,7 +42,7 @@ comme ils ont récemment fait une réparation pour
 l'église Saint-Joseph, ainsi trois cent mille républicains
 allèrent en cortège réconcilier la place de la Nation.
 
-La Petite République et Gérault-Richard avaient eu
+La Petite République et Gérault-Richard avaient
 l'initiative de cette manifestation, comme ils avaient eu,
 avec toute l'opinion publique, l'initiative, en des temps
 plus difliciles, d'aller à Longchamp. Nous rendrons
@@ -53,7 +53,7 @@ pouvaient pour que la manifestation fût grandiose.
 M. Paulin Méry fit coller sur les murs de grandes
 affiches rouges, émanant d'un Comité d'action socialiste
 et patriotique dont il s'intitulait, bien entendu, le dé-
-k légué général. Le bureau du Conseil Municipal fit donc
+légué général. Le bureau du Conseil Municipal fit donc
 apposer des proclamations officieuses. La Commission
 exécutive de l'Agglomération parisienne du Parti
 ouvrier français avait fait poser des affiches beaucoup
@@ -65,12 +65,12 @@ le lecteur que,le gouvernement et M. Bellan ayant inter-
 dit le drapeau rouge, les vrais socialistes et les vrais
 révolutionnaires étaient par là-même exclus de la manifestation. Le parti guesdiste s'est apparemment donné
 la tâche glorieuse de sauver le drapeau rouge des subornations de M. Waldeck-Rousseau. Les guesdistes
-n'ont jamais mis leur drapeau dans leur poche : demandez plutôt à M. Alexandre Zévaès des nouvelles de son
-h élection. Les guesdistes n'ont pas beaucoup défendu le
+n'ont jamais mis leur drapeau dans leur poche: demandez plutôt à M. Alexandre Zévaès des nouvelles de son
+élection. Les guesdistes n'ont pas beaucoup défendu le
 drapeau rouge contre les brutalités de M. Dupuy ni
 contre les férocités sournoises de M. Méline. Cela était
 plus difficile. Enfin ils firent défense à la population pa-
-{ risienne d'aller fêter le Triomphe de la République,
+risienne d'aller fêter le Triomphe de la République,
 puisque cette République de Dalou (1) n'était pas la
 République sociale, mais, remarquez-le bien, la capi-
 taliste. Les guesdistes mirent en interdit la manifesta-
@@ -131,12 +131,12 @@ un bel étendard, un drapeau rouge, mais avec la hampe
 au milieu, et ces mots brodés en trois lignes transverses: La — Petite République — socialiste, et les deux
 cartouches bleus aux inscriptions dorées: Ni Dieu ni
 Maître; Prolétaires de tous les pays, unissez-vous. L'attente se prolongeait. On remarqua que le mot pays sur
-le deuxième cartouche était mis en surcharge. Cn
+le deuxième cartouche était mis en surcharge.
 achetait des églantines rouges au bureau du journal, au
 magasin plutôt. Ces églantines ont été perfectionnées
 depuis Longchamp. Alors on les donnait, à présent
-on les vend : un sou l'exemplaire, trois francs le cent,
-vingt-sept francs le mille ; à présent on la nomme églan-
+on les vend: un sou l'exemplaire, trois francs le cent,
+vingt-sept francs le mille; à présent on la nomme églan-
 
 - tine rouge double. Elle est plus grande, plus grosse;
 elle a en effet deux rangées de pétales, une à l'exté-
@@ -150,12 +150,12 @@ est plus grosse et toute rouge. Naguère on mettait pour
 la plupart une seule fleurette à la boutonnière, comme
 une marque. Aujourd'hui, dans un besoin d'expansion,
 d'exubérance et de floraison, on met, à toutes enseignes, des bouquets entiers. L'églantine est plus rouge,
-toute rouge, plus symbolique, mais elle est moins églantine, moins fleur. C'est une fleur sans-pollen : lequel
+toute rouge, plus symbolique, mais elle est moins églantine, moins fleur. C'est une fleur sans-pollen: lequel
 vaut mieux? On discute sagement là-dessus. Les partisans du progrès préfèrent la nouvelle églantine; les
 horticulteurs — on nomme ainsi les hommes qui cultivent leur jardin — aimaient mieux la petite fleur.
 
 Attendant encore on vit passer plusieurs délégations
-qui n'étaient pas en retard : quelques hommes à la fois,
+qui n'étaient pas en retard: quelques hommes à la fois,
 avec ou sans insignes, dont l'un portait quelque bannière, ou fièrement brandie, ou familièrement sous le
 bras; les uns marchaïent au milieu de la route, et
 c'était un amusant défilé de quatre hommes, sérieux
@@ -179,7 +179,7 @@ disait-on, ils sont au moins dix mille. — Partons.
 
 Il était midi et demie passé quand on forma le cortège. Quelques vieux militaires âgés de vingt-deux ans,
 récemment échappés de la caserne, chantonnèrent en
-riant la sonnerie: au drapeau ! quand on sortit du magasin le rouge étendard. L'idée que l'on allait marcher
+riant la sonnerie: au drapeau! quand on sortit du magasin le rouge étendard. L'idée que l'on allait marcher
 en rangs, au pas, au milieu de la rue, éveillait chez
 car invinciblement une foule qui marche en rangées au
 pas tend à devenir une armée, comme une armée en
@@ -188,7 +188,7 @@ est mauvais dans le service militaire, c'est le service, la
 servitude, l'obéissance passive, le surmenage physique,
 et non pas les grandes marches au grand soleil des
 routes. On se forma. Quelques-uns commandèrent en
-riant : En avant ! Le premier rang était formé de porteurs de la Petite République. Is avaient leur casquette galonnée, l'inscription en lettres d'argent. Trois
+riant: En avant! Le premier rang était formé de porteurs de la Petite République. avaient leur casquette galonnée, l'inscription en lettres d'argent. Trois
 d'entre eux portaient l'étendard et les deux cartouches.
 Quand on aura socialisé même les fêtes socialistes, les
 militants porteront eux-mêmes leur drapeau. Je ne dé-
@@ -207,18 +207,18 @@ allâmes nous ranger boulevard Richard-Lenoir, je crois.
 Il y avait tant de monde que l'on ne reconnaissait plus
 les rues, les larges avenues de ces quartiers. Nous
 étions auprès de la statue du sergent Bobillot. Un porteur de la Petite République explique à son voisin pourquoi il préfère un homme comme Bobillot à un homme
-comme Marchand. Nous attendons là longtemps, insé-
+comme Marchand. Nous attendons longtemps, insé-
 rés dans les groupes ouvriers en costume de travail.
 C'est nouveau. Près de nous le vaste et muable moutonnement des chapeaux de feutre enfarinés aux larges
-bords : ce sont les forts de la Halle (1), coltineurs non
+bords: ce sont les forts de la Halle (1), coltineurs non
 débiles, qui stationnent pesamment, puissamment. Nous
 sommes directement sous la protection de Lépine, qui
-est là tout près, au sergent Bobillot, disent quelques-uns.
+est tout près, au sergent Bobillot, disent quelques-uns.
 Grâce à la protection de Lépine, continuent-ils en riant,
 nous allons défiler en bonne place dans le cortège. Tout
 cela n'empêche pas que si on refait la Commune on le
 fusillera tout de même, dit près de moi un vieux communard universellement connu comme un brave homme.
-Je crois qu'il plaisante et veux continuer la plaisanterie. Avec quoi les fusillera-t-on ? — Avec des balles,
+Je crois qu'il plaisante et veux continuer la plaisanterie. Avec quoi les fusillera-t-on? — Avec des balles,
 comme les autres, me répond-il sérieusement. Je le regarde bien dans les yeux, pour voir, parce que sa parole
 sonne faux en celte fête. IL a toujours les mêmes yeux
 bleus calmes et la même parole calme. Ces vieux communards sont extraordinaires. On ne sait jamais s'ils
@@ -233,7 +233,7 @@ Deux hommes, adossés au mur d'une maison adijacente,
 pour se reposer de la longue station, disent gravement:
 C'est tout de même beau, une fête comme ça, c'est tout
 de même beau. Et ils répètent profondément sur un
-rythme las : C'est beau. C'est beau. Il passe des enfants,
+rythme las: C'est beau. C'est beau. Il passe des enfants,
 petits garçons et petites filles, délégations des écoles
 ou des patronages laïques. On leur fait place avec une
 sincère et universelle déférence. On pousse en leur honneur de jeunes vivats. Ils y répondent. Ils passent en
@@ -295,13 +295,13 @@ et un condamné de la veille. Nous aurions été gênés
 pour faire allusion à la petite condamnation de Déroulède. Le peuple, plus carrément, et peut-être plus sage-
 
 ment, ne se contentait pas d'envoyer Déroulède à Charenton. Les malins imaginaient des variantes et les
-lançaient : Ah! Déroulède trois mois de prison; Ah !
+lançaient: Ah! Déroulède trois mois de prison; Ah!
 Déroulède est au violon. Un nouveau chant parlé commençait à se répandre, plus volontaire, plus précis, plus
-redoutable, inventé sur le champ : au bagne, Mercier,
+redoutable, inventé sur le champ: au bagne, Mercier,
 au bagne. Le mot bagne, ainsi chanté, avec rage,
 résonne extraordinairement dans la mâchoire et dans
 les tempes. Un brave homme, petit et mince, entendant
-mal, criait avec acharnement : au bal, Mercier. Quand
+mal, criait avec acharnement: au bal, Mercier. Quand
 il s'aperçut de son erreur, il n'expliqua que, dans sa
 pensée, il donnait au mot bal ce sens particulier qu'on
 lui donne au régiment, où, par manière de plaisanterie
@@ -334,7 +334,7 @@ métier des ouvriers qui avaient promis leur concours
 la manifestation. Je lis dans la Petite République du
 matin même, datée du lundi, les convocations suivantes,
 à la file: Chambre syndicale des gargouilleurs; — Syndicat de la chèvre, mouton et maroquin; — Chambre
-syndicale des tailleurs et scieurs de pierre du départeKe ment de la Seine : — Chambre syndicale professionnelle
+syndicale des tailleurs et scieurs de pierre du départeKe ment de la Seine: — Chambre syndicale professionnelle
 des façonniers passementiers à la barre; — Fédération
 des syndicats de Boulogne-sur-Seine: — Chambre
 syndicale des corps réunis de Lorient, Morbihan; —
@@ -347,5 +347,3 @@ réalité, une solidité, comparés aux noms des groupements
 révolutionnaires, amicaux, indépendants, radicauxsocialistes, aux unions, aux associations, et aux cercles,
 et aux cercles d'études sociales, et aux partis. Loin de
 moi la pensée de calomnier les groupements politiques.
-
----

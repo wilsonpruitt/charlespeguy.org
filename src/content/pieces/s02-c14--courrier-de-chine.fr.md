@@ -16,9 +16,9 @@ compact sur la Chine. Mais il n'a pas trouvé le
 temps de le faire.
 
 En fait ma tâche se présentait, dès le début,
-de la façon suivante : quatre ou cinq articles,
+de la façon suivante: quatre ou cinq articles,
 chacun traitant un point déterminé. Je vous en
-avais promis un sur le transport des troupes : je ne
+avais promis un sur le transport des troupes: je ne
 l'ai pas envoyé, parce que le sujet n'en valait pas la
 
 A mon retour de Pékin, je sortais d'un cauchemar
@@ -53,7 +53,7 @@ diverses qualités, politesse, tolérance, courtoisie que
 l'on attribuait autrefois à la race. De même, peu
 d'hospitalité. Un esprit de corps étroit, des rivalités
 et des jalousies d'arme à arme — telle est la masse,
-ou plutôt, car la masse est inerte et aveugle là
+ou plutôt, car la masse est inerte et aveugle
 comme partout, telle est la direction et l'impulsion
 que suit la masse.
 
@@ -63,23 +63,23 @@ ment de leurs idées (analogues aux nôtres ou diffé-
 rentes), l'intelligence des idées des autres. Et je n'ai
 pas été étonné de trouver ces derniers parmi ceux
 
-qui ont le plus vu et le plus agi. En fait, il y avait
+qui ont le plus et le plus agi. En fait, il y avait
 distinction bien trancliée entre la masse et l'élite,
-hétérogénéité dans l'ensemble .
+hétérogénéité dans l'ensemble.
 
 Au contraire des Français qui se définissent par
 directions opposées, les étrangers se définissent
 généralement par plus ou moins.
 
 Telle fut mon impression en fréquentant des Alle-
-mands : fréquentation d'ailleurs dangereuse pour
+mands: fréquentation d'ailleurs dangereuse pour
 ma santé à cause des beuveries énormes de nos
 voisins d'outre-Vosges. L'héritage idéaliste de la
 vieille Allemagne me parait tout à fait mort et
 enterré. Les Allemands se croient grands philo-
 sophes parce qu'ils disent Prosit! en levant leur
-verre. Militairement ils font grande impression ; il
-ne faut pas trop regarder ; l'esprit mercantile les a
+verre. Militairement ils font grande impression; il
+ne faut pas trop regarder; l'esprit mercantile les a
 bien gagnés depuis trente ans. — Nous avons un ami
 en Allemagne nouvellement arrivé, qui pourra cor-
 roborer mon impression, à en juger par la lettre
@@ -90,7 +90,7 @@ L'Anglais, pris individuellement, est mieux.
 la vie militaire aux Indes et leur pays traverse en ce
 moment une crise qui se reflète un peu dans chaque
 individu. L'abus des sports a éteint souvent leur
-vie intellectuelle. Do même que chez nous, les plus
+vie intellectuelle. même que chez nous, les plus
 intéressants et les mieux raisonnant sont ceux qui
 ont fait campagne.
 
@@ -99,7 +99,7 @@ inspirent ici un dégoût général par leur ivrognerie
 et leur brutalité. Ce sont les pillards les plus enragés
 et les plus féroces (Cf. Blagovestchenk). Ils ont en
 tête leur programme de pillage lorsqu'ils arrivent à
-un village ; les uns doivent aller aux chevaux, les
+un village; les uns doivent aller aux chevaux, les
 autres aux fourrures, etc. Je crois que leur puissance
 militaire est un grand blufl*: la guerre de 1877 le
 
@@ -116,7 +116,7 @@ Quant aux Japonais, je n*en parlerai pas. J'aurais
 aimé approfondir l'état d'àme des vieux comman-
 dants à cheveux blancs, qui Samouraïs autrefois
 avaient porté le double sabre et s'étaient plus ou
-moins ouvert le ventre ; mais je n'ai pu causer
+moins ouvert le ventre; mais je n'ai causer
 qu'avec de jeunes officiers sortis de Polytechnique
 et parlant argot qui manquaient de couleur locale.
 Mais le fond reste. Je me souviens du capitaine S...,
@@ -124,12 +124,12 @@ ancien élève de Polytechnique et de Fontainebleau,
 me montrant le maniement de son sabre à deux
 
 mains, destiné à couper d'un grand coup de revers
-la tête de l'ennemi, et m' expliquant que le « chic »
+la tête de l'ennemi, et expliquant que le « chic »
 était de laisser la tête adhérente au corps par un
 petit morceau de peau, et que dans son pays, on
 s'exerçait sur des fruits.
 
-Tien-Tsin, i3 avril 1901
+Tien-Tsin, avril 1901
 
 Voici longtemps que je ne vous ai envoyé de notes.
 On m'écrit que les premières que je vous ai envoyées
@@ -141,7 +141,7 @@ ques la prise de je ne sais trop quelle ville, qu'il a
 observée de deux jours de marche en arrière.
 
 Depuis quelques semaines, le stationnement et
-l'inaction ont eu de déplorables cfTcts sur les trou-
+l'inaction ont de déplorables cfTcts sur les trou-
 pes. Il se forme des compromissions extraordinaires
 entre les souteneurs et cambrioleurs chinois et les
 troupiers. Ils vont piller, boire et fumer l'opium
@@ -172,16 +172,16 @@ autres griefs, le non paiement de certaines taxes de
 culte, et la résistance que peuvent rencontrer les
 exactions des mandarins, qui sont certaines et
 inouïes. La conviction religieuse est au dernier
-plan : c'est le dernier souci du Chinois.
+plan: c'est le dernier souci du Chinois.
 
 Or, les missionnaires sont-ils des agents d'in-
 fluence européenne? Oui et non. Ils usent de mé-
 thodes européennes, introduisent quelques connais-
-sances pratiques de source européenne : mais ils
+sances pratiques de source européenne: mais ils
 travaillent exclusivement à leur profit. Ils se font
 Chinois, portent la natte, le costume, parlent la
 langue, apprennent à leurs élèves un latin de cui-
-sine invraisemblable, mais point le français : donc
+sine invraisemblable, mais point le français: donc
 leur but n'est pas de développer en Chine l'influence
 
 Ce but, certains le proclament, disant quïls ont été
@@ -197,7 +197,7 @@ aux troupes européennes, se sont montrés excellents
 et disciplinés. Actuellement, ces chrétientés s'arment
 et se fortifient. Certes, les réclamations excessives,
 peut-être même les exactions des Pères ont surexcité
-les Chinois : mais quand les troupes partiront ils
+les Chinois: mais quand les troupes partiront ils
 seront armés. Je me demande s'ils n'ont pas l'inten-
 tion de réaliser la conversion de la Chine par une
 
@@ -207,7 +207,7 @@ paraît avoir été d'abord pacifique, une nation guer-
 rière qui a étonné le monde (en 1867) par une résis-
 tance à l'invasion supérieure peut-être à celle des
 Boers. Qu'adviendrait-il si les missionnaires trans-
-formaient ainsi tout ou partie de la Chine ? J'ai dit
+formaient ainsi tout ou partie de la Chine? J'ai dit
 parfois, en plaisantant, à un Père, qu'à la prochaine
 campagne de Chine nous les trouverions sans doute
 contre nous, à la tête des Chinois. Il ne protestait
@@ -220,7 +220,7 @@ férente à Madagascar, au Soudan, en Chine, en
 Syrie, etc. Je crois que pour apporter une réponse
 motivée aux questions que vous m'avez posées au
 départ, il faut l'impartialité, que j'ai tâché de con-
-server, et le long séjour, que je n'ai pu faire. J'ai
+server, et le long séjour, que je n'ai faire. J'ai
 cherché les avis de ceux qui connaissent le pays, et
 tâché d'éliminer ce que pouvaient leur suggérer
 leurs préjugés ou leurs intérêts. Des gens de bonne
@@ -234,7 +234,7 @@ circonstances et sur le point qui me paraîtra le plus
 Salut et fraternité.
 
 Depuis que ces lettres nous sont parvenues, nous avons
-lu dans les Journaux que les corps expéditionnaires
+dans les Journaux que les corps expéditionnaires
 étaient rassemblés et rembarques. Aussitôt que notre
 ami nous sera revenu, nous lui demanderons tout un
 cahier sur cette expédition. — Ce cahier passera dans

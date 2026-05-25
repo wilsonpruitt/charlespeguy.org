@@ -13,8 +13,8 @@ paraissant vingt fois par an
 ! Les Cahiers de la Quinzaine ont publié
 L'affaire Liebkinecht, dossiers et documents, premier
 cahier de la première série, épuisé
-là consultation internationale des militants socialistes
-= sur l'affaire Dreyfus et la participation des Socialistes
+consultation internationale des militants socialistes
+sur l'affaire Dreyfus et la participation des Socialistes
 au pouvoir en régime bourgeois, enquête ouverte à la
 huitième, onzième cahiers de la première série,
 Lionel Landry. — Courrier de Chine, cinquième
@@ -36,24 +36,24 @@ Tolstoi, — Une lettre inédite, adressée à Romain un franc
 
 Impressions sur la vie japonaise
 
-Je t'envoie l'article sur le Japon. Je l''intitule Impressions sur la vie japonaise. J'entends dire par là que
+Je t'envoie l'article sur le Japon. Je l''intitule Impressions sur la vie japonaise. J'entends dire par que
 certaines remarques sont des impressions personnelles
 plutôt que des vérités objectivement certaines. C'est un
-point de vue sur le Japon : beaucoup de ceux qui connaissent le Japon le voient ainsi; mais nON pas tous; —
+point de vue sur le Japon: beaucoup de ceux qui connaissent le Japon le voient ainsi; mais nON pas tous; —
 par exemple sur le sens de la vie religieuse au Japon les
 opinions et les impressions sont très diverses.
 
-Trois mois de voyage au Japon : c'est comme si on
+Trois mois de voyage au Japon: c'est comme si on
 avait vécu, pendant cent jours trop rapides, une succession cohérente de rêves étranges et charmants. Un
 pays d'Utopie, où, dans une société très différente de
 celle que nous, socialistes, voulons créer, beaucoup des
 souhaits intimes de nos cœurs se trouvent pourtant -
-réalisés : voilà l'impression générale que m'a laissée le
+réalisés: voilà l'impression générale que m'a laissée le
 Japon. Quand on a été là-bas, on garde toute la vie
 quelque regret de n'y plus être. Chez certains la
 nostalgie est telle qu'ils se décident à changer leur
 existence, pour y retourner. Je ne crois pas qu'on
-puisse échapper à cette séduction, quand on a vu le
+puisse échapper à cette séduction, quand on a le
 Japon comme il faut le voir.
 
 Il faut voir le Japon dans un esprit japonais, dans un
@@ -61,14 +61,14 @@ esprit de simplicité. L'esprit bourgeois, l'esprit de vanité mondaine, le beso
 font un obstacle infranchissable à l'intelligence des
 choses et des âmes japonaises. La plupart des voyageurs
 assez riches pour aller au Japon ne sont pas dignes de
-le comprendre : leur vie européenne a mis en eux trop
+le comprendre: leur vie européenne a mis en eux trop
 de besoins et de préjugés qui limitent leur action et
 resserrent leur pensée. Ils ne peuvent vivre que dans
 
 les hôtels anglais des grandes villes; ils nosent se
 hasarder dans les quartiers indigènes; ils voient ce
 que leur interprète veut bien leur montrer. Ce qu'ils
->: découvrent et ce qu'ils décrivent c'est un Japon
+: découvrent et ce qu'ils décrivent c'est un Japon
 truqué, faux, menteur, — corrompu pour eux ou par
 
 11 faut adopter une autre méthode de vie pour acquérir une intelligence un peu délicate du Japon vrai. On
@@ -86,17 +86,17 @@ couloir-balcon, qui fait le tour de la maison. Du côté
 extérieur, ce couloir est tantôt laissé ouvert à l'air et
 au soleil, tantôt protégé par des parois mobiles en
 papier opaque, qu'on peut à volonté tirer ou faire
-disparaître : la nuit seulement on installe des planches,
+disparaître: la nuit seulement on installe des planches,
 qui ferment complètement la maison. A l'intérieur du
 
-| couloir s'ouvrent les chambres : ce qui frappe en une
+couloir s'ouvrent les chambres: ce qui frappe en une
 chambre japonaise, c'est son absolue nudité; il n'y a
-rien, pas un meuble : ni table, ni chaise, ni fauteuil, ni
+rien, pas un meuble: ni table, ni chaise, ni fauteuil, ni
 lit, ni armoire. A terre, des nattes, d'une propreté étincelante; tout autour, des cloisons mobiles, faites de
 papier soutenu par un quadrillage en bois, et glissant
 dans des rainures. Dans le fond de la salle seulement,
-une sorte d'alcôve, le tokonoma, renferme, sur un degré ÿ IMPRESSIONS SUR LA VIE JAPONAISE
-de bois poli, une ou deux œuvres d'art : un vase, une
+une sorte d'alcôve, le tokonoma, renferme, sur un degré IMPRESSIONS SUR LA VIE JAPONAISE
+de bois poli, une ou deux œuvres d'art: un vase, une
 boîte, un encrier, ou une statuette, en bois, en laque, en porcelaine, en ivoire, ou en bronze. Dans le vase se
 trouve un bouquet japonais, fait de quelques branches
 fleuries, d'inégale longueur et de courbure différente,
@@ -113,11 +113,11 @@ bouddhiste, la place sacrée près de laquelle on fait
 asseoir les visiteurs pour les honorer. — En examinant
 cette chambre presque vide, on découvre peu à peu
 bien des détails témoignant d'un effort pour embellir la
-demeure et charmer les yeux : sur le papier des cloisons mobiles, il y a souvent des dessins d'animaux, de
+demeure et charmer les yeux: sur le papier des cloisons mobiles, il y a souvent des dessins d'animaux, de
 plantes, de rochers, d'une grande finesse, tous différents les uns des autres; les Japonais ont une horreur
-légitime de la symétrie. Des trous ayant la forme d'un $
+légitime de la symétrie. Des trous ayant la forme d'un
 doigt permettent de faire mouvoir les cloisons qui
-servent de murs et de portes : ils sont souvent garnis
+servent de murs et de portes: ils sont souvent garnis
 d'une enveloppe de bronze artistiquement travaillée;
 en les regardant de près, on distingue deux cigognes
 qui s'envolent, une tortue, une sauterelle, une tige de
@@ -125,21 +125,21 @@ bambou. — La simplicité de ces chambres toutes nues
 est profondément artistique. Nulle part au monde n'est
 
 mieux appliquée la règle d'or du camarade William
-Morris : « N'ayez chez vous rien que vous ne sachiez
-utile ou que vous ne croyiez beau. » ,
+Morris: « N'ayez chez vous rien que vous ne sachiez
+utile ou que vous ne croyiez beau. »,
 
-* | Dans la chambre japonaise, où ne se trouvent à l'ordinaire que quelques objets de beauté, les meubles
+Dans la chambre japonaise, où ne se trouvent à l'ordinaire que quelques objets de beauté, les meubles
 n'apparaissent que pendant le temps qu'ils sont utiles.
-Un hôte arrive : vite on installe un coussin sur lequel il
-s'agenouillera pour se reposer ; devant lui, s'il fait froid,
+Un hôte arrive: vite on installe un coussin sur lequel il
+s'agenouillera pour se reposer; devant lui, s'il fait froid,
 on place un brasero renfermant de la cendre chaude.
 
 - — Quand vient le moment du repas, on apporte à chacun une petite table laquée, haute de quelques centimètres, sur laquelle se trouvent un grand nombre
 d'assiettes et de bols, en porcelaine ou en laque, munis
-de couvercles ; sur ces assiettes ou dans ces bols ily a
+de couvercles; sur ces assiettes ou dans ces bols ily a
 des soupes d'algues, du poisson cru à la sauce de gingembre, du poisson rôti, du poisson bouilli, une sorte
 de macaroni recouvert de filets d'anguille, des œufs,
-des haricots, des racines de bambou ; la petiteservante,
+des haricots, des racines de bambou; la petiteservante,
 agenouillée devant un baquet de bois plein de riz, en
 remplit de temps à autre les bols des dineurs; ceux-ci,
 avec leurs baguettes de bois, picorent dans les plats,
@@ -148,12 +148,12 @@ boïvent, dans des tasses minuscules, du thé sans lait
 ni sucre, quelquefois un petit verre de saké (alcoo! de
 riz) chaud. — Enfin, quand c'est l'heure de dormir, on
 étend sur le sol quelques épaisses couvertures servant
-de lit; et, s'il ya des moustiques, on pend au plafond
+de lit; et, s'il des moustiques, on pend au plafond
 une moustiquaire de gaze bleu-vert. Au matin, la servante débarrasse la chambre de ces meubles inutiles.
-Pendant ce temps, on va se laver à l'eau froide dans la
+Pendant ce temps, on se laver à l'eau froide dans la
 cour, ou à l'eau chaude dans la salle de bain, que possèdent toutes les maisons japonaises. Le Japonais
 
-| retournera à cette salle trois ou quatre fois par jour
+retournera à cette salle trois ou quatre fois par jour
 
 : prendre dans des cuves de bois des bains d'eau presque
 bouillante. Le peuple japonais est le plus propre du
@@ -164,21 +164,21 @@ villages comme dans les maisons d'anciens seigneurs,
 le même genre d'habitation, d'ameublement, de nourriture. La simplicité de cette vie est vraiment égalitaire.
 Les différences de fortune ou de situation s'indiquent
 
-$ seulement aux dimensions plus ou moins grandes de la
+seulement aux dimensions plus ou moins grandes de la
 maison et du jardin, à la valeur plus ou moins haute
 des œuvres d'art. Les fonctionnaires, qui ont à recevoir
 des Européens,ontune chambre meublée à l'européenne;
 mais le reste de la maison est japonais, et ils y vivent
 à la japonaise. — Les Japonais apprécient infiniment
-la simplicité de leurs mœurs : elle rend possible une
+la simplicité de leurs mœurs: elle rend possible une
 existence insouciante, d'un idéalisme charmant. La
 nourriture est peu coûteuse; la maison se bâtit en
 quelques jours. Il n'est pas nécessaire d'accorder à la
 vie matérielle plus d'importance qu'elle ne mérite. Un
-japonisant de Tokyo me disait avoir vu plus d'un Japonais s'amuser beaucoup au spectacle d'un incendie
-dévorant sa propre maison : il a eu vite fait d'ôter de
+japonisant de Tokyo me disait avoir plus d'un Japonais s'amuser beaucoup au spectacle d'un incendie
+dévorant sa propre maison: il a vite fait d'ôter de
 chez lui les quelques objets de valeur qu'il possède; il
-perd peu à cette aventure ; puis la loi accorde certaines
+perd peu à cette aventure; puis la loi accorde certaines
 faveurs aux incendiés, et l'usage veut que les parents
 et amis leur fassent des présents qui réparent le dommage. — Les Japonais, en même temps qu'ils apprécient cette simplicité de vie pour l'insouciance qu'elle
 rend possible, l'aiment pour la satisfaction qu'elle
@@ -226,37 +226,37 @@ on n'éprouve nul besoin de modifier chaque année
 des formes qu'on juge harmonieuses. Examinés du
 point de vue japonais, les vêtements féminins de nos
 pays apparaissent aussi inconfortables et inélégants
-que les vêtements masculins : le corset de l''Européenne
+que les vêtements masculins: le corset de l''Européenne
 est aussi isjustifiable que la chemise empesée de l'Européen; les diverses garnitures des robes sont inutiles,
-compliquées, par conséquent laides : variables avec la
+compliquées, par conséquent laides: variables avec la
 mode instable, elles ne servent qu'à révéler la fortune
 de celles qui les portent. La mode est une détestable
 institution capitaliste, car elle n'a pour objet que de
 symboliser la distinction des classes; en même temps
 qu'elle est cause d'enlaidissement, elle est créatrice
-de souffrances : la petite ouvrière, portant une robe
+de souffrances: la petite ouvrière, portant une robe
 vieillie, ridicule maintenant puisqu'elle était à la mode
 il y a un an ou deux, souffre d'une souffrance puérile,
 mais réelle, et qui appelle la pitié. Le culte de la
-richesse, principale religion des Européens, et les sentiments de vanité ét de haïne qui en procèdent, contribuent à enlaïidir en Europe le vêtement aussi bien que
+richesse, principale religion des Européens, et les sentiments de vanité de haïne qui en procèdent, contribuent à enlaïidir en Europe le vêtement aussi bien que
 l'habitation.
 
 Quand la curiosité, qui s'adresse d'abord aux choses
-extérieures, s'est satisfaite, elle sé tourne vers les personnes, plus mystérieuses. Voici la première remarque
+extérieures, s'est satisfaite, elle tourne vers les personnes, plus mystérieuses. Voici la première remarque
 
-- qui s'impose au voyageur : les Japonais sont le plus
+- qui s'impose au voyageur: les Japonais sont le plus
 gai peuple du monde. Quelles qualités se cachent sous
 leur air de joie amusée, on ne le devine pas au début.
 Mais on s'intéresse aux distractions populaires par
 lesquelles surtout se manifeste cette bonne humeur
-d'un peuple entier. Distractions d'une extrême simplicité. Les Japonais ignorent la plupart de nos distractions européennes : ils ne s'alcoolisent pas : en trois
+d'un peuple entier. Distractions d'une extrême simplicité. Les Japonais ignorent la plupart de nos distractions européennes: ils ne s'alcoolisent pas: en trois
 sortait d'un bar anglais de la concession européenne
 de Kobé; le respect bouddhiste de toute vie leur interdit
 le plaisir cruel de la chasse; ils n'ont pas de cafésconcerts; la vie mondaïne et les jouissances de vanité
 qui la constituent sont étrangères à l'immense majorité
 des Japonais. Cependant, ce peuple est de tous les
 peuples celui qui paraît prendre la vie le plus gaîment.
-Quelles sont donc ses distractions ?
+Quelles sont donc ses distractions?
 
 D'abord la promenade. C'est le plaisir japonais par
 excellence. Et sans doute on ne saurait imaginer de
@@ -276,7 +276,7 @@ présentent certaines rues de Tokyo, de Nagoya, de
 Kyoto. Par exemple, à Kyoto, il y a foule, le soir, dans
 la rue des théâtres et des bazars; et chacun paraît
 prendre un plaisir extrème au spectacle qu'il a sous les
-yeux. La plupart viennent là en famille; on entoure de
+yeux. La plupart viennent en famille; on entoure de
 soins les grands parents; les petits enfants, vêtus de
 couleurs claires, sont portés sur le dos du père ou de
 la mère, du frère ou de la sœur aînée, et ils s'amusent
@@ -284,11 +284,11 @@ de bon cœur. Des kouroumas (pousse-pousse) fendent
 la foule. De petites geishas (danseuses), dans le costume aux nuances claires qui indique leur profession, -
 se promènent, l'air rieur, et chacun s'amuse à les
 regarder. Des deux côtés de la rue s'ouvrent de petites
-boutiques : leurs lanternes de papier multicolores font
+boutiques: leurs lanternes de papier multicolores font
 d'étranges taches de lumière, comme en un tableau
 d'impressionniste. Les femmes tâtent des étoffes aux
 devantures, marchandent des objets, pour rire. Dans
-des jardins illuminés, on va prendre des ice-creams
+des jardins illuminés, on prendre des ice-creams
 japonaises, faites de glace râpée, de sucre fin et de
 
 Beaucoup de ces promeneurs reviennent des théâtres.
@@ -299,7 +299,7 @@ devant sont piqués des bambous, portant des oriflammes multicolores et des band
 beaux caractères chinois les mérites des acteurs. A
 l'intérieur une foule de gens accroupis sur des nattes,
 
-L fumant leurs petites pipes, mangeant des pamplemousses. La scène est une plaque tournante qui se
+fumant leurs petites pipes, mangeant des pamplemousses. La scène est une plaque tournante qui se
 
 meut à la fin de chaque acte, faisant apparaître, à La
 place de l'ancien décor et des anciens acteurs, les
@@ -315,18 +315,18 @@ paraît pas faiblir.
 La gaîté japonaise se manifeste surtout lors des fêtes
 populaires, qui sont très fréquentes. La ville prend alors
 un aspect nouveau. Par exemple, j'ai assisté à Yokohama
-à la fête annuelle des garçons : ce jour-là, les Japonais
+à la fête annuelle des garçons: ce jour-là, les Japonais
 plantent devant leur maison un mât de bambou portant,
 attachés à son sommet, d'énormes poissons de papier
 aux couleurs étincelantes que le vent gonfle et agite.
 On met autant de poissons qu'il y a de garçons dans la
-maison : les parents expriment ainsile souhaït que leurs
+maison: les parents expriment ainsile souhaït que leurs
 enfants remonteront le cours de la vie malgré les obstacles, comme la carpe remonte les rivières malgré le
 courant. Tous les habitants vont alors sur les collines
 des environs jouir du spectacle bizarre de la ville surmontée de ces singuliers poissons. — Dans chaque ville,
-les fêtes de quartier abondent : des processions se
-déroulent autour d'un temple à l'occasion d'un anniversaire ; les rues sont illuminées et décorées : par exemple, de petits drapeaux multicolores sont suspendus
-entre les maisons ; des lanternes de papier aux couleurs harmonieuses, surmontées de petites ombrelles de
+les fêtes de quartier abondent: des processions se
+déroulent autour d'un temple à l'occasion d'un anniversaire; les rues sont illuminées et décorées: par exemple, de petits drapeaux multicolores sont suspendus
+entre les maisons; des lanternes de papier aux couleurs harmonieuses, surmontées de petites ombrelles de
 papier rouges ou bleues, sont mises devant chaque
 porte; les rues prennent, le soir surtout, un aspect
 
@@ -337,7 +337,7 @@ de beauté, dont tous, riches et pauvres, viennent jouir,
 pendant quelques soirs. — L'abondance des distractions saines à bon marché est un des traits caractéris- tiques de la vie japonaise.
 
 Mais c'est surtout à la campagne que les Japonais
-aiment à se promener. La nature japonaise est délicieuse ; les Japonais la contemplent d'un œil amoureux.
+aiment à se promener. La nature japonaise est délicieuse; les Japonais la contemplent d'un œil amoureux.
 Ils aiment la limpidité bleue de leur mer intérieure, la
 pureté des neiges éternelles de Fouji Yama, le mystère
 des forêts sacrées de Nikko oude Yamada. Ils semblent
@@ -345,55 +345,55 @@ de plus changeant, les nuances fuyantes des choses, la
 mobilité des nuages, les reflets des rayons de lune,
 l'éclat d'une neige récemment tombée. Ils suivent d'un
 œil d'artiste les mouvements d'un animal, d'un oiseau
-par exemple, ou d'un insecte : il n'est pas rare
+par exemple, ou d'un insecte: il n'est pas rare
 de voir des Japonais de situation sociale très inférieure passer de longs moments à admirer des cigognes se promenant parmi les pins et les lanternes de
 pierre d'un jardin public. — Ils savent prendre de
 l'intérêt à des choses qui laissent indifférents les plus
-délicats des Européens : ils font grande attention aux
+délicats des Européens: ils font grande attention aux
 formes des pierres, leur prètent divers degrés de
 beauté. — Mais c'est surtout aux fleurs qu'ils ont une
 particulière dévotion. Les fêtes les plus populaires, les
 véritables fêtes nationales, se célèbrent à l'occasion de
-l'apparition de certaines fleurs : petit fait très significatif, découvrant jusqu'au fond l'âme japonaise, révélant l'exquis sentiment poétique de cette race privilé-
+l'apparition de certaines fleurs: petit fait très significatif, découvrant jusqu'au fond l'âme japonaise, révélant l'exquis sentiment poétique de cette race privilé-
 
-giée. On va en troupes joyeuses, dès le mois de février,
+giée. On en troupes joyeuses, dès le mois de février,
 admirer les fleurs des pruniers, et en respirer l'odeur,
-célébrée par d'antiques chansons; on va voir fleurir les
+célébrée par d'antiques chansons; on voir fleurir les
 - cerisiers au début d'avril, les azalées et les glycines au
-début de mai, les lotus au mois d'août ; en automne c'est
-les feuilles rougies des érables qu'on va contempler ; la
+début de mai, les lotus au mois d'août; en automne c'est
+les feuilles rougies des érables qu'on contempler; la
 première semaine de novembre est celle des chrysanthèmes. A ces divers moments, les Japonais vont en
 . foule à la campagne. Dans les environs des grandes
 villes, tel ou tel village est célèbre pour certaines de ses
-fleurs ; ou bien c'est des jardins publics ou privés ; jardins japonais bien différents des nôtres :'des allées de
-sable ; des pins, des érables; des arbres, des arbresnains, des arbustes, chdisis pour la couleur de leurs
-feuilles ou de leurs fleurs ; un lac, des ruisseaux, des
-ponts ; des rocailles, des lanternes de pierre, de minuscules chapelles shintoïstes ; ces éléments indispensables de tout jardin japonais sont ordonnés suivant des
+fleurs; ou bien c'est des jardins publics ou privés; jardins japonais bien différents des nôtres:'des allées de
+sable; des pins, des érables; des arbres, des arbresnains, des arbustes, chdisis pour la couleur de leurs
+feuilles ou de leurs fleurs; un lac, des ruisseaux, des
+ponts; des rocailles, des lanternes de pierre, de minuscules chapelles shintoïstes; ces éléments indispensables de tout jardin japonais sont ordonnés suivant des
 règles d'une esthétique raffinée, datant du quinzième
 siècle, variable d'ailleurs selon les diverses écoles. Dans
 le jardin d'une maison de thé d'Osaka, un ami japonais À
-me dit : « Dans deux semaines, tout Osaka se réunira
+me dit: « Dans deux semaines, tout Osaka se réunira
 ici, pour regarder au matin s'ouvrir les iris... »
 Souvent, dans un endroit célèbre pour la beauté de
 ses fleurs, ou pour un paysage grandiose, forêt, île, lac,
 ou cascade, s'élève un temple. Les familles japonaises
 aiment à s'y rendre; on emmène toujours les vieux
-grands-parents et les tout petits enfants ; et c'estle plus
+grands-parents et les tout petits enfants; et c'estle plus
 gai des pèlerinages.
-D'abord on va saluer les dieux. Les cailloux étendus devant le temple craquent sous les pas des promepeurs, avertissant ainsi les dieux qu'on vient leur
+D'abord on saluer les dieux. Les cailloux étendus devant le temple craquent sous les pas des promepeurs, avertissant ainsi les dieux qu'on vient leur
 
 rendre visite; les visiteurs tirent une sonnette, claquent des mains, frappant trois ou quatre coups, pour
 appeler les dieux, comme on fait dans les auberges
-pour appeler les servantes ; alors ils leur adressent une
+pour appeler les servantes; alors ils leur adressent une
 courte prière, glissent des aumônes dans les troncs.
-_ Surtout ils visitent le temple, admirant les sculptures
+Surtout ils visitent le temple, admirant les sculptures
 antiques, les laques d'or, les kakémonos. Ensuite ils
 vont tous ensemble, en famille, causer et rire, en des
 maisons de thé voisines du lieu sacré. — Beaucoup de
 ces lieux de pèlerinage sont admirables par la beauté
 combinée des édifices et du paysage. On a bien dit que
 toute conception architecturale japonaise est un
-tableau : les couleurs sont ordonnées harmonieusement,
+tableau: les couleurs sont ordonnées harmonieusement,
 autant que les lignes; le décor naturel a au moins
 autant d'importance que le bâtiment. En général, les
 élégants portiques, en pierre ou en bois laqué, se dressent au-dessus les uns des autres sur une colline; les
@@ -403,20 +403,20 @@ le ciel des pagodes en laque rouge. — Les temples de
 Nikko s'élèvent sur une colline couverte d'arbres merveilleux, arrosée de mille torrents, ceux de Yamada,
 au cœur de mystérieuses forêts. J'aime surtout le temple
 de MiyaJima, sur la côte d'une île montagneuse et
-boisée, couverte de pins et d'érables : l'édifice central,
+boisée, couverte de pins et d'érables: l'édifice central,
 où se trouvent de précieuses peintures anciennes, se
 dresse à la limite même de la terre et de l'eau; le portique principal est bizarrement situé en pleine mer; des
 allées d'innombrables lanternes de pierre conduisent
-aux autres portes ; des daims y circulent, très calmes,
+aux autres portes; des daims y circulent, très calmes,
 que le passage des pèlerins n'effarouche pas; l'air est
 
-d'une extrême limpidité ; la mer est divinement bleue
-de l'autre côté du détroit apparaissent dans l'éloignement des montagnes violettes ; et les voiles de paille,
+d'une extrême limpidité; la mer est divinement bleue
+de l'autre côté du détroit apparaissent dans l'éloignement des montagnes violettes; et les voiles de paille,
 
->: quadrangulaires, des bateaux de pêche étincellent sous
+: quadrangulaires, des bateaux de pêche étincellent sous
 le clair soleil. Pas de paysage plus classiquement japonais que celui de ce célèbre lieu de pèlerinage. — Vienton ici pour rendre hommage aux dieux? ou seulement
 pour admirer les chefs-d'œuvre de l'art humain et le site
-merveilleux ? L'idée religieuse semble n'avoir d'autre
+merveilleux? L'idée religieuse semble n'avoir d'autre
 rôle que d'ajouter à la beauté de la nature plus de
 profondeur et de mystère, plus d'intimité. Le pèlerinage
 japonais est une promenade un peu plus méditative,
@@ -434,8 +434,8 @@ D'où leur vient cette culture, si générale qu'elle semble
 instinctive? D'abord, sans doute, du spectacle des
 objets de beauté qu'ils ont constamment sous les yeux.:
 objets d'art exposés dans le tokonoma, ou objets utiles à
-souvent artistiques : un plateau de laque d'or, dans le
-coin duquel s'envolent des cigognes ; un porte-bouquet
+souvent artistiques: un plateau de laque d'or, dans le
+coin duquel s'envolent des cigognes; un porte-bouquet
 de bronze, adoptant la forme d'une tige de bambou; un
 brüûle-parfum où, sur une fleur en relief, une sauterelle
 est posée... Jusque dans les bazars modernes, on trouve, à des prix minimes, de menus objets dont les motifs
@@ -451,26 +451,26 @@ vie quotidienne et des choses familières. Tant qu'on n'a
 pas passé des heures entières à feuilleter, accroupi sur
 les nattes des petites boutiques, des collections de ces
 estampes anciennes, on ne peut se faire une idée de la
-variété indéfinie de leurs sujets : on y trouve représentés tout le Japon légendaire, tout le Japon historique,
+variété indéfinie de leurs sujets: on y trouve représentés tout le Japon légendaire, tout le Japon historique,
 tout le Japon moderne; le peuple, les paysans, les
 nobles, les acteurs, les prêtres, les femmes de l'aristocratie aux longs visages, les filles du peuple aux
-grosses joues, les danseuses, les courtisanes ; les maisons, les maisons de thé, les théâtres, les temples; le
+grosses joues, les danseuses, les courtisanes; les maisons, les maisons de thé, les théâtres, les temples; le
 Fouji Yama, la campagne, la pluie, la neige, tous les
 animaux, toutes les fleurs. les gravures polychromes
 sont d'un réalisme exact et d'un grand charme poétique
-de fraîches couleurs leur donnent des allures d'aquarelles; le dessin en est étonnamment vivant ; souvent
+de fraîches couleurs leur donnent des allures d'aquarelles; le dessin en est étonnamment vivant; souvent
 quelques lignes bien choisies, quelques traits saisissants suffisent à créer l'impression d'un objet compliqué, d'une attitude, d'un mouvement même. Ces charmantes œuvres d'art ont été vendues à très bas prix,
 quelques sous — comme nos odieuses images d'Épinal
 — elles ont été très vite répandues dans tout le pays,
-surtout parmi la petite bourgeoisie et le peuple : c'est
+surtout parmi la petite bourgeoisie et le peuple: c'est
 les petits marchands, les artisans, les acteurs, les courtisanes, qui firent le succès d'Hokousaï. Pas de maisons
 
-qui ne possèdent de ces estampes ; pas de Japonais qui
+qui ne possèdent de ces estampes; pas de Japonais qui
 n'ait constamment l'occasion de contempler ces exquises
 et fidèles images de la nature et de la vie japonaises
 c'est, pour tous, une éducation esthétique excellente.
-u Même l'Européen le plus cultivé aurait intérêt à la rece-
-. voir : il pourrait au moins y apprendre à apprécier ce
+Même l'Européen le plus cultivé aurait intérêt à la rece-
+. voir: il pourrait au moins y apprendre à apprécier ce
 que les petites choses dans la nature ont de grâce etde
 beauté, — En tout cas, au talent de ces auteurs d'estampes peu coûteuses, au génie encyclopédique d'un
 Hokousaï, le Japon doit le privilège d'un art réaliste
@@ -480,7 +480,7 @@ grand art traditionnel classique, les peintures des
 Écoles de Tosa et de Kano. Plusieurs Japonais des
 hautes classes n'apprécient que cette forme de leur art.
 Je visitai un jour un ancien daimyo, le baron K., type
-curieux de grand seigneur de la période féodale : la révolution de 1868 a passé à côté de lui sans rien modifier
+curieux de grand seigneur de la période féodale: la révolution de 1868 a passé à côté de lui sans rien modifier
 en lui. Dans son salon japonais, tout simple, mais paré
 de quelques étranges et magnifiques œuvres d'art, dans
 sa salle à manger, pendant le déjeuner, servi dans de
@@ -489,17 +489,17 @@ le baron exposa, avec une passion superbe, sa préférence pour l'art du vieux J
 moral, portant à la réflexion, art aristocratique, ne
 traitant que de sujets nobles. Comme j'eus le malheur
 de lui faire dire, par l'interprète, mon admiration pour
-les estampes populaires de l'école réaliste, le vieux seigneur me reprocha cette faute de goût, tout en l'excusant : « Les Européens, dit-il, n'ont derrière eux que
+les estampes populaires de l'école réaliste, le vieux seigneur me reprocha cette faute de goût, tout en l'excusant: « Les Européens, dit-il, n'ont derrière eux que
 deux ou trois siècles d'art; nous, Japonais, avons vingt18
 
-- cinq siècles d'art dans notre passé : c'est tout naturel
+- cinq siècles d'art dans notre passé: c'est tout naturel
 que le goût des Européens ne soit pas aussi formé que
 le nôtre... » Et pour confirmer son dire, il me mena
 visiter le temple d'Horiouji, datant du septième siècle,
 véritable conservatoire des richesses de l'art antique
 japonais. — Cependant, si les scènes de la vie populaire, qu'affectionnent les réalistes, sont intentionneliement laissées de côté par les classiques, il reste cependant que la plupart des sujets peints par les plus grands
 artistes de la plus importante école classique, l'École
-de Kano, sont empruntés à la nature : ce sont des
+de Kano, sont empruntés à la nature: ce sont des
 paysages, d'exquis paysages de lune, de mélancoliques
 paysages de neige; des fleurs, des chrysanthèmes, des
 cerisiers tout roses, des herbes; des animaux, des
@@ -508,7 +508,7 @@ oiseaux surtout, des insectes.
 
 Dans ces œuvres-là encore le Japonais peut s'accoutumer à goûter la beauté de la nature. D'ailleurs beaucoup des thèmes favoris des grands peintres du dixseptième siècle ont été repris par l'estampe populaire et
 même par les arts décoratifs; ce qui a indirectement
-contribué à former le goût du peuple : un motif que
+contribué à former le goût du peuple: un motif que
 nous admirons sur une boîte de laque ou une étoffe
 moderne peut venir d'un grand artiste classique, comme
 Tanyou ou Okio, comme tel autre du grand artiste
@@ -518,11 +518,11 @@ marché des gravures de l'école réaliste a rendu possible
 à tous d'en acquérir, la contemplation des chefsd'œuvre anciens de l'art classique est accessible aussi à
 tout Japonais. La peinture, au Japon, a un rôle déco-
 
-* ratif; elle est conçue comme une dépendance de l'archix
+ratif; elle est conçue comme une dépendance de l'archix
 
-tecture : les grandes œuvres pictoriales du passé
-décorent les temples : tous peuvent aller les y voir,
-tous vont les y voir. Tous les habitants de Kyoto peu6 vent aller dans le prodigieux temple Nishi Honganji
+tecture: les grandes œuvres pictoriales du passé
+décorent les temples: tous peuvent aller les y voir,
+tous vont les y voir. Tous les habitants de Kyoto vent aller dans le prodigieux temple Nishi Honganji
 5 admirer les pins, les cerisiers fleuris, les clématites, les
 cigognes, les oies sauvages de Kano Ryokeï, les bam- -
 bous et les moineaux de Marouyama Ozoui, la chambre
@@ -536,32 +536,32 @@ En essayant de comprendre de quelle nuance particu-
 . lière est la joie intime que révèle la gaîté extérieure des
 Japonais, on trouve comme élément de ce bonheur un
 sentiment très vif de la beauté dans le monde réel et
-dans l'art ; on peut y découvrir encore un élément d'une
-autre nature : le souci de l'élégance à mettre dans les
+dans l'art; on peut y découvrir encore un élément d'une
+autre nature: le souci de l'élégance à mettre dans les
 rapports entre les hommes, une exquise politesse.
 
-La politesse japonaise se traduit d'abord en salutations respectueuses et prolongées : debout, on se courbe
-très bas ; assis ou agenouillé, on se jette à plat ventre,
-le visage contre la natte. On emploie mille formules étranges, amusantes et séduisantes : à l'auberge, pendant le déjeuner, vous dites, par exemple, à la servante
-qui vous sert, agenouillée à côté de vous : « Condescendez [à me donner] de l'honorable thé — ou des …
+La politesse japonaise se traduit d'abord en salutations respectueuses et prolongées: debout, on se courbe
+très bas; assis ou agenouillé, on se jette à plat ventre,
+le visage contre la natte. On emploie mille formules étranges, amusantes et séduisantes: à l'auberge, pendant le déjeuner, vous dites, par exemple, à la servante
+qui vous sert, agenouillée à côté de vous: « Condescendez me donner] de l'honorable thé — ou des …
 honorables gâteaux. » La politesse égalitaire de cet
 Extrême-Orient hiérarchisé contraste de façon surprenante avec la rudesse autoritaire de nos sociétés démocratiques. — Une tradition constamment suivie par tous
 
 introduit de la douceur, et même une sorte de cordialité, dans les détails de la vie quotidienne. Jamais de
-scènes de violence ; presque jamais de disputes; les menaces même s'expriment avec calme. La facilité avec laquelle les Européens se mettent en colère stupéfie les
+scènes de violence; presque jamais de disputes; les menaces même s'expriment avec calme. La facilité avec laquelle les Européens se mettent en colère stupéfie les
 Japonais et leur paraît une marque d'instinctive grossièreté. Certaines habitudes japonaises sont d'une char-
 
 _. mante délicatesse. Par exemple, il y a dans les rapports
-commerciaux de vente et d'achat, une sorte de brutalité choquante au tact des Japonais : alors, de ce conflit
+commerciaux de vente et d'achat, une sorte de brutalité choquante au tact des Japonais: alors, de ce conflit
 d'intérêts, ils cherchent à faire l'occasion d'un échange
 d'amabilités. Pour un service rendu, pour l'achat d'un
-objet, nul ne se sent quitte avec l'argent qu'il donne : il
+objet, nul ne se sent quitte avec l'argent qu'il donne: il
 doit y joindre un remerciment, un geste courtois, un
 sourire. Dans les hôtels japonais du type traditionnel,
-lhôtelier établit la note au plus juste prix ; c'est au
+lhôtelier établit la note au plus juste prix; c'est au
 voyageur d'ajouter selon son bon plaisir un présent de
 thé plus ou moins considérable, c'est-à-dire une somme
-d'argent qui constituera le principal bénéfice de l'hôtelier ; celui-ci, avec mille remerciments, répond au présent de thé par de petits cadeaux, des gâteaux, une
+d'argent qui constituera le principal bénéfice de l'hôtelier; celui-ci, avec mille remerciments, répond au présent de thé par de petits cadeaux, des gâteaux, une
 serviette à grands ramages, un éventail. Au lieu d'être
 simplement un rapport brutal d'achat et de vente, le
 paiement d'une note prend ainsi l'allure joyeuse d'une
@@ -575,20 +575,20 @@ certains cas la politesse japonaise confine à des formes
 très subtiles de la bonté. L'usage qui veut qu'on
 témoigne aux vieillards les plus grands égards, qu'on
 
-cède à tous leurs désirs, est infiniment touchant, et justifié par d'excellentes raisons : c'est peut-être la plus
+cède à tous leurs désirs, est infiniment touchant, et justifié par d'excellentes raisons: c'est peut-être la plus
 douloureuse des tristesses humaines que celle de se
-sentir vieillir, mourir peu à peu, approcher de la mort définitive ; il y a une exquise charité dans l'effort pour apaiser chez les autres cette tristesse-là, pour adoucir les derniers jours des vies qui vont finir bientôt. —
+sentir vieillir, mourir peu à peu, approcher de la mort définitive; il y a une exquise charité dans l'effort pour apaiser chez les autres cette tristesse-là, pour adoucir les derniers jours des vies qui vont finir bientôt. —
 
 Par un autre côté, la politesse japonaise touche à cette
 
 ; qualité très haute, la domination de soi-même. On se maîtrise pour ne pas attrister les autres en leur révé- lant ses souffrances individuelles. Il y a de la résigna- tion, quelquefois de l'héroïsme sous certains sourires.
 
-Un Japonais peut sourire en annonçant la mort d'un être cher : c'est une façon à lui de reconnaître l'inévita- bilité de son malheur, d'empêcher ses amis d'éprouver un trop vif chagrin ; ensuite il s'abandonnera à sa dou- leur, mais seulement dans la solitude, quand il sera bien sûr de ne pas attrister par ses larmes le spectacle de l'Univers, de ne pas diminuer la joie qu'ont les
+Un Japonais peut sourire en annonçant la mort d'un être cher: c'est une façon à lui de reconnaître l'inévita- bilité de son malheur, d'empêcher ses amis d'éprouver un trop vif chagrin; ensuite il s'abandonnera à sa dou- leur, mais seulement dans la solitude, quand il sera bien sûr de ne pas attrister par ses larmes le spectacle de l'Univers, de ne pas diminuer la joie qu'ont les
 
 On pourrait dire, je crois, que le peuple japonais,
 très civilisé, est civilisé autrement que nous — civilisé
 dans le sens de la nature. La morale n'y combat pas la
-nature humaine : elle cherche seulement à l'embellir.
+nature humaine: elle cherche seulement à l'embellir.
 L'idée de péché originel est incompréhensible aux Japonais. La pensée qu'un Dieu ait créé le monde afin de
 faire un choix parmi les hommes et de condamner la
 plupart d'entre eux à des peines éternelles, leur paraît
@@ -597,20 +597,20 @@ les Européens se choquent, à tort. Les Japonais, par
 
 exemple, ignorent certaines formes de notre pudeur
 européenne aussi bien que certaines formes de notre
-impudicité : sont-ils en cela moins moraux que nous ?
-Il est exact, comme on l'a dit, que le nu y est vu
+impudicité: sont-ils en cela moins moraux que nous?
+Il est exact, comme on l'a dit, que le y est
 souvent, sans y être jamais regardé. Une femme peut se
-laisser voir au bain ; mais elle aurait honte de se décolleter en une robe de bal européenne, pour montrer sa
+laisser voir au bain; mais elle aurait honte de se décolleter en une robe de bal européenne, pour montrer sa
 gorge et ses épaules. L'éducation ne tend pas à corri-
 
-_ ger la nature : on ne contraint les enfants que le moins
-possible ; on les laisse pousser librement. La vie est:
+ger la nature: on ne contraint les enfants que le moins
+possible; on les laisse pousser librement. La vie est:
 douce aux bébés japonais, et il semble qu'il y ait de la
-reconnaissance dans leur gaîté : on a dit qu'ils ne pleurent jamais, et il est exact qu'on ne les fait jamais
+reconnaissance dans leur gaîté: on a dit qu'ils ne pleurent jamais, et il est exact qu'on ne les fait jamais
 pleurer, et qu'ils pleurent très rarement.
 
 Cette race a toujours ignoré l'ascétisme, sentiment
-antinaturel ; mais elle à connu l'héroïsme, l'exaltation
+antinaturel; mais elle à connu l'héroïsme, l'exaltation
 dela nature humaine par le sacrifice de la vie individuelle
 étroite à une cause éternelle. Une haute tradition chevaleresque anime l'histoire du vieux Japon féodal, dont
 les légendes prodigieuses exaltent l'âme de tout Japonaïis. Des conteurs professionnels, de véritables aèdes,
@@ -619,14 +619,14 @@ ces souvenirs d'un glorieux passé, légendaire ou historique. — C'est surtout
 que se consacre de nos jours cette faculté de dévoûment poussé jusqu'à l'héroïsme. Nulle part peut-être
 l'individu n'est aussi prêt àse sacrifier, pour que la
 nation soit libre et prospère; nulle part peut-être le
-patriotisme n'est aussi ardent et sincère ; dans ces îles
+patriotisme n'est aussi ardent et sincère; dans ces îles
 isolées du monde, il apparaît respectable et même sympathique.
 
 Les religions n'ont jamais essayé, au Japon, de com-
 
 Félicien Challaye primer ni de déprimer l'humanité. Le vieux shintoïsme
 mêle en un culte mystique la Nature et la Nation. Le
-Bouddhisme même a perdu ici ce qu'il a ailleurs d'antivaturel, du moins dans la secte la plus florissante, ù celle de Shin-Shou : le prêtre de cette secte, ancien
+Bouddhisme même a perdu ici ce qu'il a ailleurs d'antivaturel, du moins dans la secte la plus florissante, ù celle de Shin-Shou: le prêtre de cette secte, ancien
 élève de notre Sorbonne, qui me fit visiter l'admirable
 Nishi Honganji, me résuma en quelques mots cette
 religion simplifiée: religion laïque, justifiée par son
@@ -635,19 +635,19 @@ métaphysiques et les pratiques ascétiques des autres
 
 Sous ces influences traditionnelles, les Japonais en
 sont venus à une attitude morale particulière. Ne pas
-s'isoler ni se révolter ; ne pas se croire seul digne d'attention et d'amour ; respecter tous les hommes ; respecter tous les vivants ; s'intéresser à toutes choses
+s'isoler ni se révolter; ne pas se croire seul digne d'attention et d'amour; respecter tous les hommes; respecter tous les vivants; s'intéresser à toutes choses
 accepter joyeusement tout l'Univers; savoir jouir de
-toutes les beautés de la vie universelle ; savoir mourir;
+toutes les beautés de la vie universelle; savoir mourir;
 savoir, quand il faut, se donner la joie héroïque de se
 sacrifier à une grande réalité supra-individuelle, comme
-la Nation ; — tel je me représente l'idéal moral japonais.
+la Nation; — tel je me représente l'idéal moral japonais.
 à C'est dans le sens de la nature que ces hommes sont
 civilisés. Peut-être découvrons-nous ici la raison profonde de leur étrange faculté d'être heureux.
 A ceux qui célèbrent la vie japonaise, on oppose
 souvent le fait de l'européanisation du Japon. On
 sait vaguement que les Japonais ont une armée, une
 flotte, une industrie à l'européenne, des chemins de fer -
-et des téléphones; on conclut très vite que ces Orientaux ont dû se rendre compte de l'infériorité de leur
+et des téléphones; on conclut très vite que ces Orientaux ont se rendre compte de l'infériorité de leur
 
 genre de vie, et se décider à adopter notre civilisation,
 bonne absolument, rationnellement, pour tous les
@@ -656,7 +656,7 @@ des anachronismes involontaires, qui font sourire: « Le
 Japon d'aujourd'hui, c'est une traduction mal faite. »
 L'idée flatte l'amour-propre européen; mais elle est
 tout à fait fausse. L'européanisation n'est pas super-
-- ficielle : elle est volontairement limitée. Consciemment,
+- ficielle: elle est volontairement limitée. Consciemment,
 les Japonais ont, en certaines matières accepté, en
 d'autres repoussé l'influence de l'Europe: ce qu'ils ont
 conservé et voulu conserver de l'antique civilisation
@@ -678,7 +678,7 @@ doté le pays des moyens de communication nécessaires,
 
 chemins de fer, postes, télégraphes, téléphones; pour
 alimenter ce grand commerce, ils ont créé d'importantes industries à l'européenne, élevé partout des
-: usines ; — et je dois dire que les heures passées dans
+: usines; — et je dois dire que les heures passées dans
 ces usines sont les seuls moments vraiment tristes de
 mon séjour au Japon, tant il m'a été pénible de voir
 comment notre industrialisme attriste, écrase déjà
@@ -694,7 +694,7 @@ européanisé contre l'Europe, pour mieux rester japonais.
 Ainsi l'européanisation du Japon est un hommage
 rendu à l'excellence de la vie japonaise.
 
-En revenant du Japon, j'ai lu les Nouvelles de Nulle
+En revenant du Japon, j'ai les Nouvelles de Nulle
 Part, de William Morris; et j'ai été frappé de voir à
 quel pointles Japonais ressemblent — dans une société
 d'ailleurs fort différente — aux habitants de la cité
@@ -706,7 +706,7 @@ c'est la même douceur de manières, la même cordialité; c'est la même espèc
 lissement de la nature: c'est la même nuance de joie, le
 même intérêt à la vie: « Nous prenons le plus vif plaisir
 à toute la vie du monde... Oh! que j'aime la terre, etles
-Saisons, et l'air ! que j'aime la terre, et tout ce qui naît
+Saisons, et l'air! que j'aime la terre, et tout ce qui naît
 d'elle, et tout ce qui vit! Si je pouvais seulement dire
 ou montrer comme je l'aime! »
 
@@ -714,7 +714,7 @@ Le rêve de William Morris laisse en lui un sentiment
 de courage. De même l'impression que j'ai gardée de
 mon séjour aux îles d'Utopie situées de l'autre côté de
 la terre, rend très optimiste ma vision de l'avenir de
-notre Europe : le souvenir du Japon précise mon espérance socialiste.
+notre Europe: le souvenir du Japon précise mon espérance socialiste.
 
 Nous vivons au sein d'une immense injustice. La
 plupart des hommes peinent du matin au soir, sans
@@ -729,8 +729,8 @@ l'homme heureux.
 Mais tous ceux que fait souffrir l'organisation sociale
 actuelle, finiront bien par découvrir la cause du mal,
 par se décider à agir; et ils révolutionneront, progressivement, la société injuste et laide; et leluxe décroîtra,
-à mesure que diminuera la misère : au terme sera la
-vie simple, pour tous. Depuis que j'ai vu le Japon, j'ai
+à mesure que diminuera la misère: au terme sera la
+vie simple, pour tous. Depuis que j'ai le Japon, j'ai
 la certitude que cette simplicité de vie, en facilitant le
 développement de la culture artistique chez tous et la
 
@@ -752,8 +752,8 @@ la Russie vue de Vladivostock, journal d'un expulsé,
 la Russie vue de la Vistule
 
 . Nos abonnés savent comme il est difficile d'obtenir des
-renseignements exacts de tout ce qui intéresse la barbarie moscovite. Il va de soi que les deux courriers que
-l'on va lire nous ont été envoyés par deux hommes sérieux.
+renseignements exacts de tout ce qui intéresse la barbarie moscovite. Il de soi que les deux courriers que
+l'on lire nous ont été envoyés par deux hommes sérieux.
 J'ajoute que les deux auteurs sont Français.
 Vous m'avez demandé de raconter les quelques jours
 que j'ai passés en Russie. Je n'ai pas ici les notes que
@@ -768,12 +768,12 @@ que les incidents récents de Wreschen viennent seulement de rappeler aux Franç
 Allemagne. Caprivi avait inauguré une politique de
 conciliation vis-à-vis des éléments slaves de l'empire,
 et les Polonais avaient remporté un grand succès aux
-dernières élections : ils étaient dix-neuf députés ; même
+dernières élections: ils étaient dix-neuf députés; même
 la Warmie avait nommé un représentant polonais, et
 lon disait que le mouvement gagnait la Silésie. Les
 nationalistes prussiens hurlaient, disant sans rire que
 la race allemande des provinces de l'Est était en train
-de se dénationaliser. J'avais lu une brochure anonyme,
+de se dénationaliser. J'avais une brochure anonyme,
 intitulée Caveant consules, qui prêchait la croisade
 contre le polonisme. J'avais entendu Treitschke dire
 textuellement en plein cours, à propos de la Posnanie
@@ -784,24 +784,24 @@ les Preussische Jahrbücher de Delbrück cherchaient
 donner que de tristes résultats.
 
 Le moment me semblait donc bien choisi pour visiter
-ces fameuses « marches orientales », où deux races luttaient, l'une au nom de la liberté nationale et des sou-
+ces fameuses « marches orientales où deux races luttaient, l'une au nom de la liberté nationale et des sou-
 
 Edmond Bernus venirs historiques, l'autre au nom de ce qu'elle appelait
 
 « l'intérêt de la civilisation supérieure ».
 
 La première ville que je visitai fut Posen. C'est une
-+ ville triste, sale, avec des fortifications modernes sans cachet et des maisons grises et ternes, en grande partie du dix-septième siècle. De la boue partout, et des enfants en haïllons qui jouent dans cette boue.
+ville triste, sale, avec des fortifications modernes sans cachet et des maisons grises et ternes, en grande partie du dix-septième siècle. De la boue partout, et des enfants en haïllons qui jouent dans cette boue.
 
-Mais l'intérêt de Posen ne consiste ni dans ses monuments, ni dans ses rues ; il est tout entier dans la lutte
+Mais l'intérêt de Posen ne consiste ni dans ses monuments, ni dans ses rues; il est tout entier dans la lutte
 entre les deux nationalités qui divisent ses habitants,
 dans la lutte morale qui se rappelle à vous à chaque
 pas. Il y a deux musées, l'un allemand et l'autre polonais, de même qu'il y a deux théâtres, l'un polonais et
 l'autre allemand. Dans la cathédrale se trouvent les
 
-| statues modernes de deux anciens rois de Pologne. La
+statues modernes de deux anciens rois de Pologne. La
 statue de Mickiewicz est reléguée dans un coin de la
-ville ; elle n'est pas belle, mais j'allai la voir, parce que
+ville; elle n'est pas belle, mais j'allai la voir, parce que
 j'avais conservé un souvenir ému de la lecture de
 Conrad Wallenrod et des Aïeux.
 
@@ -809,7 +809,7 @@ Je vis ensuite Gnesen et sa cathédrale, où ofliciait
 jadis le primat de Pologne. Je vis aussi la campagne,
 où les villages sordides se tassent au milieu des étangs
 et des marais. Partout, dans les manoïrs comme dans
-les fermes, je fus frappé de trois choses : d'abord de
+les fermes, je fus frappé de trois choses: d'abord de
 la saleté, qui est extraordinaire; puis de l'hospitalité, qui
 est non moins extraordinaire, surtout pour quelqu'un
 qui vient de France; enfin de l'attachement à la Pologne, de la persistance du sentiment national.
@@ -831,9 +831,9 @@ ces colons envoyés par l'État sur des terres achetées
 des gens sérieux et honnêtes, mais qui parlaient toujours avec un mépris profond de la race polonaise. Cela
 me rappelait absolument la manière dont les Anglais
 parlent des Irlandais. Je ne pouvais m'empêcher de
-penser au personnage de Freytag—dans Doit et Avoir —,
+penser au personnage de Freytag—dans Doit et Avoir
 qui, lui aussi, est colon dans ces contrées et qui dit
-fièrement : « Je suis ici comme l'un des conquérants, é qui par leur libre travail et leur civilisation ont su enlever à une race plus faible la domination sur ce sol. » Et
+fièrement: « Je suis ici comme l'un des conquérants, é qui par leur libre travail et leur civilisation ont enlever à une race plus faible la domination sur ce sol. » Et
 je songeais aussi à nos conquêtes coloniales. La civilisation doit être une bien belle chose, pour que ce mot
 suflise à reléguer dans l'ombre ceux de droit et de liberté.
 
@@ -841,7 +841,7 @@ Après avoir flâné quelques jours, j'arrivai un soir
 dans la petite ville de Kruswicze, dont les Allemands
 ont germanisé le nom en « Kruschwitz ». C'est un joli
 bourg, assez près de la frontière. Une vieille tour,
-appelée « Tour aux souris », à cause d'une antique
+appelée « Tour aux souris à cause d'une antique
 légende relative aux Piasts, s'y mire dans le lac de
 
 Dans cette région de Cujavie, les représentants du
@@ -852,11 +852,11 @@ Polonais, originaire de Galicie. Je couchai dans un lit
 
 dont les draps n'avaient pas été changés depuis qu'un
 hôte de la veille y avait reposé.
-Be lendemain, je voulus faire le tour du lac de Goplo.
+lendemain, je voulus faire le tour du lac de Goplo.
 . Le fils de mon hôte, garçon d'environ quatorze ans,
 s'offrit pour me servir de guide. Comme il parlait couramment le polonais, j'acceptai avec plaisir, et nous
 nous mîmes en route. Parun beau soleil de printemps,
-cette contrée plate ne manque pas de charme. Çà et là,
+cette contrée plate ne manque pas de charme. et là,
 le long de la nappe bleue du lac, des grèves de sable
 ou bien des roseaux frémissants; parfois même un
 groupe de bouleaux ou de pins. Les alouettes chantaient partout. Trois ou quatre fois des lièvres partirent
@@ -871,7 +871,7 @@ Vers trois heures de l'après-midi, nous étions arrivés
 à la frontière russo-allemande, signalée par un poteau
 et par une sorte de sentier en terre battue. Je regardai
 le pays des oukases, qui se présentait à moi comme la
-continuation de la plaine polonaise : des terres labourées à perte de vue, au-dessus desquelles les alouettes,
+continuation de la plaine polonaise: des terres labourées à perte de vue, au-dessus desquelles les alouettes,
 qui n'ont pas besoin de passeports, montaient en poussant leurs cris de joie, tout comme en Allemagne. Je
 remarquai en même temps des monticules réguliers,
 recouverts d'herbes et espacés de distance en distance
@@ -893,7 +893,7 @@ que c'était un Polonais et qu'il le gardait prisonnier. Je
 lui offris une pièce de deux marks, mais il réclama des
 À kopeks, que je n'avais pas. Cela ne me donna pas une
 haute idée de son intelligence, mais cela même compliquait le cas. Alors je dis à mon compagnon de se
-sauver, tandis que je causerais avec le soldat. Cependant celui-ci était sur ses gardes ; il arma son fusil, et .
+sauver, tandis que je causerais avec le soldat. Cependant celui-ci était sur ses gardes; il arma son fusil, et.
 sitôt que le garçon se mit à courir, il le mit en joue. Le
 guide s'arrèêta et le soldat tira son coup en l'air. À ce
 signal, deux cavaliers, cachés derrière un tertre voisin,
@@ -917,12 +917,12 @@ prit nos montres, nos couteaux et nos mouchoirs;
 chaque objet échut à un soldat.
 
 Je dois dire que pour le resteils ne se montrèrent point
-méchants ; ils me laissèrent mon argent, mon portefeuille et ma carte, devant laquelle ils s'extasièrent
+méchants; ils me laissèrent mon argent, mon portefeuille et ma carte, devant laquelle ils s'extasièrent
 comme devant une curiosité extraordinaire. Puis ils
 nous firent à leur façon les honneurs du poste; ils nous
 l'une représentait un combat contre des Turcs et l'autre
 la tête de Nicolas I®. L'intérieur du poste était du reste
-extrêmement simple : des couchettes sur deux rangs
+extrêmement simple: des couchettes sur deux rangs
 dans un coin une image sainte, devant laquelle brûlait
 une mèche dans un verre; les deux images patriotiques ornaient les parois en planches goudronnées. Le
 sous-officier occupait une petite chambre à côté du
@@ -943,18 +943,18 @@ n'ai conservé de cette nuit que le souvenir des ronflements et de l'horrible od
 
 Le lendemain, dès cinq heures, on nous dit que nous
 
-| allions partir et qu'on nous mènerait devant unoflicier. ,
+allions partir et qu'on nous mènerait devant unoflicier.,
 Nous étions pleins d'espoir et je considérais tout cela
-comme une excellente plaisanterie. Quatre soldats ©
+comme une excellente plaisanterie. Quatre soldats
 — dont celui qui nous avait pris — nous accompagnèrent, la baïonnette au fusil.
 
 Nous marchâmes une bonne heure à travers les
 terres labourées, jusqu'à ce que nous fussions arrivés
 devant une nouvelle baraque, absolument semblable à
 
-‘ celle dont nous venions. Là, notre cortège s'augmenta
+celle dont nous venions. Là, notre cortège s'augmenta
 de trois paysans et de deux femmes, qui avaient été
-_pris la nuit, au moment où ils voulaient passer la frontière sans passeport. Ces pauvres gens voulaient émigrer en Amérique et n'avaient pu obtenir l'autorisation
+_pris la nuit, au moment où ils voulaient passer la frontière sans passeport. Ces pauvres gens voulaient émigrer en Amérique et n'avaient obtenir l'autorisation
 nécessaire. Ils portaient tout leur avoir en paquets sur
 leur dos, et avaient l'air fatigué et tristement résigné.
 Nous continuâmes à marcher. Une femme s'arrêta; on
@@ -984,14 +984,14 @@ baraquements. Son ordonnance était en train de faire
 cuire le repas. J'avais préparé, à l'aide de mon compagnon, quelques phrases en polonais pour expliquer notre
 aventure et protester contre notre arrestation. Mais je
 n'eus pas l'occasion de m'en servir, car le capitaine
-m'arrêta aux premiers mots et nous défendit sévèrement de parler. Il ne nous adressa aucune question ; il
+m'arrêta aux premiers mots et nous défendit sévèrement de parler. Il ne nous adressa aucune question; il
 se contenta de nous faire mettre complètement nus et
 de faire fouiller nos vêtements par son ordonnance.
 J'avais heureusement déchiré, la veille, quelques notes
-de voyage qui auraient pu me nuire. Le capitaine examina mon portefeuille, compta mon argent, étudia assez !
+de voyage qui auraient me nuire. Le capitaine examina mon portefeuille, compta mon argent, étudia assez!
 longtemps ma carte et fit un paquet du tout, qu'il scella
 et remit au soldat qui nous avait arrêtés. Puis il s'assit
-et écrivit un long rapport. J'ai su plus tard que nous
+et écrivit un long rapport. J'ai plus tard que nous
 étions considérés comme espions, surtout à cause de
 ma carte, qui n'était pourtant qu'une carte allemande
 de la province de Posen, comprenant en outre un morceau de la frontière russe.
@@ -999,10 +999,10 @@ de la province de Posen, comprenant en outre un morceau de la frontière russe.
 Toujours sans nous adresser la parole, l'officier nous
 remit aux quatre soldats qui nous avaient accompa-
 
-k gnés, et nous recommençâmes à marcher, sans savoir
-s où nous allions. Cette fois, j'étais beaucoup moins ras-
-| suré sur l'issue de notre aventure.
-| N'ayant rien mangé depuis vingt-quatre heures, nous
+gnés, et nous recommençâmes à marcher, sans savoir
+où nous allions. Cette fois, j'étais beaucoup moins ras-
+suré sur l'issue de notre aventure.
+N'ayant rien mangé depuis vingt-quatre heures, nous
 commencions aussi à avoir terriblement faim. A midi,
 nous arrivämes dans un gros village, du nom de « Brunislaw ». On nous mena de suite chez le natchelnik.
 C'était un petit homme en uniforme, les cheveux en
@@ -1012,28 +1012,28 @@ Nicolas I”. Le petit homme nous fit asseoir; puis il se
 piongea dans la lecture du rapport, interrogea le soldat
 qui nous avait arrêtés, et fouilla minutieusement mon
 portefeuille. Il en retira ma carte d'étudiant et me dit,
-< d'abord en allemand, puis en polonais : « Ah! vous êtes
-étudiant; nous n'aimons pas les étudiants ! » — A quoi
+d'abord en allemand, puis en polonais: « Ah! vous êtes
+étudiant; nous n'aimons pas les étudiants! » — A quoi
 je répondis que, n'étant pas Russe, cela n'était bien
-égal. — « Et où avez-vous étudié ? » — « A Bâle, à Paris
-et à Berlin. » — « A Paris? Il y a beaucoup d'anarchistes à Paris, n'est-ce pas ? » — Je voyais bien où il -
+égal. — « Et où avez-vous étudié? » — « A Bâle, à Paris
+et à Berlin. » — « A Paris? Il y a beaucoup d'anarchistes à Paris, n'est-ce pas? » — Je voyais bien où il -
 voulait en venir, et je dis qu'il y en avait sans doute à
 . Paris comme dans toutes les grandes villes. Alors le
 petit homme se leva, me regarda dans les yeux et dit
-brusquement: « Tu es un anarchiste ! » Ce « tu » me sembla de mauvais augure. Je me contentai cependant de
+brusquement: « Tu es un anarchiste! » Ce « tu » me sembla de mauvais augure. Je me contentai cependant de
 lever les épaules. Il n'insista pas, se remit à explorer
 mon portefeuille, se fit traduire mon acte de naissance,
 et tira une coupure du Temps contenant les noms des
 — « Pourquoi avez-vous découpé cela? » — « Parce
-| que je tenais à savoir les noms de tous les ministres
-français. »—« On ne doit pas s'occuper de ces choses »,
+que je tenais à savoir les noms de tous les ministres
+français. On ne doit pas s'occuper de ces choses
 
 me dit-il sévèrement. J'ai toujours trouvé ce mot très.
 typique. Puis le bureaucrate tira victorieusement de
 . xmuon inépuisable portefeuille une carte de visite, qui
 m'avait servi une fois pour un jeu de société et où se
 trouvaient gribouillées des questions et des réponses.
-sur n'importe quoi ; par hasard je l'avais conservée.
+sur n'importe quoi; par hasard je l'avais conservée.
 — « Qu'est-ce que cela? » dit-il en éssayant de
 déchiffrer les mots écrits au crayon et à demi effacés.
 Je cherchai à lui expliquer que c'était un jeu, avec peu
@@ -1046,7 +1046,7 @@ soldat comme prime, fit un paquet scellé du dossier, et
 se montra aussi doux et poli qu'il avait été brusque
 jusque-là. Il poussa l'amabilité jusqu'à m'offrir une cigarette et m'expliqua qu'il allait nous faire conduire à la
 frontière par des soldats. Je n'ai jamais compris sa
-- conduite, car j'ai eu plus tard connaissance de son
+- conduite, car j'ai plus tard connaissance de son
 rapport, où il déclarait que j'étais, non plus un espion,
 mais un anarchiste polonais, et que je feignais habilement de parler très incorrectement la langue polonaise. Mais alors je ne savais rien de cela, et j'étais.
 tout à la joie de voir nos tribulations terminées.
@@ -1062,7 +1062,7 @@ portaient une sorte de caftan noir et avaient des
 mèches de cheveux qui tombaient en tire-bouchons de
 ‘chaque côté du front. Tout ce monde hurlaït, piaillaïit à
 tort et à travers, nous accablant de questions ou
-criant : « Au cachot! au cachot! » Ces paroles chari-
+criant: « Au cachot! au cachot! » Ces paroles chari-
 . tables nous semblèrent très peu réconfortantes. Poussés
 par cette cohue et toujours accompagnés par nos soldats, nous entrâmes chez un fonctionnaire, dont j'ignore.
 le titre et les attributions, car il ne portait pas d'uniforme. Là, devant tous les Israélites, entrés pêle-mêle
@@ -1072,22 +1072,22 @@ Puis un geôlier crasseux nous introduisit dans un
 cachot infect, où se trouvait déjà un paysan condamné
 pour coups et blessures, comme il nous l'apprit en
 riant. Au bout d'une heure, on nous mit dans une autre
-cellule ; nous étions seuls, mais le local était tout aussi
+cellule; nous étions seuls, mais le local était tout aussi
 sale que le précédent. Une sorte de tréteau de bois
 servait de couche; une couverture grouillant de vermine
 complétait l'installation. C'est ainsi que nous passâmes
-la nuit, sans avoir mangé de toute la journée. Nous ,
+la nuit, sans avoir mangé de toute la journée. Nous,
 dormimes cependant, car nous étions très fatigués.
 
 Le lendemain, dès six heures, un char et deux soldats nous attendaient. Mon petit compagnon se trouvait mal. Heureusement qu'au moment où nous allions
 partir, un paysan arriva en courant et nous remit un
 gros pain et des saucisses. Je n'eus même pas le temps
-de le remercier, car il s'enfuit immédiatement, et nous $
+de le remercier, car il s'enfuit immédiatement, et nous
 partimes. Un des soldats nous apprit alors que nous
 
 étions dirigés sur Plock. Je ne parlerai pas de ce
 voyage, parce que ce fut une série monotone des mêmes
-événements : cahots et heurts, embourbement du char,
+événements: cahots et heurts, embourbement du char,
 
 ; arrêts dans quelques villages tristes et boueux, où les
 soldats buvaient de l'eau-de-vie. Dès lors, on nous
@@ -1102,10 +1102,10 @@ nous dit que nous étions bel et bien condamnés « administrativement » à six
 parlai de faire venir des renseignements et de m'adresser au consul à Varsovie. Il me répondit poliment et
 froidement que c'était trop tard, que nous étions
 
-$ condamnés et que cela ne regardait en rien le consul.
+condamnés et que cela ne regardait en rien le consul.
 Il nous refusa aussi la permission d'écrire à nos fa- milles. Il voulut bien cependant ne pas nous mettre dans le même cachot que tous les autres prisonniers.
 
-Nous eùmes donc notre cellule spéciale, ce qui con- stituait un immense avantage. En effet, après notre libération, j'ai pu visiter les autres cellules, et j'ai été indigné de ce que je vis. Elles sont faites pour vingt ou vingt-cinq détenus, et on y entasse jusqu'à quarante prisonniers, hommes et femmes ensemble.
+Nous eùmes donc notre cellule spéciale, ce qui con- stituait un immense avantage. En effet, après notre libération, j'ai visiter les autres cellules, et j'ai été indigné de ce que je vis. Elles sont faites pour vingt ou vingt-cinq détenus, et on y entasse jusqu'à quarante prisonniers, hommes et femmes ensemble.
 
 Les malheureux n'ont pas toujours la place de se
 
@@ -1117,14 +1117,14 @@ empêchent l'air et la lumière de pénétrer suflisamment.
 La cuve aux immondices contribue à rendre l'atmosphère absolument fétide.
 Notre cellule était au contraire assez grande, et nous
 avions des paillasses pour dormir; nous avions même
-un escabeau à notre disposition ; la fenêtre était grillée,
+un escabeau à notre disposition; la fenêtre était grillée,
 mais donnait de plain-pied sur la cour. Ce qu'il y avait
 de plus pénible, c'était la vermine. Dès la première
 nuit, nous fûmes couverts de puces et de poux, et nous À
 eûmes à subir les piqûres des punaises. Nous ne pouvions pas nous laver, car pendant tout le temps que
 nous passâmes en prison, on nous refusa l'eau.
 
-Le lendemain matin, le geôlier nous ramena devant Rs
+Le lendemain matin, le geôlier nous ramena devant
 le juge. Nous dûmes attendre qu'il eût terminé l'affaire
 d'un habitant de Riga, qui était rentré en Russie avec
 un passeport périmé; il en eut pour un mois de prison.
@@ -1134,7 +1134,7 @@ m'embrouillais dans les noms des villages polonais
 que nous avions traversés avant notre arrestation, on me trouva en contradiction avec mon jeune guide, et
 un des scribes, qui parlait l'allemand et servait de
 temps en temps d'interprète, se frotta les mains en
-disant : « Il ment, il ment! »
+disant: « Il ment, il ment! »
 
 On nous renvoya, sans nous dire autre chose; mais
 avant de quitter la salle, nous fûmes témoins d'une
@@ -1168,25 +1168,25 @@ ou bien nous nous racontions des histoires. Mais l'intérêt principal consistai
 lorsqu'ils allaient dans la cour, et à causer avec eux,
 quand c'était possible.
 
-1 y avait quatre gardiens dans la prison ; aucun
+1 y avait quatre gardiens dans la prison; aucun
 d'entre eux n'avait d'uniforme, mais tous portaient un
-sabre en bandoulière. Nous n'avons jamais eu affaire
+sabre en bandoulière. Nous n'avons jamais affaire
 qu'à deux d'entre eux. L'un était un petit russe très
 vif, qui se montrait cassant, parfois grossier envers
 nous. L'autre était un grand gaillard sec et osseux, de
 
 caractère doux et communicatif. C'était un Polonais,
 qui avait passé à l'orthodoxie officielle pour gagner sa
-vie ; mais il était resté Polonais et catholique dans son
-âme. Il nous disait bien souvent : « Les Polonais sont
+vie; mais il était resté Polonais et catholique dans son
+âme. Il nous disait bien souvent: « Les Polonais sont
 bons et les Russes sont méchants. » Surtout il parlait
 avec une sorte de colère, mêlée de terreur, du général
 Hourko, l'ancien gouverneur de Pologne. Sa culture
-était naturellement fort rudimentaire ; il ne savait ni
+était naturellement fort rudimentaire; il ne savait ni
 lire ni écrire, etl'idée qu'il se faisait du monde extérieur
 nous amusa souvent. Un jour il me demanda à quelle
 religion appartenaient les habitants de Paris. Je lui
-répondis que la majorité pratiquait la religion catholique. « Mais alors, dit-il, ils parlent polonais ? » J'eus
+répondis que la majorité pratiquait la religion catholique. « Mais alors, dit-il, ils parlent polonais? » J'eus
 beaucoup de peine à lui faire comprendre qu'ils parlaient une autre langue. Pour lui, catholique signifiait
 polonais, de même qu'orthodoxe était l'équivalent de
 russe et protestant de prussien.
@@ -1203,15 +1203,15 @@ que ce fonctionnaire avait déjà fait envoyer un geôlier
 Nous pouvions aussi voir de temps à autre quelques
 personnes qui n'appartenaient pas à la prison. C'était
 d'abord un petit employé, qui passait matin et soir par
-la cour ; il nous souhaitait gentiment le bonjour, et plusieurs fois il nous jeta en passant un petit pain et des
+la cour; il nous souhaitait gentiment le bonjour, et plusieurs fois il nous jeta en passant un petit pain et des
 cigarettes. Comme nous n'avions pas d'allumettes,
 
 c'étaient toujours les gardiens qui fumaient nos cigarettes. Il y avait aussi la servante d'un fonctionnaire,
 dont la maison donnait sur la cour. Les gardiens se
-= permettaient avec elle toutes sortes defamiliarités. Une
+permettaient avec elle toutes sortes defamiliarités. Une
 fois, pour s'amuser, elle en enferma un dans une cellule
-qu'il balayait ; il fut une bonne demi-heure à tempêter,
-avant qu'un de ses collègues le délivrât. Enfin, presque .
+qu'il balayait; il fut une bonne demi-heure à tempêter,
+avant qu'un de ses collègues le délivrât. Enfin, presque.
 chaque jour, une fillette juive se promenait dans la
 cour, tenant dans ses bras son petit frère, pauvre bébé
 couvert de croûtes, qu'elle nous faisait naïvement admirer. Cette petite fille avait une singulière histoire, que
@@ -1223,32 +1223,32 @@ après, il commit l'imprudence de revenir en Russie, où
 il fut immédiatement arrêté. Il passa trois mois dans
 notre prison, puis fut condamné à quelques années de
 Sibérie. Sa femme obtint l'autorisation de le suivre
-‘ mais sa fille et un bébé restèrent à Nieszawa, où la communauté juive de la ville fournissait à leur entretien.
-La prison de Nieszawa est une prison d'étape ; il est
-rare qu'on y reste longtemps : on passe devant le juge,
+mais sa fille et un bébé restèrent à Nieszawa, où la communauté juive de la ville fournissait à leur entretien.
+La prison de Nieszawa est une prison d'étape; il est
+rare qu'on y reste longtemps: on passe devant le juge,
 puis on est envoyé ailleurs, dans l'intérieur du pays.
 La plupart des prisonniers ne passaient qu'une nuit
 dans la prison et repartaient le lendemain. Une fois, je
-vis de Ja cour, par la porte ouverte, un convoi d'une
+vis de cour, par la porte ouverte, un convoi d'une
 quarantaine de prisonniers qui arrivaient, escortés par
 des soldats. Plusieurs hommes avaient les mains attachées.
 Nous ne connaïissions naturellement que les prison46
 
 niers qui restaient plus longtemps. Je me souviens très
-bien de quelques types. Il y avait entre autres un ,
+bien de quelques types. Il y avait entre autres un,
 homme dans la force de l'âge, qui était de la ville
 même et avait à purger un an de prison pour avoir -
 - volé de la viande. Il avait l'air absolument indifférent et passait son temps de cour à jouer avec des cailloux.
 Sa femme avait le droit de le nourrir et lui apportait
 chaque jour une grande écuelle de soupe, dans laquelle
 nageaient des quartiers de pommes de terre. Je lai
-souvent vu partager sa pitance avec d'autres prisonniers moins fortunés. Par contre, il refusait obstinément d'entrer en conversation avec nous. Du reste, plusieurs détenus nous montraient une antipathie très
+souvent partager sa pitance avec d'autres prisonniers moins fortunés. Par contre, il refusait obstinément d'entrer en conversation avec nous. Du reste, plusieurs détenus nous montraient une antipathie très
 visible. Etaït-ce notre qualité d'étrangers ou notre
 situation privilégiée dans une cellule à part qui nous
-valait cette hostilité ? Je ne sais. Un jeune et vigoureux
+valait cette hostilité? Je ne sais. Un jeune et vigoureux
 paysan, vêtu d'un gilet rouge, ne manquait jamais de
 nous lancer des injures, lorsqu'il passait devant notre
-fenêtre. C'était un beau type de paysan polonais ; il
+fenêtre. C'était un beau type de paysan polonais; il
 s'était fait pincer pour la seconde fois, en cherchant à
 passer la frontière sans passeport pour émigrer en
 
@@ -1257,7 +1257,7 @@ nous appelions le « philosophe ». C'était un homme
 d'une cinquantaine d'années, qui se tenait toujours seul
 loin des autres, dans un coin au soleil. Il restait presque absolument immobile pendant tout le temps qu'il
 passait dans la cour. Sa barbe grisonnante était couverte de poux, qu'on voyait fort bien, lorsqu'il passait
-pour réintégrer sa cellule ; cela n'avait du reste pas
+pour réintégrer sa cellule; cela n'avait du reste pas
 l'air de beaucoup l'incommoder.
 D'autres détenus éveillaient plus particulièrement
 
@@ -1274,7 +1274,7 @@ avait franchi la frontière russe. Lorsqu'on voulut les
 arrêter, ils eurent peur et s'enfuirent. Ses deux amis
 parvinrent à repasser la frontière, mais lui fut rejoint
 par un soldat, qui lui asséna un coup de crosse sur la
-tête ; il tomba, et le soldat étant tombé sur lui, le mordit de telle façon, que le pouce de la main gauche fut
+tête; il tomba, et le soldat étant tombé sur lui, le mordit de telle façon, que le pouce de la main gauche fut
 presque détaché. Naturellement la brute militaire
 déclara, pour se justifier, que sa victime avait résisté,
 ce qui aggrava le cas du malheureux.
@@ -1302,15 +1302,15 @@ qui ne parlait que l'anglais et le lithuanien. Nous pûmes
 causer quelques instants en anglais. Cet homme avait
 été chauffeur aux États-Unis et revenait dans sa patrie
 avec un petit pécule. A la frontière, il fut arrêté, parce
-qu'il portait sur lui un livre prohibé par la censure, .
+qu'il portait sur lui un livre prohibé par la censure,.
 qu'on lui avait donné en Allemagne. Le lendemain, le
 malheureux partait avec d'autres prisonniers dans la
 direction de Plock.
 
-Voilà ce que j'ai vu de plus caractéristique pendant
+Voilà ce que j'ai de plus caractéristique pendant
 mon séjour forcé à Nieszawa. Si une prison russe est
 telle en pleine Pologne, non loin de la frontière, que
-doivent être celles de l'intérieur ?
+doivent être celles de l'intérieur?
 
 Je serai bref ausujet de notre libération. Le troisième
 jour que nous étions en prison, arriva le père de mon
@@ -1325,29 +1325,29 @@ et m'offrit même une cigarette, ce que je considérai
 comme un signe favorable. Il nous annonça qu'un télégramme de Varsovie ordonnait notre élargissement.
 Toutefois, ajoutait-il, il y avait des formalités à remplir, et nous ne repartirions que le soir; mais en attendant nous étions libres de circuler dans la ville. Le
 scribe qui parlait allemand, le même qui me traitait
-gaillardement de menteur, ajouta cette phrase sentencieuse : « Chez nous la justice est lente, maïs elle est
-“ sûre. » La première partie de ce dogme juridique est
+gaillardement de menteur, ajouta cette phrase sentencieuse: « Chez nous la justice est lente, maïs elle est
+sûre. » La première partie de ce dogme juridique est
 incontestable; je reste sceptique quant à la seconde.
 Nous profitâmes de notre liberté provisoire pour aller
 errer sur les bords de la Vistule et sur une hauteur surmontée d'un moulin à vent, d'où l'on avait une vue
 étendue sur la plaine mélancolique. Notre geôlier polonais nous offrit du thé chez lui. A cette occasion, il me
 montra une image banale représentant des chasseurs
 en habits rouges, et il me dit en désignant un homme
-joufflu, qui portait un cor en sautoir : (C'est Poniatowski, le meilleur de nos anciens rois. » Je n'eus pas
+joufflu, qui portait un cor en sautoir: (C'est Poniatowski, le meilleur de nos anciens rois. » Je n'eus pas
 le courage de le détromper.—Le soir, nous partimes en
 char avec un gardien pour une station, dont j'ai oublié
 le nom. De là, le chemin de fer nous mena à Alexandrowo, où il fallut encore courir chez un fonctionnaire
 à uniforme, pour faire signer des papiers. A la gare,
 des gendarmes et un inspecteur nous demandèrent trois
-x fois notre passeport, que le gardien exhibaït avechumi-
-| lité. S'il n'est pas facile d'entrer en Russie, il est encore
+fois notre passeport, que le gardien exhibaït avechumi-
+lité. S'il n'est pas facile d'entrer en Russie, il est encore
 plus difficile d'en sortir. Enfin le train partit; nous
 arrivâmes dans la nuit à Thorn, en territoire prussien.
-Mon portefeuille et ma carte, qui avaient eu l'honneur d'être mis jusque sous les yeux du comte Schouwaloff, alors gouverneur à Varsovie, me furent rendus
+Mon portefeuille et ma carte, qui avaient l'honneur d'être mis jusque sous les yeux du comte Schouwaloff, alors gouverneur à Varsovie, me furent rendus
 un mois après par un agent de police berlinois. Quant
 à l'argent, le gouvernement russe le garda « pour couvrir les frais que nous lui avions occasionnés ».
 
-Les journaux français ont tous parlé, dans les deriers jours d'avril, de troubles qui ont eu lieu en Fin4 lande, en particulier à Helsingfors les 17 et 18 avril.
+Les journaux français ont tous parlé, dans les deriers jours d'avril, de troubles qui ont lieu en lande, en particulier à Helsingfors les 17 et 18 avril.
 Ces démonstrations constituent le dernier chapitre — le
 dernier jusqu'à ce jour — de la lutte soutenue par la Finlande contre le despotisme russe. J'avais pensé d'abord
 les décrire à leur place, c'est-à-dire dans l'exposé de
@@ -1361,9 +1361,9 @@ dépêches publiées en France, à une ou deux exceptions
 près — je citerai entre autres l'article du Français du
 28 avril, celui de l'Européen du 27 avril et le mien
 dans Le Mouvement socialiste du 26 avril —trahissentune
-source commune : le récit fait par le journal du gouverneur-général de Finlande. En outre, quelques articles,
+source commune: le récit fait par le journal du gouverneur-général de Finlande. En outre, quelques articles,
 parus surtout en province, traitent de la question finlandaise en général, à l'occasion des troubles actuels
-| et on sent qu'eux aussi sont inspirés par le gouvernement russe, qui cherche sans doute à profiter du regain
+et on sent qu'eux aussi sont inspirés par le gouvernement russe, qui cherche sans doute à profiter du regain
 d'attention provoqué par ces manifestations pour
 tromper l'opinion en France. Il faut essayer de s'y
 
@@ -1375,20 +1375,20 @@ Les « troubles » — plus exactement les démonstrations — ont été provoqu
 militaire décrétée en juillet 1901 par le tsar, en
 violation de la constitution finlandaise. Cette loi supprimait les troupes finlandaises à l'exception du régiment de dragons — supprimé depuis — et du bataillon de
 la garde. Les recrues finlandaises n'ont donc plus que
-de faibles chances de servir dans l'unique corps subsistant ; la plupart doivent s'attendre à être versées dans
+de faibles chances de servir dans l'unique corps subsistant; la plupart doivent s'attendre à être versées dans
 des troupes russes. Pour prévenir les résistances et
 essayer de faire passer la réforme en douceur, le tsar
 avait décidé que pendant trois ans on n'enrégimenterait que ce qu'il fallait d'hommes pour compléter le
 bataillon restant — pour 1901 280 hommes, sur un total
-de 20.000 à 25.000 conscrits —: Le Sénat et les gouverneurs avaient agi de leur côté pour briser ou rendre
+de 20.000 à 25.000 conscrits Le Sénat et les gouverneurs avaient agi de leur côté pour briser ou rendre
 inutiles les oppositions. Les communes refusant d'élire
 des délégués aux commissions de recrutement, les gouverneurs leur imposaient des amendes — 30.000 francs
 pour Helsingfors, 1.000 à 2.000 francs pour des communes rurales — et le Sénat décidait que la présence
 des délégués communaux ne serait pas nécessaire pour
 rendre valable les opérations du recrutement. (1)
 
-() Sur tous ces renseignements préliminaires, le cahier que je
-prépare donnera des détails plus amples. Je me contente ici de ?
+Sur tous ces renseignements préliminaires, le cahier que je
+prépare donnera des détails plus amples. Je me contente ici de?
 l'indispensable.
 
 C'est dans ces conditions que s'ouvrit la période des
@@ -1396,7 +1396,7 @@ appels. La Finlande est divisée en districts de recrutement. Chaque district a 
 
 ! porte de commune en commune, pour procéder aux
 opérations du recrutement, qui se suivent dans un ordre
-différent du nôtre : appel des conscerits, visite médicale,
+différent du nôtre: appel des conscerits, visite médicale,
 puis tirage au sort des conscrits déclarés bons pour le
 service. De la sorte, l'ensemble des opérations dure
 du milieu d'avril.
@@ -1407,10 +1407,10 @@ Dans certaines contrées — sous l'influence du clergé,
 dit-on — la majorité des appelés se présenta. Mais
 jusqu'ici, dans la plupart des communes, cela a été
 l'inverse. La proportion des réfractaires varie de
-quaire-vingis à cent pour cent. Dans quelques communes, les conscrits se présentaient, déposaientune protestation écrite et s'en allaient. Dans une cinquantaine i de communes, situées dans le centre et l'est du pays,
+quaire-vingis à cent pour cent. Dans quelques communes, les conscrits se présentaient, déposaientune protestation écrite et s'en allaient. Dans une cinquantaine de communes, situées dans le centre et l'est du pays,
 personne ne répondait à l'appel.
 
-| Dans les communes rurales, où le nombre des
+Dans les communes rurales, où le nombre des
 conscrits était faible, et où n'existe aucune agglomération importante, il ne se produisait pas de manifestation. Mais dans quelques villes il en fut autrement. En
 particulier dans le grand centre industriel de lintérieur, à Tammerfors, et dans la capitale, à Helsingfors,
 il y eut de sérieuses démonstrations. Il faut évidemment les attribuer pour une part à la présence d'ouvriers, pour une part aux gamins, et aussi pour une
@@ -1419,7 +1419,7 @@ autre part à la curiosité des gens désœuvrés: c'est le
 cas surtout à Helsingfors, où les badauds ne le cèdent
 en rien à ceux de Paris.
 A Tammerfors, le recrutement commençait le 15 avril;
-pour une commune rurale, sur 62 conscrits, 15 seulement se présentèrent. Pour le dire en passant, là
+pour une commune rurale, sur 62 conscrits, 15 seulement se présentèrent. Pour le dire en passant,
 comme ailleurs, beaucoup de conscrits présents n'étaient
 ‘venus que parce qu'ils étaient assurés d'être refusés à
 la visite médicale ou de jouir de dispenses. Les délégués communaux se présentèrent à la commission de
@@ -1429,7 +1429,7 @@ exemple a été du reste suivi dans un certain nombre
 de communes.
 Le lendemain avait lieu le recrutement pour la ville
 de Tammerfors: 327 conscrits, dont 25 seulement
-répondirent à l'appel de leur nom. Une fois l'appel ter- $
+répondirent à l'appel de leur nom. Une fois l'appel ter-
 miné, les conscrits allèrent chanter une sérénade sous
 les fenêtres du secrétaire qui la veille avait refusé de
 participer aux opérations du recrutement. Puis, dans
@@ -1465,7 +1465,7 @@ neige, poursuivi en voiture. Un peu plus tard, comme
 il sortait du bureau de police, un monôme se forma derrière lui. Il dut se réfugier dans une maison.
 
 Le 18 avril avait lieu la visite médicale. La nouvelle
-des démonstrations à Tammerfors avait peut-être contribué à échauffer le public. Pourtant il ny avait,
+des démonstrations à Tammerfors avait peut-être contribué à échauffer le public. Pourtant il avait,
 devant la caserne où avait lieu la revision, qu'un
 attroupement insignifiant, composé surtout de gamins.
 Le maître de police crut devoir arriver, avec son
@@ -1489,25 +1489,25 @@ une et deux heures de l'après-midi, des attroupements
 se reformèrent sur la place du Sénat. On attendait
 évidemment la sortie des sénateurs pour les huer. La
 place est très grande. Un des côtés est formé par les
-bâtiments du Sénat de Finlande; (1) en face l'Université ; sur le troisième côté, l'Hôtel de ville avec la station
-de police et des maisons privées ; et sur le quatrième
+bâtiments du Sénat de Finlande; (1) en face l'Université; sur le troisième côté, l'Hôtel de ville avec la station
+de police et des maisons privées; et sur le quatrième
 l'église Saint-Nicolas, celle-ci surélevée sur un grand
 escalier avec de nombreuses marches. Neuf rues aboutissent à la place. — Vers deux heures de l'après-midi,
 le coup d'œil était le suivant. Sur les marches de
-l'église, des bandes de gamins criant et sifflant ; sur la
-place, des groupes de curieux. La police aurait dù se:
+l'église, des bandes de gamins criant et sifflant; sur la
+place, des groupes de curieux. La police aurait se:
 tenir tranquille et laisser les gamins s'égosiller. Au liew
 de cela, le maïtre de police, le lieutenant-colonel Carl--
 stedt, crut trouver une belle occasion de déployer ses.
 
 (1) Le Sénat de Finlande n'est pas une assemblée législative, mais
-l'organe suprême de gouvernement : à peu près la réunion de nos
+l'organe suprême de gouvernement: à peu près la réunion de nos
 ministères et de notre Cour de Cassation.
 
 talents. Il réunit ses agents sur une ligne, les agents à
 pied au centre, les agents à cheval sur les flancs, prit
-Ja tête et exécuta une marche de parade pour
-“ « balayer » la place. Les gamins, en sûreté sur les
+tête et exécuta une marche de parade pour
+« balayer » la place. Les gamins, en sûreté sur les
 escaliers, redoublèrent leurs sifllets, et jetèrent des
 boules de neïge sur la police à cheval. Le public sur la
 . place applaudissaït, riait aux éclats, amusé de cette
@@ -1531,20 +1531,20 @@ garnison ici depuis l'an dernier. Me promenant avant
 mon dîner avec un ami, à trois heures et demie, je vois
 passer les cosaques au grand trot. Je vais aussitôt'sur
 la place. A mon arrivée, la place elle-même est vide
-seuls les escaliers de l'église, du Sénat et de l'Université sont couverts de monde. C'est l'heure où les ser58
+seuls les escaliers de l'église, du Sénat et de l'Université sont couverts de monde. C'est l'heure où les
 
-vices publics sont fermés, où l'on va diner, où beaucoup de gens se promènent. La nouvelle se répand, et
+vices publics sont fermés, où l'on diner, où beaucoup de gens se promènent. La nouvelle se répand, et
 attire des curieux, qui se massent sur les trottoirs. Les
 cosaques sont rangés sur un des côtés, immobiles. Les
-_ gamins, sur les escaliers, continuent leurs cris. Le
+gamins, sur les escaliers, continuent leurs cris. Le
 général Kaïigorodoff arrive, entouré de plusieurs officiers, monte à cheval, délibère. — Au fond, il n'y a
-* rien à faire, qu'à retirer les cosaques. Tout au moins,
+rien à faire, qu'à retirer les cosaques. Tout au moins,
 s'il veut les employer, le plan est-il d'une simplicité
-enfantine. Il y a là quelque soixante cavaliers : barrer
+enfantine. Il y a quelque soixante cavaliers: barrer
 par des postes de dix hommes les quatre issues, laisser
 sortir, mais empêcher d'entrer, et occuper la terrasse
 de l'église, en passant par une des rues latérales, où il
-, ya moins de marches à monter. Tout cela peut se faire
+, moins de marches à monter. Tout cela peut se faire
 . en un quart d'heure, sans coup férir.
 
 Mais c'est sans doute trop simple, ou d'un effet trop
@@ -1566,7 +1566,7 @@ sur les cosaques des boules de neige, des morceaux de
 
 Jean Deck glace et même des pierres. J'ai appris depuis que
 les cosaques qui opéraient près du Sénat avaient commencé à brandir leurs fouets, peut-être à s'en
-3 servir, et que cela avait excité les spectateurs. IL est possible aussi que cette jeunesse, se croyant en sûreté, ait commencé l'attaque. En tous cas, je suis sûr que ce qui a eu lieu ensuite se fût produit même sans cela.
+3 servir, et que cela avait excité les spectateurs. IL est possible aussi que cette jeunesse, se croyant en sûreté, ait commencé l'attaque. En tous cas, je suis sûr que ce qui a lieu ensuite se fût produit même sans cela.
 
 Les cosaques ainsi accueillis s'arrêtent, se garent.
 Mais un petit détachement part au galop, enfile une rue
@@ -1577,9 +1577,9 @@ qu'ils ont bombardés, et qui se lancent sur eux à coups
 de fouet, du reste, autant qu'il me parut, sans y mettre
 toute la brutalité coutumière. Le détachement qui est
 en haut met pied à terre, charge ses fusils, et quelques
-soldats mettent en joue la foule sur la place. Pourquoi ? Mais ce n'est encore rien. Un quatrième détachement va exécuter une charge au grand trot dans une
+soldats mettent en joue la foule sur la place. Pourquoi? Mais ce n'est encore rien. Un quatrième détachement exécuter une charge au grand trot dans une
 
-Û rue avoisinante, et un cinquième se jance contre la foule
+rue avoisinante, et un cinquième se jance contre la foule
 massée sur un coin de la place, chargeant sur les trottoirs, frappant à coups de fouet même des femmes.
 J'assiste ainsi, jusqu'à quatre heures cinq, à trois
 charges consécutives contre une foule qui ne manifestait même pas par des cris.
@@ -1598,10 +1598,10 @@ temps à autre.
 Un de mes amis les a vus tomber à cinq sur un bon
 habitant qui traversait la place en voiture. La place elle-même est toujours à peu près vide; des promeneurs
 la traversent, isolés ou par groupes. Quelques agents
-de police sont dispersés çà et là, mais on ne fait aucune
+de police sont dispersés et là, mais on ne fait aucune
 tentative pour empêcher le public de pénétrer, ni même
 pour le prévenir du danger qu'il peut courir. À mon
-grand étonnement, j'aperçois une compagnie d'infanterie russe; vers sept heures il en va arriver une seconde.
+grand étonnement, j'aperçois une compagnie d'infanterie russe; vers sept heures il en arriver une seconde.
 Les escaliers sont vides; j'apprends bientôt que les
 cosaques les ont balayés à coups de fouet; j'en vois encore un ou deux qui ont mis pied à terre et pourchassent quelques spectateurs isolés.
 
@@ -1616,27 +1616,27 @@ jusque dans des escaliers.
 Un groupe s'est introduit dans la cour d'un hôpital et
 y a frappé les malades, un, en particulier, atteint d'une
 maladie de la moelle épinière. Le médecin téléphone au
-poste de police pour se plaindre ; on lui répond : « C'est
+poste de police pour se plaindre; on lui répond: « C'est
 bien fait pour les gens de Helsingfors. » Sur la place,
 un officier de gendarmerie a tiré son sabre et frappé à
 
 la tête un homme qui cherchait à protéger une dame
 contre le fouet d'un cosaque. — Et le général Kaïgorodoff regarde le spectacle d'un air satisfait.
-# Un conseiller municipal lui demande de mettre fin à
+Un conseiller municipal lui demande de mettre fin à
 ces excès; le gouverneur lui montre un peloton de
-cosaques occupé à charger, et dit : « Nous sommes en
+cosaques occupé à charger, et dit: « Nous sommes en
 train de finir. » Pour être juste, je dois reconnaître que
 la conduite des cosaques ne fut pas partout et toujours
 brutale. J'ai emporté de ces scènes l'impression très
 nette que la responsabilité de l'attitude des soldats
-| retombait sur leurs chefs. J'ai vu plusieurs fois des
+retombait sur leurs chefs. J'ai plusieurs fois des
 officiers et même des sous-officiers retenir leurs hommes.
 Il n'y avait guère qu'un officier, un lieutenant, qui les
 A un seul moment, du reste, la situation devint menaçante. Il était environ six heures un quart. Je vis arriver sur la place des ouvriers, sans doute des maçons
 ayant fini leur travail. Il y en avait une trentaine ou
 une quarantaine, qui se portèrent vers l'église. La police
 intervint, très durement, à coups de poing et de four-
-| reau de sabre. Les ouvriers ripostèrent; des agents
+reau de sabre. Les ouvriers ripostèrent; des agents
 dégainèrent. Deux cosaques qui se trouvaient près du
 groupe tombèrent sur un ouvrier arrêté, qu'on emmenait au poste. Les autres ouvriers lancèrent des pierres
 à la police; les agents durent se replier, laissant un des à
@@ -1645,16 +1645,16 @@ quinzaine de cosaques chargea les manifestants jusque
 dans les rues voisines, les perdit de vue; pour ne pas à
 revenir bredouille, le lieutenant qui commandait fit À
 charger dans une rue assez éloignée, où il n'y avait
-presque personne : une femme qui essayait de se
-mettre en sûreté fut renversée deux fois de suite par nue COURRIER DE FINLANDE ‘
+presque personne: une femme qui essayait de se
+mettre en sûreté fut renversée deux fois de suite par nue COURRIER DE FINLANDE
 deux cosaques galopant sur le trottoir. — Tel fut l'incident, sans contredit, le plus grave de la journée.
 Cependant nombre de personnes avaient essayé de
 rétablir l'ordre. Des conseillers municipaux se répandaient dans la foule pour engager les gens à se retirer;
-sans succès d'ailleurs ; les Finlandais voulaient que la
-gouverneur Kaiïigorodoff : un des bourgmestres, le gouverneur de la province d''Abo, un pasteur, le viceprésident du Sénat. Leurs efforts furent longtemps
+sans succès d'ailleurs; les Finlandais voulaient que la
+gouverneur Kaiïigorodoff: un des bourgmestres, le gouverneur de la province d''Abo, un pasteur, le viceprésident du Sénat. Leurs efforts furent longtemps
 inutiles. Pourtant le gouverneur dut voir qu'il ne gagnerait rien. Il renvoya vers sept heures et demie son
-infanterie, et retira ses cosaques dans la cour de la !
-police. Le pasteur Murén engagea la foule à se disperser. Mais on savait les cosaques tout près. Il fallut, |
+infanterie, et retira ses cosaques dans la cour de la!
+police. Le pasteur Murén engagea la foule à se disperser. Mais on savait les cosaques tout près. Il fallut,
 pour amener les curieux à se disperser, que le gouverneur fit rentrer aussi les cosaques. Ceux-ci repartirent
 à huit heures et demie du soir, accueillis sur leur
 passage par des sifflets assourdissants. Le journal du
@@ -1672,7 +1672,7 @@ dans la cour de la station de police. Rien ne se produi63
 sit, quoiqu''on sentît nettement une grande irritation
 chez tous. Le gouverneur général était revenu le samedi
 matin. Il ne semble pas qu'il ait cherché le renouvelle-
-” ment des scènes du 18; car il lui eût été facile, en faisant patrouiller les cosaques sous prétexte de maintenir
+ment des scènes du 18; car il lui eût été facile, en faisant patrouiller les cosaques sous prétexte de maintenir
 Fordre, de provoquer des manifestations. Il paraît
 même qu'il laissa un groupe siffler sous ses fenêtres
 c'est ce que son journal travestit en une attaque contre
@@ -1684,7 +1684,7 @@ De leur côté, les conseillers municipaux prenaient
 des mesures. Ils décidèrent de former un corps de police
 volontaire, dirigé par un des bourgmestres, et composé
 de personnes de toute classe. Ils s'engagèrent à faire
-respecter l'ordre, si on n'appelait plus de troupes, et ”
+respecter l'ordre, si on n'appelait plus de troupes, et
 surtout des troupes russes. Le gouverneur général a
 donné son consentement. — D'autre part, le conseil
 6 municipal ouvritune enquête sur les incidents, et décida
@@ -1697,23 +1697,23 @@ ral a fondé à Helsingfors, aux frais du budget finlan-
 
 dais, un journal russe, la Gazette de Finlande, rédigé
 en partie par des officiers sous ses ordres. L'agence
-télégraphique russe a eu l'habileté de faire passer cette
+télégraphique russe a l'habileté de faire passer cette
 feuille au service de Bobrikoff pour un journal officiel
 d'autre part, elle en reproduit elle-même les articles. —
 On se hâta de transformer les événements, et d'inonder
 les rédactions de journaux en Europe de fausses nouvelles.
 
 Les boules de neige lancées sur Kaïtokangas sont
-devenues un attentat ; le coup de sabre reçu par Maximoff a été transformé en une blessure grave portée par
+devenues un attentat; le coup de sabre reçu par Maximoff a été transformé en une blessure grave portée par
 un manifestant. Le gendarme maladroit devenait une
-victime : on prétendait qu'il avait été foulé aux pieds.
+victime: on prétendait qu'il avait été foulé aux pieds.
 On parlait aussi, non seulement de pierres lancées sur
-les cosaques, mais de « morceaux de bois », de « bouteilles remplies de corrosifs » jetées des fenêtres, et qui
+les cosaques, mais de « morceaux de bois de « bouteilles remplies de corrosifs » jetées des fenêtres, et qui
 n'ont existé que dans la menteuse imagination du
 rédacteur russe. — Il y est question de neuf agents de
 police et huit cosaques blessés. En fait, il n'y eut que
 deux agents atteints, légèrement du reste, et sans doute
-fort peu de cosaques : je n'en ai vu qu'un, qui avait dû
+fort peu de cosaques: je n'en ai qu'un, qui avait
 recevoir un morceau de glace pointu, et s'essuyait le
 visage d'où coulait un peu de sang. En revanche, il
 n'est nullement question des civils blessés, frappés ou
@@ -1723,7 +1723,7 @@ qu'on avait pansé treize blessés à l'hôpital de chirurgie.
 Le comité chargé de faire l'enquête sur les incidents
 du 18 avait demandé à l'association ouvrière de Helsingfors de mettre à sa disposition le local de cette
 association. L'association ne voulut pas s'y prêter,
-craignant d'avoir des ennuis avec le gouverneur général. C'est ce que de Pétersbourg on a travesti en une k 65 Uvr.
+craignant d'avoir des ennuis avec le gouverneur général. C'est ce que de Pétersbourg on a travesti en une 65 Uvr.
 
 condamnation des troubles par les ouvriers, quiauraient
 déclaré n'avoir rien à faire avec ces manifestations de
@@ -1740,7 +1740,7 @@ les troupes doivent se montrer toujours terribles aux
 ennemis, aussi bien ceux du dedans que ceux du
 
 Quant aux personnages responsables, par leur incapacité, des événements, l'empereur, à l'occasion des
-fêtes de Pâques, les a récompensés : Kaïgorodoff a reçu
+fêtes de Pâques, les a récompensés: Kaïgorodoff a reçu
 une tabatière ornée de diamants (6.000 francs), Carl- stedt a été nommé colonel, et Kaïtokangas a reçu une
 bague ornée d'un diamant (800 francs).
 
@@ -1752,7 +1752,7 @@ L'Oppression des Juifs dans l'Europe orientale. —
 Pour vérifier et pour compléter sa documentation, il
 entreprit un voyage dans l'Europe orientale. Ce voyage
 a donné lieu en Roumanie à des manifestations antisémitiques dont nous lui demanderons la narration
-détaillée. IL a dû écrire à M. Delcassé, ministre des
+détaillée. IL a écrire à M. Delcassé, ministre des
 : affaires étrangères, une lettre dont nous empruntons le
 texte à l'Aurore du mercredi 28 mai
 Budapest, le 23 mai 1902
@@ -1771,7 +1771,7 @@ pas été de même en Roumanie.
 
 À Jassy seulement, il m'a été possible de poursuivre mes études. Dès mon arrivée à Bucarest, les
 associations antisémites d'étudiants ont commencé
-à s'agiter, à protester, à engager leurs amis à s'opposer à la continuation de mon enquête. ,
+à s'agiter, à protester, à engager leurs amis à s'opposer à la continuation de mon enquête.,
 
 Si, seuls, des jeunes gens, dont les compatriotes
 sont reçus fraternellement en France, dans nos universités et dans nos écoles, avaient, fidèles aux
@@ -1781,8 +1781,8 @@ vous, monsieur le ministre. Je me bornerais à en
 
 appeler à l'opinion européenne en demandant siun
 pays où on ne sait pas respecter un hôte est digne
-id'être rangé parmi les pays civilisés. Mais ce ne ”
-s sont pas uniquement des agitateurs irresponsables
+id'être rangé parmi les pays civilisés. Mais ce ne
+sont pas uniquement des agitateurs irresponsables
 dont les bandes sont venues manifester sous les
 fenêtres de mon hôtel en poussant des cris de mort
 contre les Juifs et contre moi. Les appels imprimés,
@@ -1791,7 +1791,7 @@ un exemplaire et qui incitaient aux manifestations,
 ont été, le lundi 6/19 mai, distribués dans les rues
 de Bucarest par des agents de police en uniforme.
 La réunion du mardi 7/20 mai, à la suite de laquelle
-a eu lieu le tumulte, a été présidée par un fonctionnaire du ministère de l'instruction publique et des
+a lieu le tumulte, a été présidée par un fonctionnaire du ministère de l'instruction publique et des
 Ma personnalité n'est pas en jeu, monsieur le
 ministre, mais il est nécessaire de vous signaler la
 À gravité de ce fait que des fonctionnaires du gouvernement roumain sont à la tête de ceux qui empéchent un citoyen français, respectueux des lois du
@@ -1799,7 +1799,7 @@ pays dans lequel il se trouve, de circuler librement
 et de librement étudier la situation d'une collectivité
 à laquelle il s'intéresse.
 La législation xénophobe de la Roumanie, législation que vous connaïssez, monsieur le ministre,
-et dont les intérêts français ont déjà eu à souffrir,
+et dont les intérêts français ont déjà à souffrir,
 ne me permettait pas de penser que les étrangers
 
 fussent vus d'un bon œil sur la terre roumaine.
@@ -1811,8 +1811,8 @@ les conséquences qu'ils comportent, rendre service
 toute liberté en France, un Français, mesemble-t-il,
 doit à son tour jouir de toute liberté en Roumanie.
 
-Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
-la rédaction ni sur l'administration : ces fonctions
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
+la rédaction ni sur l'administration: ces fonctions
 
 des abonnements de souscription à cent francs:
 des abonnements ordinaires à vingt francs:

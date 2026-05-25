@@ -15,8 +15,8 @@ déclarant qu'aucun membre de son organisation ne ferait
 partie du bureau.
 
 On vote une adresse de sympathie au peuple russe luttant pour la liberté. L'amendement du P. S. R. demandant
-d'ajouter un bläme aw ministère français pour ses génu-
-flexions devant le gouvernement russe provoque un vif ?
+d'ajouter un bläme ministère français pour ses génu-
+flexions devant le gouvernement russe provoque un vif?
 tumulte et des invectives non seulement d'organisation
 organisation, mais encore entre membres d'une même orga-
 nisation, par exemple dans les fédérations autonomes.
@@ -34,7 +34,7 @@ produire, On croit amener l'union en écartant les questions
 de principe, c'est la marche contraire qu'il faut suivre. Il
 demande, en conséquence, qu'on examine les votes de certains députés lors de l'amendement Zévaës, le conflit entre
 
-les groupes du onzième arrondissement de Paris, l'affaire T3)
+les groupes du onzième arrondissement de Paris, l'affaire
 DE LA Porte est du même avis quant à la nécessité de
 traiter les questions de principe, mais il demande qu'on
 respecte l'ordre du jour, et il pense que les points touchés
@@ -51,10 +51,10 @@ participation d'un socialiste au gouvernement, tout gou-
 vernement étant par définition hostile au socialisme. En
 ce qui touche Millerand, « il s'agit de savoir si Millerand
 ses actes échappent à notre appréciation; mais s'il appartient à quelque organisation ou à quelque fédération, nous
-demandons qu'on nous le fasse savoir, afin que nous "à
+demandons qu'on nous le fasse savoir, afin que nous
 jugions ses actes ». Enfin, le P. O.S. R. réclame la création
 d'un journal socialiste qui soit l'organe attitré du Parti.
-La proposition Joindy est renvoyée à la commission. : -
+La proposition Joindy est renvoyée à la commission.: -
 - des fédérations du Doubs et du Haut-Rhin. Cette déclaration condamne la méthode dite « d'action nouvelle ». Pré-
 sentement, l'unification n'est pas possible, mais le
 demande, dans l'intérêt du Parti socialiste, que le Congrès
@@ -63,7 +63,7 @@ organisations. Il dépose enfin une motion de bläme
 DeLesALLe souhaite que bientôt le P. O. F. entre dans la
 grande famiile socialiste. {Des guesdistes massés aux tri- à
 
-bunes crient : « Jamais! ») Il dépose la résolution suivante : Dans les fédérations départementales et au Comité
+bunes crient: « Jamais! Il dépose la résolution suivante: Dans les fédérations départementales et au Comité
 général, la part de représentation de chaque organisation
 sera proportionnelle à son importance réelle. « Nous devons
 préparer des mesures transitoires susceptibles de combler
@@ -86,15 +86,15 @@ d'affirmer que jamais le Parti socialiste n'a été engagé par
 Millerand. « Les chefs les plus autorisés du socialisme
 français eurent le tort de ne pas protester quand Millerand
 prononça un discours renfermant un programme qui n'avait
-plus le caractère révolutionnaire ; mais il est juste de
+plus le caractère révolutionnaire; mais il est juste de
 portent une part de responsabilité qu'il faut leur attribuer.
 Je protestai dès lors, comme je proteste à présent, quoique
 ami de Millerand et le considérant comme un honnête
 homme. C'est un devoir d'amitié que je remplis ici, en
 prononçant ces paroles, au moment même où jeme dispose
-à voter la motion que je viens de déposer ; mais il ne me
+à voter la motion que je viens de déposer; mais il ne me
 plait pas que mon vote soit interprété comme une manifestation vile, il n'aura pas la signification d'une flétrissure
-contre Millerand. C'est le vote d'un socialiste qui en juge un ,
+contre Millerand. C'est le vote d'un socialiste qui en juge un,
 autre au point de vue des principes et qui ne veut pas
 qu'on le croie capable de s'être abaissé devant certaines
 excitations qui ne procèdent peut-être pas de préoccupations de principes. Le terrain ayant été ainsi déblayé,
@@ -113,7 +113,7 @@ Mandé, il dissuada Millerand de prononcer ce discours.
 nécessaires. Dès l'entrée de Millerand au ministère, j'ai
 considéré que, par le fait même qu'il se constituait un parti
 ministériel dans le socialisme, celui-ci courait le plusgrand
-danger moral et matériel. Si cette position durait, le Parti ?
+danger moral et matériel. Si cette position durait, le Parti?
 socialiste serait bientôt perdu, il se séparerait de la classeouvrière et la classe ouvrière le renierait. Il est nécessaire
 qu'on déclare qu'à aucun moment Millerand n'a représenté
 le Parti socialiste, il est nécessaire de désavouer le parti
@@ -135,7 +135,7 @@ césarien et de ramener nos amis du P. O. F. parmi nous.
 C'est pourquoi je vous demande de voter la proposition du
 Jaurès demande le renvoi à la commission de la proposition De la Porte. Il trouve qu'il y a dans les termes de
 cette proposition des éléments qui peuvent être acceptés et
-d'autres non. « El est puéril de nier que l'avènement, même
+d'autres non. « est puéril de nier que l'avènement, même
 irrégulier, d'un socialiste au ministère, n'ait été le signe
 d'une croissance du socialisme, Je ne veux pas dire que
 cette participation soit utile au socialisme, maïs on ne peut
@@ -156,18 +156,18 @@ motion De la Porte sans l'examiner mürement. Tout
 l'heure, quand on a parlé du banquet de Saint-Mandé, le
 citoyen Vaillant a fait appel à la mémoire de différents
 députés, j'étais assis à côté de lui et je puis témoigner qu'il
-fit des réserves à propos du discours de Saint-Mandé ; il
+fit des réserves à propos du discours de Saint-Mandé; il
 reconnut qu'il était sage de marquer les frontières à droite,
 mais non à gauche, pour permettre au Parti de s'étendre
 jusqu'à la Révolution. Mais il n'y eut aucune excommunication. Et maintenant, un autre exemple des singulières
-méprises dans lesquelles nous nous débattons : Parmi les
+méprises dans lesquelles nous nous débattons: Parmi les
 signataires de la motion De la Porte, je lis la signature de
-. Ja fédération de la Charente et de son représentant le
+. fédération de la Charente et de son représentant le
 citoyen Hubert Lagardelle. Eh bien, ce citoyen a écrit un
 article pour la Revue Internationale de Chicago. Dans cet
 article (qui est du premier mai dernier, il y a donc à peine un
 mois et demi), le citoyen Lagardelle expose le mouvement
-ouvrier en France depuis un demi-siècle ; il déclare que la
+ouvrier en France depuis un demi-siècle; il déclare que la
 croissance du mouvement ouvrier est le signe le plus mar-
 quant de la démocratie socialiste; il constate que la France,
 d'abord en retard, a repris son rang dans ces dernières
@@ -176,7 +176,7 @@ années et il rend hommage à l'action exercée par la présence
 d'un ministre socialiste dans le ministère et surtout à laloi
 sur le Conseil du Travail. Il y a donc malentendu et je
 demande en conséquence que la proposition soit renvoyée
-à la commission. — Autre exemple de malentendu : Un
+à la commission. — Autre exemple de malentendu: Un
 rapport du budget bourgeois est un fragment du pouvoir
 bourgeois. Par le budget des postes et télégraphes, vous
 fournissez à la bourgeoisie tous les moyens de communication, y compris les moyens de communication militaire. Et
@@ -186,10 +186,10 @@ quelqu'un des nôtres à accepter une part de responsabilité,
 ne lui jetons pas le blâme. Il faut donc pour qu'il n'y ait pas
 de surprise, que la proposition De la Porte soit renvoyée
 la commission. Et répondant au citoyen Vaillant, je lui
-dis : Où sont nos différences de principe? Notre but
+dis: Où sont nos différences de principe? Notre but
 tous, c'est la société communiste. Direz-vous que nos mé-
 thodes diffèrent en ceci que nous sommes des réformistes et
-vous des révolutionnaires ? Votre parti n'a jamais nié que
+vous des révolutionnaires? Votre parti n'a jamais nié que
 des réformes partielles n'augmentent la force du socialisme.
 De quel droit contestez-vous alors notre méthode? Il n'y a
 aucune différence irréductible entre les moyens que nous
@@ -199,14 +199,14 @@ de ceux qui veulent imposer l'unité autoritaire; mais il
 suflit que certains de nos camarades le redoutent pour
 qu'il soit nécessaire de rechercher dans une organisation
 transitoire les moyens de concilier avec le maximum d'unité
-l'autonomie des organisations. Par quels moyens le pourrons-nous ? La commission le décidera. Mais cela ne nous
+l'autonomie des organisations. Par quels moyens le pourrons-nous? La commission le décidera. Mais cela ne nous
 empêche pas de tracer par avance le plan d'unité qui agira
 par attraction sur tousles socialistes. Les préjugés se dissiperont et l'unité socialiste sera faite dans les cœurs, dans
 les esprits de la social-démocratie française. »
 
 Poxarp, au nom des Fédérations autonomes, apporte
-quelques observations supplémentaires au sujet de la proposition De la Porte : « IL n'était pas dans notre pensée
-de porter aucune excommunication contre personne ; mais
+quelques observations supplémentaires au sujet de la proposition De la Porte: « IL n'était pas dans notre pensée
+de porter aucune excommunication contre personne; mais
 le citoyen Briand a outrepassé ses droits dans quelques
 
 paroles qu'il a prononcées. Nous convenons que le citoyen
@@ -218,7 +218,7 @@ l'administration des choses. C'est dans ce principe que nous
 avons déposé la motion De la Porte et que nous poussons
 l'organisation des Fédérations autonomes. Nous pensons
 que l'unité peut se faire dès ce Congrès. Où donc les organisations puisent-elles leur vie si ce n'est dans le peuple, dans
-les Fédérations elles-mêmes ? Je demande done qu'on
+les Fédérations elles-mêmes? Je demande done qu'on
 organise l'unité en prenant comme base les Fédérations
 LAGARDELLE croit qu'il faut mettre fin à l''équivoque
 actuelle. « Pour la troisième fois le Parti se réunit, et si nous
@@ -232,33 +232,33 @@ Parti, non pas à une unité mystique, mais à l'unité pratique
 et réelle. On ne peut assimiler le vote d'une mesure d'un
 ministère bourgeois à la constitution d'un parti ministérialiste. Je crois que l'œuvre réformiste de Millerand est bonne,
 mais non pas que Millerand représente au ministère le
-socialisme. Quelle contradiction y a-t-il entre ces deux opinions ? Il faut en finir avec les équivoques, au moment où
+socialisme. Quelle contradiction y a-t-il entre ces deux opinions? Il faut en finir avec les équivoques, au moment où
 le parti radical s'approprie une partie de notre programme
 en se découvrant un programme économique, afin que lors
 des élections une confusion funeste au socialisme ne puisse
 pas s'établir. »
 Moxxier, au nom de la fédération du Nord et du Pas-deCalais, demande la clôture de la discussion générale après
-que trois orateurs encore auront pris la parole ; il demande
+que trois orateurs encore auront pris la parole; il demande
 aussi que la commission ait un rapporteur de la majorité et
 un rapporteur de la minorité.
 De LA Porte déclare que ses amis et lui demanderont le
 vote par mandat.
 GnroussiER défend Sembat, rappelé à Paris, contre certaines paroles du citoyen Jaurès. « Je suis étonné de voir
-que le citoyen Jaurès, qui a été au Parlement, ait pu confondre le pouvoir exécutif et le pouvoir législatif; car si la
+que le citoyen Jaurès, qui a été au Parlement, ait confondre le pouvoir exécutif et le pouvoir législatif; car si la
 thèse du citoyen Jaurès était poussée à bout, il faudrait
 interdire à tout socialiste d'entrer non seulement dans une
 commission, mais encore dans tout Parlement. Nous pensons qu'il y a certains rapports de la commission du budget
-qu'aucun socialiste ne doit jamais prendre ; mais le budget des postes et télégraphes n'est pas un danger pour le
+qu'aucun socialiste ne doit jamais prendre; mais le budget des postes et télégraphes n'est pas un danger pour le
 à socialisme et il concerne presque exclusivement la situation
-‘ d'un grand nombre de travailleurs, petits fonctionnaires.
+d'un grand nombre de travailleurs, petits fonctionnaires.
 Pour moi, je trouve que s'il s'agit de l'œuvre personnelle
 de Millerand, il a agi au mieux des intérêts du prolétariat
 - mais la question ne peut être là, un membre de la commission du budget n'engage que sa propre responsabilité, au
 gouvernement il n'en est pas ainsi, on ne peut dire qu'un
 ministre, quel qu'il soit, ait toujours sa pleine liberté. »
-Jaurès, interrompant : « Le budget des postes rapporte
+Jaurès, interrompant: « Le budget des postes rapporte
 millions à la société bourgeoise. »
-S Groussier : « Le prolétariat ne peut admettre qu'un socialiste reste au pouvoir alors qu'il a été frappé. »
+Groussier: « Le prolétariat ne peut admettre qu'un socialiste reste au pouvoir alors qu'il a été frappé. »
 La séance est levée et remise au lendemain neuf heures.
 ALLEMANE est nommé président; Légitimus et Camelle
 lui sont adjoints comme assesseurs, Bonnevial comme secré-
@@ -266,7 +266,7 @@ On reprend l'ordre du jour.
 FourxiÈre demande qu'on ne passe pas au vote avant que
 les propositions soient examinées par la commission.
 
--_ DE ra PORTE, au nom des signataires de la proposition
+DE PORTE, au nom des signataires de la proposition
 qu'il a déposée hier, demande qu'on passe au vote sur la
 priorité de la motion Willm; il ajoute que les citoyens » Cipriani, Chaucheprat et Sémanaz, des syndicats, adhèrent
 à la déclaration. /Tumulte)
@@ -278,13 +278,13 @@ la responsabilité du Parti. « Je crois qu'il est possible de
 trouver une formule telle qu'elle ne meurtrisse personne et -
 rallie tout le Parti. »
 
-VAILLANT, interrompant : « La formule De la Porte est
+VAILLANT, interrompant: « La formule De la Porte est
 
-RÉvELIX : « IL me suffit, citoyen Vaillant, que des camarades ne le croient pas pour que je demande que la motion
-soit examinée mürement. » /Des voix du P. S. R. : « Nous
-ne voterons que la motion De la Porte. »)
+RÉvELIX: « IL me suffit, citoyen Vaillant, que des camarades ne le croient pas pour que je demande que la motion
+soit examinée mürement. » /Des voix du P. S. R.: « Nous
+ne voterons que la motion De la Porte.
 
-Réveuix : « Ne procédons pas par un vote de division,
+Réveuix: « Ne procédons pas par un vote de division,
 
 - laissez le Congrès chercher un vote d'union. »
 
@@ -292,14 +292,14 @@ La clôture de la diseussion est prononcée par le Congrès.
 On demande le vote par mandat. Le vote par mandat est
 
 Pendant qu'on dépouille le scrutin, un vote par acelamation a lieu sur la proposition du P. O.S. R. flétrissant la
-guerre de Chine. /Cris : Abas la guerre ! guerre à la guerre !)
+guerre de Chine. /Cris: Abas la guerre! guerre à la guerre
 
 On décide de nommer la commission. Il y a environ mille
-‘mandats représentés ; on accorde un membre de la commission par vingt-cinq mandats.
+‘mandats représentés; on accorde un membre de la commission par vingt-cinq mandats.
 
 Résultat du vote sur le renvoi à la commission de la proposition De la Porte
-Pour le renvoi à la commission : 744 mandats; contre le
-renvoi à la commission : 402 mandats,
+Pour le renvoi à la commission: 744 mandats; contre le
+renvoi à la commission: 402 mandats,
 
 La proposition De la Porte est en conséquence renvoyée
 à la commission et la séance suspendue jusqu'à deux
@@ -311,18 +311,18 @@ jusqu'à ce que la commission ait apporté ses conclusions.
 
 - Le président annonce que la commission « comrffencé son
 
-‘ Compte rendu analytique non ofheciel Le
+Compte rendu analytique non ofheciel Le
 travail, que le rapport sur la proposition De la Porte et le
 rapport sur la proposition du P. S. R. viendront en tête.
 
 MoxaGixoT rappelle que la mission essentielle du Congrès
-est le projet d'unification. IL demande que le rapport su
+est le projet d'unification. IL demande que le rapport
 cette question vienne le premier en discussion.
 Viviani déclare qu'il est prêt à se rallier à la proposition Landrin à la condition que la commission soit en
 mesure dans une heure ou une heure et demie de venir
 donner un rapport sur les différentes questions. /Cris du
 
-Viviaxi : « Maïs cela est matériellement impossible. Et
+Viviaxi: « Maïs cela est matériellement impossible. Et
 c'est l'après-midi et peut-être la soirée qui vont être perdus.
 
 Et il est une question, celle des accusations, que vous
@@ -330,8 +330,8 @@ apportez depuis quelque temps contre certains députés.
 {Tumulte) et je m'étonne que les accusateurs ne soient pas
 prompts à monter à cette tribune pour apporter la preuve
 de ces accusations et pour examiner si les ordres du jouren
-faveur du ministère partent de ceux des députés qu'on  « qualifie de ministériels. D'un côté comme de l'autre, il y a
-peut-être eu des erreurs commises, mais il faut établir le
+faveur du ministère partent de ceux des députés qu'on « qualifie de ministériels. D'un côté comme de l'autre, il y a
+peut-être des erreurs commises, mais il faut établir le
 bilan de ces fautes. Et je vois un député révolutionnaire
 qui a refusé de venir siéger à côté de notre président
 Allemane et qui récemment m'écrasait presque dans les
@@ -357,7 +357,7 @@ Laxprix dit que les tristes scènes dont on vient d'être
 témoin montrent la sagesse de sa proposition. Il réclame
 de nouveau la suspension de la séance.
 
--  Koscruzsxo fait appel à des sentiments de conciliation,
+- Koscruzsxo fait appel à des sentiments de conciliation,
 il affirme ne marcher à la remorque d'aucune personnalité; -
 « mais l'ordre du jour doit être suivi et si le citoyen De la
 Porte a cru devoir introduire une proposition qu'on
@@ -402,8 +402,8 @@ La séance est levée à six heures et renvoyée au lendemain matin, neuf heures
 CoLzy est nommé président avec Barrat et Hahn comme:
 assesseurs et Guillemin comme secrétaire.
 L'ordre du jour appelle le rapport de la commission. Le
-citoyen Briand a la parole. /
-Briaxp : « La commission s'est trouvée dès le début de
+citoyen Briand a la parole.
+Briaxp: « La commission s'est trouvée dès le début de
 sa séance en présence d'une difliculté portant sur la
 méthode de travail qu'elle adopterait. Le citoyen Vaillant
 avail déposé au nom de ses amis une motion d'après
@@ -414,7 +414,7 @@ Jaurès ne s'opposait pas à ce que la question ministérielle
 fût portée en tête des travaux, mais il demandait que la
 commission s'occupât immédiatement après du projet
 d'unitication et des différentes questions portées à la com-
-mission. Une discussion assez vive s'engagea. Je demandai ne .
+mission. Une discussion assez vive s'engagea. Je demandai ne.
 qu'on s'occupât de la première question et qu'après seule-
 ment on prit une décision. La méthode de travail se trouva
 simplifiée et l'on s'engagea dans la discussion qui se poursuivit très avant dans la nuit. La première résolution dont “58
@@ -426,7 +426,7 @@ ministère, la conduite du Parti à son égard ne saurait
 s'inspirer que des intérêts généraux du socialisme. Le
 citoyen Marius Richard, de la Fédération du Gard, propo-
 sait un amendement à la proposition De la Porte, il
-‘ voulait qu'après les mots « le Congrès déclare » on ajoutàt
+voulait qu'après les mots « le Congrès déclare » on ajoutàt
 
 « tout en rendant justice aux progrès que Millerand a fait
 
@@ -448,9 +448,9 @@ P.S.R. se rallia à la proposition De la Porte. Dans ces
 conditions, c'est sur cette proposition que la discussion
 s'engagea. Toute la question portait sur la nécessité de
 
-dégager la responsabilité du Parti et c'est là que nous nous
+dégager la responsabilité du Parti et c'est que nous nous
 
-sommes trouvés en désaccord et c'est là que le Congrès.
+sommes trouvés en désaccord et c'est que le Congrès.
 
 aura à se décider entre deux ordres du jour présentés, l'un
 par la majorité, l'autre par la minorité de la commission.
@@ -461,7 +461,7 @@ maintenus et je dois déclarer que tout en maintenant ma
 
 signature au bas de la motion, je fais des réserves au
 
-sujet de ces mots; nous n'avons eu aucune idée de flétrissure
+sujet de ces mots; nous n'avons aucune idée de flétrissure
 envers qui que ce soit. D'autres ont voulu y voir une
 
 sorte de mise en dehors du socialisme du citoyen Müillerand.
@@ -476,10 +476,10 @@ considérons pas que Millerand se soit expulsé du Parti par
 le seul fait qu'il est entré au Pouvoir. Notre motion est
 
 identique dans ses considérants théoriques, mais nous
-‘ajoutons :; « C'est-à-dire en acceptant de son initiative
+‘ajoutons « C'est-à-dire en acceptant de son initiative
 
-« privée une fonction, ete., n'a pu engager la responsabilité -
-« du Parti », et plus loin : « déclare en outre que l'attitude
+« privée une fonction, ete., n'a engager la responsabilité -
+« du Parti et plus loin: « déclare en outre que l'attitude
 « du Parti et du groupe parlementaire vis-à-vis du mi-
 
 « nistère doit être la même que vis-à-vis de tout ministère
@@ -494,10 +494,10 @@ Mais je dois dire que le citoyen De la Porte a maintenu sa
 motion sur laquelle il viendra s'expliquer tout à l'heure
 
 appuyer parfois le ministère par ses votes, mais il dit que
-s'il a pu étre ministériel, il n'est pas ministérialiste, c'est
+s'il a étre ministériel, il n'est pas ministérialiste, c'est
 à-dire qu'il n'est point partisan de l'appui donné au ministère en tant que ministère, mais pour ce que ses actes
-ont pu contenir de républicain. Cette position m'avait
-frappé moi-même. J'ai pu constater que certains militants
+ont contenir de républicain. Cette position m'avait
+frappé moi-même. J'ai constater que certains militants
 considéraient trop le ministère comme un ministère socia-
 liste et s'étonnaient qu'il n'eùt encore rien bouleversé; car
 notre Parti est encore un peu trop démagogique et il
@@ -505,24 +505,24 @@ convient de l'éclairer sur la situation. Et nous étions tous
 d'accord à la commission pour dire au prolétariat que ce
 ministère n'est pas un ministère socialiste, qu'il peut avoir
 une certaine bonne volonté socialiste, mais que ce n'est
-pas là le ministère socialiste, le pouvoir socialiste. Cette
+pas le ministère socialiste, le pouvoir socialiste. Cette
 déclaration, nous la voulons faire. Dans ma motion, le
 Parti socialiste est dégagé d'une manière nette et précise.
 Quelques camarades préfèrent la motion De la Porte,
 parce qu'elle dit qu'en entrant au ministère, Millerand est
 sorti du Parti socialiste; mais beaucoup des signataires
-n'entendaient pas exprimer par là une excommunication.
+n'entendaient pas exprimer par une excommunication.
 Et de plus ces camarades semblent vouloir englober dans
 la même excommunication tous ceux qui depuis lors ont
 soutenu Millerand. Il faudra que vous preniez à la face du
 Congrès socialiste la responsabilité de votre motion. Vous
 inaugurerez dans le Parti socialiste une méthode d'après
 laquelle un homme pourra être expulsé sans être entendu,
-sans que vous ayez eu le courage de l'entendre en face. Il
+sans que vous ayez le courage de l'entendre en face. Il
 faut qu'on sache les conditions dans lesquelles Millerand
 est entré au ministère. Il s'est institué hier au sein de la
 commission un débat très intéressant pour l'histoire. Voici
-ce que nous avons appris : Millerand s'est présenté un jour
+ce que nous avons appris: Millerand s'est présenté un jour
 devant son groupe, le groupe parlementaire, — le Parti
 socialiste avait constitué avec tous les groupes républicains
 un comité de défense qui était une sorte de gouvernement
@@ -534,17 +534,17 @@ part de pouvoir. Première faute d'avoir laissé passer ce
 programme sans protestation et de lavoir affiché partout
 dans les circonscriptions électorales. Je l'avais dénoncé, ce
 programme. Où sont-ils ceux qui sont allés dans le pays
-dénoncer ce programme ? Et combien de fois les manifestes
+dénoncer ce programme? Et combien de fois les manifestes
 affichés dans les villes ne ressemblaient pas aux circulaires
 affichées dans les circonscriptions rurales! Déplorons tous
 ces bassesses, ces petites lâchetés.. Millerand se présenta
 un jour dans son groupe et lui dit: « On m'a offert une
-« combinaison dans laquelle j'aurais eu un portefeuille;
+« combinaison dans laquelle j'aurais un portefeuille;
 « celte combinaison, elle a avorté. » Vous, socialistes, vous
-avez dû tenir à Millerand un langage sévère? — Les choses
+avez tenir à Millerand un langage sévère? — Les choses
 se passèrent autrement. Le citoyen Vaillant lui-même était
 troublé par les circonstances; cependant je reconnais qu'il
-a dit, mais sur le ton amical : « Citoyen Millerand, si vous
+a dit, mais sur le ton amical: « Citoyen Millerand, si vous
 « entrez dans une combinaison de ce genre, nous vous
 « prévenons que c'est sous votre responsabilité personnelle
 « et que nous serons obligés de dégager le Parti car nous
@@ -558,7 +558,7 @@ voulait qu'on prit une résolution, mais il eut la stupeur de
 constater que le groupe parlementaire était si troublé par
 la situation qu'il le vit fondre comme beurre et il se trouva
 seul avec sa motion et ses bonnes intentions. Vous auriez
-dû vous dresser devant Millerand et lui crier : Non! Et c'est
+vous dresser devant Millerand et lui crier: Non! Et c'est
 deux ans après que vous voulez déclarer Millerand mort
 alors qu'il peut se dresser devant vous. Il est certain qu'à
 ce moment-là l'impression que dut emporter Müillerand
@@ -566,16 +566,16 @@ ce moment-là l'impression que dut emporter Müillerand
 avec lui, mais qu'on ne le considérerait pas comme
 s'excluant du Parti socialiste. Le citoyen Vaillant était
 uniquement préoccupé de faire écarter Galliffet, mais il n'a
-pas dit à Millerand : Vous ne devez: pas entrer au ministère. »
-Une voix du P.S. R. : « Millerand, c'est un assassin ! »
+pas dit à Millerand: Vous ne devez: pas entrer au ministère. »
+Une voix du P.S. R.: « Millerand, c'est un assassin! »
 
-BriaxD à Ebers : « Et c'est toi, Ebers, qui me traites de-
+BriaxD à Ebers: « Et c'est toi, Ebers, qui me traites de-
 politicien!!... Je dis que lorsqu'un ouvrier vient nous traiter
-de politiciens, je l'excuse, mais toi, Ebers!!., » /Tumulteformidable) :
-BriAnp : « Vous déclarez que Millerand a commis des.
+de politiciens, je l'excuse, mais toi, Ebers!!., » /Tumulteformidable):
+BriAnp: « Vous déclarez que Millerand a commis des.
 fautes et vous voulez le condamner sans l'entendre. La
 différence entre nos deux motions est que nous reconnais
-sons bien qu'il a commis des fautes; mais avant de le juger .
+sons bien qu'il a commis des fautes; mais avant de le juger.
 nous voulons l'entendre. Vous voulez vous en aller
 l'unité sur des cadavres, ce n'est pas une pensée socialiste.
 Et je vous demande, camarades du P. S. R., moi qui ai été
@@ -621,8 +621,8 @@ ne le demandons pas, et vous n'avez pas le droit d'accuse,
 de déloyauté des citoyens avec lesquels vous avez toujours
 entretenu des relations d'amitié alors que vous invoquez
 vous-mêmes des relations d'amitié pour excuser un mi_ nistre. » /Tumulte)
-” Jaurès : « C'est un coup de poignard dans le dos! »
-De LA Porte : « Le citoyen Jaurès est venu nous dire que
+Jaurès: « C'est un coup de poignard dans le dos! »
+De LA Porte: « Le citoyen Jaurès est venu nous dire que
 le citoyen Lagardelle avait écrit, dans un de ses articles,
 que c'était une singulière fiction que de considérer comme
 appartenant au Parti socialiste ceux qui avaient soutenu un
@@ -634,7 +634,7 @@ la loyauté d'un homme qui n'a pas d'autre tort que de
 wêtre plus de l'avis d'un certain nombre d'hommes qui
 soutiennent Millerand.—La question qui se présente devant
 nous est d'une netteté extraordinaire, Le P. O.S. R., qui
-n'est plus ici (?), l'avait posée d'une manière très simple.
+n'est plus ici l'avait posée d'une manière très simple.
 Vous ne pouvez pas échapper au dilemme qu'il a posé.
 Nous vous demandons si Millerand peut être considéré
 comme ayant quitté le Parti par suite de son entrée au
@@ -653,16 +653,16 @@ tendez que les élus ont refusé de se prononcer contre le
 ministère. Lassalle qui, quoique n'appartenant pas au
 P.S.R., a pourtant voté une enquête que les autres membres
 du groupe parlementaire refusaient… »
-LASssALLE : € Je ne les ai pas nommés assassins »!
-DE LA Porte : « Nous ne demandons pas des exécutions. ?
+LASssALLE: Je ne les ai pas nommés assassins
+DE LA Porte: « Nous ne demandons pas des exécutions.?
 In'y a sur la question des élus que deux élus mis en
-cause et ils le sont au nom du Comité général : Palix et
+cause et ils le sont au nom du Comité général: Palix et
 Narbonne. Nous n'avons formulé aucune demande d'excommunication. Nous avons demandé, il est vrai, qu'on insti
 tuât un débat sur la tactique parlementaire, mais vous
-savez que cette question n'a pu venir en discussion au
+savez que cette question n'a venir en discussion au
 Comité général. Sur la question purement ministérielle,
 vous n'avez à envisager que la question de principe sans
-vous préoccuper de ce que nous avons pu dire ou écrire sur -
+vous préoccuper de ce que nous avons dire ou écrire sur -
 la question de la tactique parlementaire. En acceptant les
 fonctions de rapporteur, j'ai demandé à dire très nettement
 ce que je pense et ce que pensent avec moi quelques-uns
@@ -671,7 +671,7 @@ pensé, Lagardelle et moi, qu'il n'était pas possible à un
 socialiste de participer au pouvoir car vous avez inserit la
 conquête des pouvoirs publies dans notre programme et il
 est trop difficile de distinguer entre ceux qu'on peut conquérir et ceux qu'on ne peut pas conquérir. Nous avons
-adopté la motion Delesalle qui défend toute participation ]
+adopté la motion Delesalle qui défend toute participation
 dun socialiste et telle était notre attitude au dernier Con-
 grès. Nous n'avons donc pas varié, comme on l'a prétendu.
 Et maintenant nous vous demandons de voter pour la «
@@ -685,18 +685,18 @@ Un autre délégué demande que chacun des deux côtés du
 
 à Congrès désigne deux orateurs pour traiter la question.
 
-s JAuRÈS trouve le chiffre de deux trop limité, il demande
+JAuRÈS trouve le chiffre de deux trop limité, il demande
 qu'il y ait trois orateurs de chaque côté et cela parce que
 le citoyen Lagardelle et ses amis déclarent que lui, Jaurès,
 veut étouffer le débat.
 
 Cette dernière motion est votée.
 On propose dix minutes pour chaque orateur. — Accepté.
-BrranD : « Quelques brèves explications pour préciser
+BrranD: « Quelques brèves explications pour préciser
 
-certains points de ma motion. Je n'ai eu aucune intention
+certains points de ma motion. Je n'ai aucune intention
 malveillante contre certains camarades, je m'étonne que
-De la Porte ait pu avoir cette idée alors qu'hier, au sein
+De la Porte ait avoir cette idée alors qu'hier, au sein
 de la commission, Jean Longuet et d'autres ont protesté
 
 quand on a attribué à quelques camarades des idées
@@ -707,15 +707,15 @@ motion s'est bien éclaircie et qu'alors elle devient semblable
 à la nôtre et signifie seulement que Millerand est à l'heure
 actuelle absent du Parti; que si plus tard il demande son
 admission, nous l'examinerons comme toute autre demande.
-Où donc les militants verront-ils une différence ? Les deux
+Où donc les militants verront-ils une différence? Les deux
 motions sont identiques et la vôtre ne dira même pas si
 nettement qu'il pourra y avoir lieu de demander à Millerand des explications. La motion Kautsky et la motion
-Delesalle ont tranché la question en £#€ qui concerne
+Delesalle ont tranché la question en qui concerne
 l'avenir, il ne faut donc pas donner à ma motion une intention qu'elle n'a pas. — En ce qui touche l'historique de
 l'entrée de Millerand au ministère, je dois faire encore
-remarquer que la protestation n'a eu lieu qu'après l'entrée
+remarquer que la protestation n'a lieu qu'après l'entrée
 de Millerand au ministère et non avant. »
-À VAILLANT : « Nous avons appuyé la motion De la Porte
+À VAILLANT: « Nous avons appuyé la motion De la Porte
 parce qu'elle est la réponse nette au ministérialisme, qu'elle
 ne comporte aucune équivoque. Au sujet des explications
 historiques qui ont été données, je demande à préciser
@@ -727,10 +727,10 @@ qu'on avait pensé à lui pour une combinaison, mais il le dit
 comme d'un fait rétrospectif. Je lui répondis que si des
 pourparlers semblables étaient repris, je me verrais obligé
 
-s de-déeclarer que le Parti socialiste ne participerait en rien
+de-déeclarer que le Parti socialiste ne participerait en rien
 de telles combinaisons car le socialisme ne peut participer
 à un pouvoir bourgeois, Millerand fit un geste d'acquiescement. Le groupe sortit peu à peu, je n'entendis pas la
-motion Gadenat; si je l'avais entendue, je n'aurais pas eu
+motion Gadenat; si je l'avais entendue, je n'aurais pas
 à la soutenir car je croyais que la tentative ne se renouvellerait pas et je n'aurais pas voulu admettre une participation comme possible. Je le répète, le groupe n'était pas
 convoqué à cet effet, Millerand nous racontait le fait comme
 un simple objet de curiosité et cependant des pourparlers
@@ -764,12 +764,12 @@ motion De la Porte peut seule ramener la paix dans les
 consciences, condition indispensable de l'union. Le P.S.
 comprend que la République est indispensable pour que
 nous puissions espérer obtenir les revendications que nous
-poursuivons, mais c'est derrière ce mot que la réaction versaillaise a pu fusiller les Parisiens impunément; il ny a
-pas d'autre gouvernement qui aurait pu faire passer les
+poursuivons, mais c'est derrière ce mot que la réaction versaillaise a fusiller les Parisiens impunément; il a
+pas d'autre gouvernement qui aurait faire passer les
 massacres de la Martinique et de Chalon. Pour enlever
 aux socialistes des instruments de démoralisation, il faut
 que justice soit faite dans le présent. »
- Viviani : « La franchise ordinaire du citoyen Vaillant
+Viviani: « La franchise ordinaire du citoyen Vaillant
 nous permet de montrer la discorde qui existe entre les
 défenseurs de la motion De la Porte. Il est venu dire que
 quant à lui l'exclusion de Millerand était complète, de
@@ -784,40 +784,40 @@ juste de dire que le citoyen Millerand ait demandé conseil
 et Vaillant, loyaux tous les deux, prouvent la confusion
 qui existait alors et qu'il n'y eut pas l'ordre impératif qui
 interdisait à Millerand d'entrer au ministère. On mit seu-
-lement à couvert la responsabilité du Parti socialiste. Pour_ quoi n'avez-vous pas eu le langage ferme que vous avez
-aujourd'hui ? J'admire ces jeunes hommes de vingt ans qui
-tranchent les questions de principe dans le silence du cabinet ; mais quand on est en face de problèmes redoutables,
+lement à couvert la responsabilité du Parti socialiste. Pour_ quoi n'avez-vous pas le langage ferme que vous avez
+aujourd'hui? J'admire ces jeunes hommes de vingt ans qui
+tranchent les questions de principe dans le silence du cabinet; mais quand on est en face de problèmes redoutables,
 quand on sent quelle est sa responsabilité, on hésite et l'on
 vote comme vous voterez un jour, quand vous serez dépu-
 
 tés, je l'espère; et alors, comme vos aînés, vous ressentirez
 ce que nous avons ressenti. Le citoyen De la Portea donné
 des commentaires très conciliants de sa motion. 11 me permettra de lui dire qu'il s'expose à des interprétations qui
-dépassent les siennes ; ce qui resterait d'un vote de sa proposition, c'est l'exclusion dont parle le citoyen Vaillant,
+dépassent les siennes; ce qui resterait d'un vote de sa proposition, c'est l'exclusion dont parle le citoyen Vaillant,
 dont ne parle pas le citoyen De la Porte, et il resterait une condamnation contre ceux qui ont approuvé
 le citoyen Millerand. Celui-ci ne s'est pas soutenu seul, il
-a été confirmé par nos votes et notre propagande ; et alors
-pourquoi ne serions-nous pas exclus nous-mêmes ? Voilà
+a été confirmé par nos votes et notre propagande; et alors
+pourquoi ne serions-nous pas exclus nous-mêmes? Voilà
 quelle est la situation et le procès s'étendrait jusqu'à des
 ? organisations, ce ne serait pas la préface de l'unité, mais
-la préface d'un déchirement. Que voulons-nous faire ?
-Certes nous sommes faillibles ; il faut qu'un vote unanime
+la préface d'un déchirement. Que voulons-nous faire?
+Certes nous sommes faillibles; il faut qu'un vote unanime
 dégage le Parti socialiste. Il aura le bénéfice de certains
 actes qui aident la classe ouvrière à se libérer, il n'aura
 pas la responsabilité des fautes. La justice est bien plutôt
 un sentiment individuel qu'un sentiment collectif. Qu''est- À
-ce que le ministérialisme ? Quand nous avons voté, le
+ce que le ministérialisme? Quand nous avons voté, le
 citoyen Vaillant et moi, la loi sur les associations, nous
 n'avons pas fait acte de ministérialisme. Et quand la motion
 de Briand aura été votée, nous nous retrouverons d'accord,
 nos votes auront une signification socialiste, en votant
 contre le ministère quand il sera en faute, pour lui quandil
 luttera contre les défenseurs du césarisme. »
-DE LA Porrs : « J'ai dit et je répète que par notre motion
+DE LA Porrs: « J'ai dit et je répète que par notre motion
 nous excluons du Parti le citoyen Millerand ou plu -
-tôt nous constatons qu'il s'est exclu lui-même par son entrée au ministère ; et lorsque cette clause d'exclusion aura
+tôt nous constatons qu'il s'est exclu lui-même par son entrée au ministère; et lorsque cette clause d'exclusion aura
 cessé, le citoyen Millerand aura, comme tout bourgeois, à
-solliciter son admission ; alors le Parti socialiste devra examiner sa demande, comme si elle venait de M. Méline ou
+solliciter son admission; alors le Parti socialiste devra examiner sa demande, comme si elle venait de M. Méline ou
 - de tel autre. Et lorsque le P. S. R. ajoute qu'il sera disposé « à maintenir cette exclusion, je crois pouvoir dire au nom
 de nos amis que nous serons du même avis et que nous.
 poserons nous aussi. la question préalable, à moins de circonstances nouvelles. Mais, citoyens, nous ne pouvons vous -
@@ -827,26 +827,26 @@ dans telle de vos organisations. Comment Briand veut-il
 concilier cette position d'un homme qui est en dehors du
 
 contrôle d'un parti et qui cependant ne cesse pas d'appartenir à ce parti, à moins de supprimer toutes les conditions
-de justice qui existent maintenant dans le monde ? Et si le
+de justice qui existent maintenant dans le monde? Et si le
 citoyen Millerand s'est exclu lui-même du Parti, il est bien
 évident que nous n'avons pas à l'exclure, mais il faut du
 moins le constater. Je pose pour la dernière fois la question
 
-Brraxp : « Vous aviez semblé admettre qu'il n'y aurait
+Brraxp: « Vous aviez semblé admettre qu'il n'y aurait
 pas de décision pour exclure définitivement Millerand du
 Parti socialiste, maintenant votre motion implique l'exclusion absolue de Millerand, à moins, dit le citoyen De la
-Porte, que des circonstances nouvelles. Quelles circonstances nouvelles ? »
+Porte, que des circonstances nouvelles. Quelles circonstances nouvelles? »
 
-DE LA PORTE : « Il peut y avoir beaucoup de circonstances
+DE LA PORTE: « Il peut y avoir beaucoup de circonstances
 nouvelles, les unes du fait de Millerand et les autres de
-notre propre fait ; et il y en aura une, d'après ma conviction, c'est que jamais Millerand ne demandera à rentrer
+notre propre fait; et il y en aura une, d'après ma conviction, c'est que jamais Millerand ne demandera à rentrer
 parmi nous. »
 
-BrrAND : « Je suis très satisfait de ces explications. Vous
+BrrAND: « Je suis très satisfait de ces explications. Vous
 voulez vous donner desallures d'intransigeance que d'après
 vos explications... » /Tumulte)
 
-Lavaup précise l'attitude du P. O. S.R. « On a la mauvaise foi de nous classer parmi les ministériels et nous demandons à relire notre déclaration. » /1L lit la déclaration
+Lavaup précise l'attitude du P. O. S.R. « On a la mauvaise foi de nous classer parmi les ministériels et nous demandons à relire notre déclaration. » lit la déclaration
 déjà connue)
 
 Un délégué de la Fédération de Seine-et-Oise déclare que
@@ -860,18 +860,18 @@ des signataires de la proposition De la Porte; cette décla-
 
 ration affirme que c'est pour faire tomber l'obstacle à l'unité
 que les signataires ont donné leur adhésion à la motion -
-De la Porte et ils demandent la priorité en sa faveur ; mais
-ë si elle est rejetée, ils déclarent se rallier à la proposition —
+De la Porte et ils demandent la priorité en sa faveur; mais
+si elle est rejetée, ils déclarent se rallier à la proposition —
 Briand qui n'est pas exclusive de la proposition De la
 
 Porte puisqu'elle a repris les termes de celle-ci. — La déclaration porte les signatures des citoyens Jean Longuet, Parsons, Lagardelle, etc.
-RENAUDEL : € Je me suis rallié à la proposition Briand,
+RENAUDEL: Je me suis rallié à la proposition Briand,
 parce que nous pensions qu'elle forcerait enfin tous les
 socialistes à s'incliner devant les décisions des Congrès. »
-priorité pour la proposition De la Porte et le vote par ,
+priorité pour la proposition De la Porte et le vote par,
 Le P. 0.5. R. réclame vivement la priorité pour sa déclaration.
 P. O.S.R., puis il demande qu'on vote après sur celle de
-De la Porte. {(Tumulte) “à
+De la Porte. {(Tumulte)
 Le président déclare que la première proposition parvenue
 au burcau est celle du P. O. S. R. et que les délégués de
 cette organisation ont en même temps demandé la priorité.
@@ -894,21 +894,21 @@ prolétariat nous jugerait; c'est du prolétariat que nous
 attendons en effet notre jugement. » /Tout le P.S. R. crie
 Vive la Commune! La droite siffle. Tumulte)
 
-Le président : « La séance continue. »
+Le président: « La séance continue. »
 
 Jaurès monte à la tribune. Ses amis lui font une ovation.
 Quand les applaudissements sont un peu calmés, il prend
-la parole : « Maintenant tous les voiles sont déchirés et tous
+la parole: « Maintenant tous les voiles sont déchirés et tous
 les masques sont tombés, nous savons ce que valaient les
-protestations pour l'unité ; et ceux qui nous accusaient d'être
+protestations pour l'unité; et ceux qui nous accusaient d'être
 rebelles à la discipline socialiste, ce sont ceux qui se retirent au moment où ils sont mis en minorité. Le prolétariat
 socialiste jugera. Et nous qui pouvons nous rendre cette
 justice, que nous avons fait les plus grands efforts depuis
 trois jours pour réaliser cette unité, nous n'avons qu'une
-réponse à faire à ceux qui ont déserté cette salle : c'est de Le
+réponse à faire à ceux qui ont déserté cette salle: c'est de Le
 la réaliser en nous groupant tous sous notre rouge drapeau. »
 
-RENAUDEL : « Ainsi l'irrémédiable semble accompli. Au
+RENAUDEL: « Ainsi l'irrémédiable semble accompli. Au
 nom des signataires de la déclaration lue tout à l'heure
 déclaration Parsons, Longuet, Lagardelle, etc.) et au nom
 de la Fédération autonome de Seine-et-Oise, nous affirmons
@@ -925,12 +925,12 @@ faut vous attacher désormais. »
 
 dèche, se rallie à l'union.
 
-LavauD constate que l'extrême-gauche a voté contre Lx !
+LavauD constate que l'extrême-gauche a voté contre!
 motion du P. O.S. R. Nous sommes pour l'union, mais nous
 sommes contre la disparition des organisations. “773
 RÉvVELIN demande qu'on passe immédiatement à la ques-
 tion de l'unification.
-BAGNoL dit au nom des Coopératives : « Nous ne sortirons
+BAGNoL dit au nom des Coopératives: « Nous ne sortirons
 pas de cette salle sans que l'unité soit accomplie. »
 Poxarp parle dans le même sens. É à
 Vivraxi fait appel au dévouement de tous en faveur du
@@ -941,39 +941,39 @@ La séance est suspendue. Fe.
 la reprise dela séance, RÉVELIN, au nom de la com--
 mission, fait part des travaux sur le projet d'unification.
 Celui-ci a subi des modifications très légères dues aux Rs.
-réclamations de diverses Fédérations : « Nous avons ad-
+réclamations de diverses Fédérations: « Nous avons ad-
 joint à l'article réglant l'introduction des syndicats et des
-coopératives dans le socialisme, un article disant que nul cs
+coopératives dans le socialisme, un article disant que nul
 ne peut entrer dans le Parti, s'il a été exelu de son syndicat
 en temps de grève ou exclu d'un groupe socialiste. Mais
 nous ne voulons pas régler d'avance ce que seront les rapports des syndicats et des coopératives avec le Païti poli-
 tique, nous ne voulons pas introduire à l'avance des règles
 rigides; laissant au temps le soin de les déterminer. Nous
-mesurons seulement la force des syndicats et des coopé- “à
+mesurons seulement la force des syndicats et des coopé-
 ratives par le nombre des inscrits; et comme dans la
 constitution commune, nous donnons un mandat pour
-çant qu'il va lire article par article le projet d'unification
+çant qu'il lire article par article le projet d'unification
 qui sera ainsi voté au fur et à mesure que les articles
 seront lus.
 ALLEMAXE dit qu'il est partisan de la ratification ulté
-rieure du projet par les groupes du P. O.S. R. Fe
+rieure du projet par les groupes du P. O.S.
 Des délégués du P. O.S. R. viennent déclarer qu'ils ont
 reçu mandat d'établir l'unité. D'autres délégués delamême
 organisation aflirment au contraire qu'ils ont mandat de
 maintenir les anciennes organisations sans faire une unité
 
 prématurée, mais en recherchant les moyens propres
-resserrer le plus possible les liens d'amitié entre organi- ‘
+resserrer le plus possible les liens d'amitié entre organi-
 JauRÈs voulant monter à la tribune, les guesdistes des
-tribunes crient : À Chalon, etc. — On les expulse.
-RéveLn lit l'article premier : -
+tribunes crient: À Chalon, etc. — On les expulse.
+RéveLn lit l'article premier: -
 « Le Parti socialiste français est fondé sur les principes
-suivants : Entente et action internationales des travailleurs ; organisation politique et économique du prolétariat
+suivants: Entente et action internationales des travailleurs; organisation politique et économique du prolétariat
 en parti de classe pour la conquête du pouvoir et la socialisation des moyens de production et d'échange, c'est-à-
 dire la transformation de la société capitaliste en société
 collectiviste ou communiste. »
 Cet article est adopté sans discussion, Il en est de même
-des articles suivants jusqu'à l'article 16. Voici ces articles :
+des articles suivants jusqu'à l'article 16. Voici ces articles:
 ARTICLE 2. — « IL se compose des groupes d'études et de
 propagande, des comités politiques permanents, des Ssyndicats et des coopératives qui adoptent avec ces principes
 la doctrine et la tactique du Parti. »
@@ -983,7 +983,7 @@ sont obligées d'attribuer une subvention à la propagande
 ARTICLE 4. — « Les groupes d'études et de propagande,
 les groupes politiques permanents, les syndicats et les coopératives doivent adhérer à la fédération du département
 ou de la région.
-d « Les fédérations sont tenues d'inviter, de la façon la plus
+« Les fédérations sont tenues d'inviter, de la façon la plus
 pressante, les membres de leurs groupes politiques à adhé-
 rer aux syndicats et aux coopératives du département ou
 de la région. »
@@ -998,7 +998,7 @@ quartier forment une union de commune ou de quartier.
 « Les groupes des unions de commune ou de quartier sont
 convoqués en réunion plénière au moins une fois tous les
 ; « Ils se concertent pour la propagande, désignent les candidats aux élections municipales et élisent le comité de
-ë l'union des groupes. » ‘4
+l'union des groupes. »
 ARTICLE 8. — « Les groupes d'une circonscription législative forment une section unique. Ils peuvent désigner les
 candidats et nommer un comité de section. »
 ARTICLE 9. — « Les groupes d'un département ou d'une
@@ -1025,7 +1025,7 @@ ARTICLE 15. — « Nul ne pourra être considéré commecandidat socialiste, s'i
 les principes qui ont servi de base à la constitution du
 é Parti et s'il n'est présenté par un groupe. »
 
-On décide qu'en tout ceci le mode de procéder n'aura ?
+On décide qu'en tout ceci le mode de procéder n'aura?
 lieu que pour une année, jusqu'au prochain Congrès.
 
 On adopte sans discussion les articles suivants jusqu'à
@@ -1038,7 +1038,7 @@ ARTICLE 17. — « Les délégués au Congrès national sont
 élus par les Congrès des fédérations, au scrutin de liste
 avec représentation proportionnelle des minorités. »
 « 1° Un délégué de droit, et si elle comprend plusieurs
-départements, un délégué de droit par département ;
+départements, un délégué de droit par département;
 « 2° Un délégué par deux cents membres inscrits et coti
 sants des groupes socialistes ou par fraction de deux cénts
 membres inscrits égale ou supérieure à cent;
@@ -1064,25 +1064,25 @@ FerrouL propose qu'ils soient sous le contrèle des Congrès.
 
 Le Congrès décide qu'ils seront sous le contrôle du
 
-Les articles suivants sont adoptés jusqu'à l'article 26 : FC
-ARTICLE 21.— « Le Congrès ne peut se réunir deux ans “
-de suite dans la même ville. Le Congrès désigne chaque Ex
-année le lieu où se tient le Congrès suivant. » ee
+Les articles suivants sont adoptés jusqu'à l'article
+ARTICLE 21.— « Le Congrès ne peut se réunir deux ans
+de suite dans la même ville. Le Congrès désigne chaque
+année le lieu où se tient le Congrès suivant. »
 ARTICLE 22. — « Les coopératives socialistes établissent
-dans leur Congrès les règles qui détermineront leur con- Ke
+dans leur Congrès les règles qui détermineront leur con-
 ARTICLE 93. — « Les délégués au Comité général sont élus
 par les fédérations.
 « Le nombre des délégués de chaque fédération est proportionnel au nombre de ses mandats au Congrès national.
-‘ « Lorsque la fédération a plus d'un délégué, l'élection a
+« Lorsque la fédération a plus d'un délégué, l'élection a
 lieu au scrutin de liste avec représentation proportion- à
 ARTICLE 24. — « Le Comité général se réunit au moins
-une fois tous les mois en séance ordinaire. Fe
-4 « Dans sa première réunion, il détermine le nombre et "à
+une fois tous les mois en séance ordinaire.
+4 « Dans sa première réunion, il détermine le nombre et
 les attributions des commissions qui, sous son contrôle,
 administrent le Parti.
 « Le Comité général nomme le secrétaire, le trésorier,
 l'archiviste. Les délégués qui remplissent ces fonctions
-reçoivent une indemnité. » . .
+reçoivent une indemnité. »..
 ARTICLE 25. — « Le Comité général remet aux fédérations
 les cartes d'adhérent des membres du Parti.
 « Ces cartes portent au verso la déclaration de principes
@@ -1090,7 +1090,7 @@ les cartes d'adhérent des membres du Parti.
 mier) et la signature des membres adhérents.
 « Les fédérations veillent à ce que la carte du Parti
 délivrée à chacun de leurs militants régulièrement inscrits
-porte la mention :
+porte la mention:
 « 1° Du groupe ou comité politique permanent; 3%
 « 3° De la coopérative ouvrière, dont il est adhérent. »
 . On décide de suspendre la séance, mais de tenir une. De
@@ -1121,19 +1121,19 @@ Chambre un groupe parlementaire unique. Ce groupe est
 fondé sur les mêmes principes que le Parti lui-même.
 Se « Les membres du groupe parlementaire établissent leur
 règlement intérieur. Ils doivent se réunir et se concerter
-pour réaliser autant que possible l'unité de vote ; ils peuvent
+pour réaliser autant que possible l'unité de vote; ils peuvent
 au besoin consulter le Comité général. »
 ARTICLE 31, — « Pour la propagande et pour les grèves,
 tous les membres du groupe parlementaire s'inscrivent
 tour de rôle au tableau de service.
 « Le secrétaire du groupe dresse l'état des inscriptions et
 le communique au Comité général. »
-ARTICLE 32. — « Le secrétaire du Comité général fait con49
+ARTICLE 32. — « Le secrétaire du Comité général fait
 
 naître au secrétaire du groupe parlementaire les demandes
 qui ont été adressées au Comité général.
 
-« Pour les grèves, le secrétaire du groupe délègue d'urgence les élus inscrits ; pour les réunions et les conférences,
+« Pour les grèves, le secrétaire du groupe délègue d'urgence les élus inscrits; pour les réunions et les conférences,
 le groupe examine les demandes et désigne les orateurs. »
 
 ARTICLE 33. — « Le groupe parlementaire présente chaque
@@ -1165,7 +1165,7 @@ annuel des groupes de la commune.
 « Dans chaque département, les conseillers municipaux
 socialistes préparent chaque année un rapport d'ensemble
 qui est présenté au Congrès fédéral. Ce rapport est transmis
-au Comité fédéral, imprimé et distribué aux membres des pe
+au Comité fédéral, imprimé et distribué aux membres des
 groupes un mois avant l'ouverture du Congrès.
 
 « Tous les rapports sont transmis au Comité général du
@@ -1198,14 +1198,14 @@ qu'on soupçonne en ceci les militants, auxquels on reproche
 à tort des préoccupations personnelles /Applaudissements),
 d'avoir voulu placer le Congrès sur le terrain de leurs
 On propose successivement Dijon, Nantes, Bourg, ete. Un
-crient le mot de Cambronne, d'autres Hou ! Hou ! Le spectacle
+crient le mot de Cambronne, d'autres Hou! Hou! Le spectacle
 du Congrès est lamentable.
 Finalement la ville de Tours est choisie à cause de sa
 On vote des félicitations à Révelin, pour le dévouement
 -qu'il a montré dans ses fonctions de rapporteur.
 On vote également à l'unanimité une motion en faveur
 de l'abolition de la réglementation (motion qui sera adres--
-sée au congrès abolitionniste qui va s'ouvrir le lendemain);
+sée au congrès abolitionniste qui s'ouvrir le lendemain);
 et des remerciements à la ville de Lyon pour l'hospitalité
 accordée au Congrès, ainsi qu'à la commission d'organisation pour la bonne préparation du Congrès.
 Un débat très vif et très confus s'engage sur la question
@@ -1217,7 +1217,7 @@ REexAUDEL demande qu'on étudie la question d'un jour-
 nal ofliciel du Parti. — Voté à l'unanimité.
 Rexaupez lit le manifeste rédigé par la commission et
 adressé à la France prolétarienne.Il peut se résumer en cette
-phrase : « C'est par les fédérations autonomes que l'unité
+phrase: « C'est par les fédérations autonomes que l'unité
 Des délégués du P. O.S. R. déclarent qu'ils sont pour
 l'union et non pour l'unité.
 Jaurès demande alors d'accorder quelques minutes pour
@@ -1237,13 +1237,13 @@ La commission ayant trouvé une formule qui satisfait le
 P.0.S. R. en ce qu'elle implique l'union sans détruire les
 organisations, le manifeste est voté.
 Le congrès est levé au chant de l'Internationale.
-Vers l'unité : après ce congrès le Groupe des Étu- Re
+Vers l'unité: après ce congrès le Groupe des Étu-
 
--  diants Collectivistes de Paris s'est partagé; les dissidents
-vont sans doute fonder le Groupe des Étudiants Gollectivistes Révolutionnaires. “+
+- diants Collectivistes de Paris s'est partagé; les dissidents
+vont sans doute fonder le Groupe des Étudiants Gollectivistes Révolutionnaires.
 Les deux annonces qui suivent compléteront utilement
 
-nos annonces de la deuxième série : :
+nos annonces de la deuxième série::
 
 La Bibliothèque Ouvrière Socialiste est fondée pour aider
 de tous les moyens en son pouvoir à réaliser l'énancipation des travailleurs par les travailleurs eux-mêmes.
@@ -1274,7 +1274,7 @@ Camarades ouvriers, plus grand sera le nombre des
 socialistes convaincus et éclairés, plus facile sera la lutte
 contre la réaction et la barbarie menaçantes.
 
-à Quand vous aurez lu nos petites brochures de la Bibliothèque Ouvrière Socialiste, repassez-les à vos compagnons
+à Quand vous aurez nos petites brochures de la Bibliothèque Ouvrière Socialiste, repassez-les à vos compagnons
 de labeur et de servitude, comme les anciens se passaient
 de main en main le flambeau symbolique dans leurs fêtes
 
@@ -1293,7 +1293,7 @@ que vous êtes appelés à tranformer.
 Seuls, vous devez être les artisans conscients de votre
 libération. Apprenez à penser et à conduire votre pensée.
 Rappelez-vous toujours que vous n'émanciperez vos bras
-de la servitude capitaliste que lorsque vous aurez chassé ,
+de la servitude capitaliste que lorsque vous aurez chassé,
 de vos cerveaux l'ignorance et les préjugés que vos maitres
 Vous assurerez le succès de votre Bibliothèque Ouvrière
 Socialiste, car elle sera bien à vous. Fondée sans esprit de
@@ -1314,10 +1314,10 @@ adresseront, et même par les critiques qu'ils nous feront. 4€
 La Bibliothèque Ouvrière Socialiste n'est pas une œuvre
 de secte. Notre programme est celui du Parti socialiste.
 L'unité définitive et absolue est notre idéal d'organisation
-Nous convions les représentants de toutes les écoles ve
+Nous convions les représentants de toutes les écoles
 socialistes à collaborer à notre œuvre d'une utilité incon-
 La Bibliothèque Ouvrière Socialiste contiendra quatre
-catégories de brochures qui traiteront : 1 À
+catégories de brochures qui traiteront: 1 À
 
 3) L'histoire du mouvenient et des idées socialistes.
 4) Les questions d'actualité intéressant le Parti socialiste.
@@ -1325,9 +1325,9 @@ catégories de brochures qui traiteront : 1 À
 La Bibliothèque Ouvrière Socialiste publiera les brochures
 2. Les Moyens pratiques du So-
 
-9. La Réaction nationaliste. . . . Joixpx
-12. La Question militaire, . . . . Gasrox Mocn
-14. Action ministérielle et Législation ouvrière . . . . . . . . PAUL DRAMAS
+9. La Réaction nationaliste.... Joixpx
+12. La Question militaire,.... Gasrox Mocn
+14. Action ministérielle et Législation ouvrière........ PAUL DRAMAS
 16, La Lutte politique et la Lutte
 Nous ont promis également leur concours
 
@@ -1341,14 +1341,14 @@ chie. — Le socialisme et l'action municipale. — Les syndi- à
 cats. — L'unité socialiste, ete., etc.
 La journée de huit heures. — Les grèves. — Boycottage.
 5 — Bureaux de placement. — Caisses de retraite et assurances, etc., etc.
-Biographies socialistes : Thomas Morus et Campanella,
+Biographies socialistes: Thomas Morus et Campanella,
 Lassalle, Pierre Lavroff, Michel Bakounine, César de
 Paepe, etc., etc. De:
-{Questions d'actualité intéressant le Parti socialiste) : ‘4
-F La religion à travers les âges. — Le rôle des jésuites.
+{Questions d'actualité intéressant le Parti socialiste):
+La religion à travers les âges. — Le rôle des jésuites.
 plébiscite. — La question coloniale. — La liberté de l'enseignement et les congrégations.
-Nota. — Nous prions tous ceux qui voudraient écrire sur les _
-sujets ci-dessus indiqués de s'adresser au Secrétaire-Administrateur *à
+Nota. — Nous prions tous ceux qui voudraient écrire sur les
+sujets ci-dessus indiqués de s'adresser au Secrétaire-Administrateur
 de la Bibliothèque. —
 Le prix de chaque brochure, de 16 à 32 pages, est fixé
 Le Comité de rédaction est composé des citoyens: ALDABE,
@@ -1368,7 +1368,7 @@ de réunion où les travailleurs puissent venir, leur tâche
 accomplie, se reposer, s'instruire et se distraire
 De former directement de telles associations
 quatorzième cahier de la deuxième série
-De mettre en rapport les différentes associations qui ‘7
+De mettre en rapport les différentes associations qui
 
 auront adhéré à la Société sous les conditions fixées “23
 
@@ -1377,24 +1377,24 @@ ARTICLE 3. — L'Association n'a aucun caractère politique ou religieux.
 ARTICLE 4. — La Société publie un bulletin, centralise Re,
 
 les documents et toutes les demandes venant des associations adhérentes, fournit tous renseignements utiles,
-statuts et programmes, etc., fait tous actes de propa- É-
+statuts et programmes, etc., fait tous actes de propa-
 ARTICLE 5. — Le siège de la Société est établi Hôtel
 des Sociétés Savantes, 28, rue Serpente.
 Il pourra être changé par décision du Comité d'ad- À
 ARTICLE 6. — Pour faire partie de l'Association, il
-faut : 1° être présenté par deux membres au moins de “4
+faut: 1° être présenté par deux membres au moins de “4
 l'Association; 2° être admis par le Comité d'administra- À
 
 tion, ce comité prononçant l'admission au scrutin secret
-à la majorité des deux tiers des membres présents; +")
-3° verser une cotisation. Re
+à la majorité des deux tiers des membres présents;
+3° verser une cotisation.
 
-Les mineurs ne peuvent faire partie de l'Association ee
+Les mineurs ne peuvent faire partie de l'Association
 qu'avec le consentement de leurs parents ou tuteurs. “10
 
 ARTICLE 7. — L'Association est dirigée par un Comité
 d'administration de trente membres. Le Comité se renou-
-(1) Ce siège a été transféré 16, rue de la Sorbonne, au second. È .
+(1) Ce siège a été transféré 16, rue de la Sorbonne, au second.
 
 velle par quart chaque année, les membres sortants sont
 
@@ -1424,9 +1424,9 @@ adjoints, toutes fonctions utiles à la bonne administration,
 sous le contrôle du Comité.
 
 ARTICLE 12. — Le Trésorier est comptable et chargé des
-recouvrements ; il a la charge des livres et de la caisse.
+recouvrements; il a la charge des livres et de la caisse.
 
-d ARTICLE 13. — Le Comité d'administration se réunit tous
+ARTICLE 13. — Le Comité d'administration se réunit tous
 les mois, et chaque fois qu'il est convoqué par son président, et sur la demande du quart de ses membres. Il est
 tenu registre des procès-verbaux des séances.
 
@@ -1439,23 +1439,23 @@ quatorzième cahier de la deuxième série
 Comité de Propagande
 ARTICLE 15. — Le Comité d'administration s'adjoint
 telles personnes qu'il juge utile pour former le Comité
-de propagande. Ces personnes sont choisies : 1° parmi
+de propagande. Ces personnes sont choisies: 1° parmi
 les membres des différentes associations adhérentes;
 2° en dehors des associations, parmi les personnes qui
 peuvent rendre service à la Société en raison de leur
 ARTICLE 16. — Le Comité de propagande est convo-
 qué périodiquement par le Comité d'administration.
-Il est consultatif. ,
+Il est consultatif.,
 Ses réunions sont ouvertes à tous les sociétaires et
 aux personnes présentées par les sociétaires.
 Ressources annuelles et Fonds de réserve De.
-ARTICLE 17. — Les recettes de l'Association sont les sui- 3 Evanies : à
+ARTICLE 17. — Les recettes de l'Association sont les sui- 3 Evanies: à
 2° Le produit des fêtes, conférences, représentations, etc.,
-données au profit de la Société ; CS
+données au profit de la Société;
 3° Le revenu des fonds disponibles et constituant le capital
 de réserve, les fonds ne pouvant être placés qu'en rentes
 sur l'État, obligations du Crédit foncier ou valeurs garanties par l'Etat ou les communes
 4° Les dons, concessions et autres libéralités.
 ARTICLE 18. — Le minimum de la cotisation annuelle est
 fixé à 6 francs. Elle peut être payée en deux fois.
-La cotisation est due intégralement pour l'année de Vadmission. . <
+La cotisation est due intégralement pour l'année de Vadmission..

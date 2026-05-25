@@ -7,7 +7,7 @@ author: anatole-france
 isAvertissement: false
 wordCount: 9863
 ---
-de [a Quinzaine
+de Quinzaine
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
@@ -27,7 +27,7 @@ La Vie littéraire, quatre volumes.
 
 de la Quinzaine
 
-8, rue de la Sorbonne, au rez-de-chaussée ur PAU à LR
+8, rue de la Sorbonne, au rez-de-chaussée PAU à
 Dans le troisième cahier de la première série, daté du
 5 février 1900, aujourd'hui épuisé, nous avons publié,
 d'après les journaux du jeudi 23 novembre 1899, le
@@ -53,7 +53,7 @@ utile et ce qui est vraiment beau.
 Les connaissances utiles à la vie ne sont pas seulement celles des métiers et des arts. S'il est néces-
 
 De saire que chacun sache son métier, ilest utile à
-| chacun d'interroger la nature qui nous a formés et
+chacun d'interroger la nature qui nous a formés et
 
 la société dans laquelle nous vivons. Quel que soit
 notre état parmi nos semblables, nous sommes
@@ -63,7 +63,7 @@ et c'est en recherchant les causes de cette dépendance que nous pourrons imagin
 la rendre plus facile et plus douce. C'est parce que
 les découvertes des grandes lois physiques qui régissent les mondes ont été lentes, tardives, longtemps renfermées dans un petit nombre d'intelligences, qu'une morale barbare, fondée sur une
 fausse interprétation des phénomènes de la nature,
-a pu s'imposer à la masse des hommes et les soumettre à des pratiques imbéciles et cruelles.
+a s'imposer à la masse des hommes et les soumettre à des pratiques imbéciles et cruelles.
 Croyez-vous, par exemple, citoyens, que, si les
 savants avaient connu plus tôt la vraie situation du
 globe terrestre tournant en compagnie de quelques
@@ -71,17 +71,17 @@ autres globes, ses frères, autour d'un soleil qui nage
 lui-même dans l'espace infini, peuplé d'une multitude d'autres soleils, pères ardents et lumineux
 d'une multitude de mondes, pensez-vous que, si
 dans les siècles anciens un grand nombre d'hommes
-avaient eu cette juste idée de l'univers et y avaient
-suffisamment attaché leur pensée, il eût été possible de les effrayer en leur faisant croire qu'il ya
-sous terre un enfer et des diables ? C'est la science
+avaient cette juste idée de l'univers et y avaient
+suffisamment attaché leur pensée, il eût été possible de les effrayer en leur faisant croire qu'il
+sous terre un enfer et des diables? C'est la science
 
-Û qui nous affranchit de ces grossières imaginations et
+qui nous affranchit de ces grossières imaginations et
 
-| de ces vaiïnes terreurs, que certes vous avez rejetées
+de ces vaiïnes terreurs, que certes vous avez rejetées
 
-| loin de vous. Et ne voyez-vous pas que de l'étude de la nature vous tirerez une foule de conséquences
+loin de vous. Et ne voyez-vous pas que de l'étude de la nature vous tirerez une foule de conséquences
 morales qui rendront votre pensée plus assurée et
-plus tranquille ?
+plus tranquille?
 
 La connaissance de l'être humain n'est pas moins
 
@@ -95,12 +95,12 @@ de l'évolution de notre race.
 La connaissance des progrès accomplis vous permettra de pressentir, de solliciter les progrès futurs.
 Peut-être voudrez-vous vous tenir de préférence
 dans des temps voisins du nôtre et rechercher dans
-un passé récent l'origine de l'état actuel de la société. Là encore, là surtout l'étude vous sera d'un
+un passé récent l'origine de l'état actuel de la société. encore, surtout l'étude vous sera d'un
 grand profit. En recherchant comment s'est formée
 et accrue la force capitaliste, vous jugerez mieux des moyens qu'il faut employer pour la maîtriser, à
 
-_ lexemple de ces grands inventeurs qui n'ont
-| asservi la nature qu'après l'avoir parfaitement
+lexemple de ces grands inventeurs qui n'ont
+asservi la nature qu'après l'avoir parfaitement
 
 Vous étudierez les faits de bonne foi, sans parti pris ni système préconçu. Les vrais savants — et
 j'en vois ici — vous diront que la science veut garder son indépendance et sa liberté, et qu'elle ne se
@@ -118,15 +118,15 @@ actuelle. Votre association est constituée pour vous
 solliciter les uns les autres à penser et à réfléchir à
 la place des privilégiés qui ne s'en donnent plus la
 peine et pour vous assurer ainsi une part dans l'élaboration d'un ordre de choses nouveau et meilleur,
-| puisque, malgré les coups de force, c'est la pensée qui
+puisque, malgré les coups de force, c'est la pensée qui
 conduit le monde, comme la boussole dans la tempête montre encore la route aux navires.
 
 Votre association recherche ce qu'il y a de plus
 utile à connaître dans la science. Elle vous découvrira ce qu'il y a de plus agréable à considérer dans
 l'art. Ne vous refusez pas à mêler dans vos études
 l'agréable à l'utile. D'ailleurs, comment les séparer,
-si l'on a un peu de philosophie ? Comment marquer
-le point où finit l'utile et où commence l'agréable ?
+si l'on a un peu de philosophie? Comment marquer
+le point où finit l'utile et où commence l'agréable?
 
 Une chanson, est-ce que cela ne sert à rien? La
 Marseillaise et la Carmagnole ont renversé les armées des rois et des empereurs. Est-ce qu'un sourire
@@ -137,13 +137,13 @@ qu'il ne faut rien accorder à l'agrément dans la vie.
 Ne les écoutez pas. Une longue tradition religieuse
 qui pèse encore sur nous enseigne que la privation,
 la souffrance et la douleur sont des biens désirables
-et qu'il y a des mérites spéciaux attachés à la privation volontaire. Quelle imposture ! C'est en disant
+et qu'il y a des mérites spéciaux attachés à la privation volontaire. Quelle imposture! C'est en disant
 aux peuples qu'il faut souffrir en ce monde pour
 être heureux dans l'autre qu'on a obtenu d'eux une
 pitoyable résignation à toutes les oppressions et à
 toutes les iniquités. N'écoutons pas les prêtres qui
 enseignent que la souffrance est excellente. C'est la
-joie qui est bonne !
+joie qui est bonne!
 
 Nos instincts, nos organes, notre nature physique
 et morale, tout notre être nous conseille de chercher
@@ -161,7 +161,7 @@ en force et en beauté.
 Et il est temps, citoyens, qu'on sente votre force,
 et que votre volonté, plus claire et plus belle, s'impose pour établir un peu de raison et d'équité dans
 un monde qui n'obéit plus qu'aux suggestions de
-l'égoïsme et de la peur. Nous avons vu ces derniers
+l'égoïsme et de la peur. Nous avons ces derniers
 temps la société bourgeoise et ses chefs incapables
 de nous assurer la justice, je ne dis pas la justice
 idéale et future, mais seulement la vieille justice
@@ -179,7 +179,7 @@ de la justice sociale et de la paix universelle.
 Dans le même cahier nous avons publié, d'après le
 Figaro du mercredi 3 janvier 1900, de l'Histoire contemporaine, le conte intitulé Clopinel; d'après le Figaro
 du mercredi 10 janvier, de la même histoire, l'article
-intitulé Après Clopinel; et d'après le Figaro du mer- credi I 7 janvier, de la méme histoire, la conclusion de
+intitulé Après Clopinel; et d'après le Figaro du mer- credi 7 janvier, de la méme histoire, la conclusion de
 l'article intitulé Spectacle consolant; cette conclusion
 est des Universités populaires. Ces différents articles
 et celui que nous avons reproduit portaient dans le
@@ -192,7 +192,7 @@ France pour la Célébration de Diderot.
 
 Nous publions ci-après, sur la copie de l'auteur, et
 avec son assentiment très bienveillant, plusieurs fragments de l'Histoire contemporaine. Les fragments que
-l'on va lire n'ont jamais été réunis en volume.
+l'on lire n'ont jamais été réunis en volume.
 
 — C'était au printemps de 1895, j'avais vingt ans.
 Nouveau venu à Paris, je traversais des temps difficiles. Cette nuit-là je m'étais étendu dans un taillis
@@ -204,7 +204,7 @@ moments d'une impression d'inquiétude.
 M. Goubin essuya les verres de son lorgnon. Il
 avait les yeux tendres et le regard dur. Il examina
 minutieusement Jean Marteau et lui dit avec plus
-de surprise que de sympathie :
+de surprise que de sympathie:
 — Vous dites que vous n'aviez pas mangé depuis
 
 — C'est vrai, répondit Jean Marteau; je n'avais
@@ -242,7 +242,7 @@ d'assurer à chacun ce qui lui revient, au riche sa
 richesse et au pauvre sa pauvreté.
 
 — J'ai médité la philosophie du droit, dit M. Bergeret, et j'ai reconnu que toute la justice sociale
-reposait sur ces deux axiomes : Le volest condamnable. Le produit du volest sacré. Ce sont là les
+reposait sur ces deux axiomes: Le volest condamnable. Le produit du volest sacré. Ce sont les
 principes qui assurent la sécurité des individus et
 maintiennent l'ordre dans l'État. Si l'un de ces
 principes tutélaires était méconnu, la société tout
@@ -255,14 +255,14 @@ ramenaient les jeunes filles et les jeunes garçons de
 la tribu voisine et rapportaient des pierres tombées
 du ciel, qui étaient précieuses parce qu'on en faisait
 des épées qui ne pliaient pas. Le chef monta sur un
-tertre, au milieu de l'enceinte, et dit : « Ces esclaves
+tertre, au milieu de l'enceinte, et dit: « Ces esclaves
 et ce fer, que j'ai pris à des hommes faibles et
 méprisables, sont à moi. Quiconque étendra la main
 dessus sera frappé de ma hache. » Telle est l'origine des loïs. Leur esprit est antique est barbare.
-_ Et c'est parce que la justice est la consécration
+Et c'est parce que la justice est la consécration
 de toutes les injustices, qu'elle rassure tout le
 monde. » Un juge peut être bon, car les hommes ne sont
-pas tous méchants ; la loi ne peut pas être bonne,
+pas tous méchants; la loi ne peut pas être bonne,
 
 parce qu'elle est antérieure à toute idée de bonté.
 Les changements qu'on y a apportés dans la suite
@@ -281,7 +281,7 @@ mal. Ils ont les mêmes préjugés, et une morale
 — Il n'en saurait être autrement, dit Jean Marteau. Un malheureux qui a volé à un étalage une
 saucisse ou une paire de souliers n'a pas pour cela
 
-| pénétré d'un regard profond et d'un esprit intrépide
+pénétré d'un regard profond et d'un esprit intrépide
 les origines du droit et les fondements de la justice. Et ceux qui, comme nous, n'ont pas craint de
 voir la consécration de la violence et de l'iniquité à
 l'origine des Codes, ceux-là sont incapables de voler
@@ -289,7 +289,7 @@ un centime.
 
 — Mais enfin, dit M. Goubin, il y a des lois
 
-— Croyez-vous ? demanda Jean Marteau.
+— Croyez-vous? demanda Jean Marteau.
 
 — M. Goubin a raison, dit M. Bergeret. Il y a
 des lois justes. Mais la loi, étant instituée pour la
@@ -308,7 +308,7 @@ dans des jours plus doux.
 
 — On les corrige, répondit M. Bergeret. La
 Chambre et le Sénat y travaillent quand ils n'ont
-pas autre chose à faire. Mais le fond subsiste : il
+pas autre chose à faire. Mais le fond subsiste: il
 est àpre. À vrai dire, je ne craindrais pas beaucoup
 les mauvaises lois si elles étaient appliquées par
 de bons juges. La loi est inflexible, dit-on. Je ne le
@@ -334,7 +334,7 @@ compter que s'il fait paraître une morale supérieure
 et soulèvera l'indignation générale, Car nous appelons immoralité toute morale qui n'est point la
 nôtre. Tous ceux qui ont apporté un peu de bonté
 nouvelle au monde essuyèrent le mépris des honnêtes gens. C'est bien ce qui est arrivé au président
-Magnaud. » J'ai là ses jugements réunis en un petit volume
+Magnaud. » J'ai ses jugements réunis en un petit volume
 et commentés par Henry Leyret. Ces jugements,
 quand ils furent prononcés, indignèrent les magistrats austères et les législateurs vertueux. Ils témoignent de l'esprit le plus élevé et de l'âme la plus
 tendre. Ils sont pleins de pitié, ils sont humains,
@@ -343,10 +343,10 @@ ils sont vertueux. On estima dans la magistrature
 que le président Magnaud n'avait pas l'esprit juridique, et les amis de M. Méline l'accusèrent de ne
 point assez respecter la propriété. Et il est vrai que
 les « attendus » dont s'appuient les jugements de
-M. le président Magnaud sont singuliers ; car on y
+M. le président Magnaud sont singuliers; car on y
 rencontre à chaque ligne les pensées d'un esprit
 
-_ libre et les sentiments d'un cœur généreux. »
+libre et les sentiments d'un cœur généreux. »
 
 M. Bergeret, prenant sur la table un petit volume
 rouge, le feuilleta et lut
@@ -367,20 +367,20 @@ la loi, ne doit pas être seulement limité au cas spé-
 cial qui lui est soumis, mais s'étendre encore aux
 conséquences bonnes ou mauvaises que peut produire sa sentence dans un intérêt plus général. »
 
-. « € C'est l'ouvrier seul qui produit, et qui expose
+. « C'est l'ouvrier seul qui produit, et qui expose
 sa santé ou sa vie au profit exclusif du patron, lequel ne peut compromettre que son capital. » » Et j'ai cité presque au hasard, ajouta M. Bergeret en fermant le livre. Voilà des paroles nou-
 
-. velles et qui rendent le son d'une grande âme ! »
+. velles et qui rendent le son d'une grande âme! »
 
 Il y a environ dix ans, peut-être plus, peut-être
 moins, je visitai une prison de femmes. C'était un
-ancien château construit sous Henri IV et dont les
+ancien château construit sous Henri et dont les
 hauts toits d'ardoise dominaient une sombre petite
 ville du Midi, au bord d'un fleuve. Le directeur de
 cette prison paraissait toucher à l'âge de la retraite;
 il portait une perruque noire et une barbe blanche.
 C'était un directeur extraordinaire. Il pensait par
-_ lui-même et avait des sentiments humains. Il ne se
+lui-même et avait des sentiments humains. Il ne se
 faisait pas d'illusions sur la moralité de ses trois
 cents pensionnaires, mais il n'estimait pas qu'elle
 fût bien au-dessous de la moralité de trois cents
@@ -389,8 +389,8 @@ femmes prises au hasard dans une ville.
 me dire de son regard doux et las.
 Quand nous traversämes la cour, une longue
 file de détenues achevait la promenade silencieuse
-_ et regagnait les ateliers. Il ÿ avait beaucoup de
-| _ vieilles, l'air brut et sournoïs. Mon ami le docteur
+et regagnait les ateliers. Il avait beaucoup de
+vieilles, l'air brut et sournoïs. Mon ami le docteur
 
 Cabane, qui nous accompagnait, me fit remarquer que presque toutes ces femmes avaient des tares
 caractéristiques, que le strabisme était fréquent
@@ -405,7 +405,7 @@ toujours très différents des innocents.
 
 Il nous mena dans les ateliers. Nous vîmes les
 boulangères, les blanchisseuses, les lingères à
-l'ouvrage. Le travail et la propreté mettaient là
+l'ouvrage. Le travail et la propreté mettaient
 presque un peu de joie. Le directeur traitait toutes
 ces femmes avec bonté. Les plus stupides etles plus
 méchantes ne lui faisaient pas perdre sa patience
@@ -427,11 +427,11 @@ l'appliquer. Et je l'explique moi-même aux détenues. Le règlement prescrit, p
 absolu. Or, si elles gardaient absolument le silence,
 elles deviendraient toutes idiotes ou folles. Je pense,
 je dois penser, que ce n'est pas cela que veut le
-règlement. Je leur dis : le règlement vous ordonne
-de garder le silence. Qu'est-ce que cela signifie ?
+règlement. Je leur dis: le règlement vous ordonne
+de garder le silence. Qu'est-ce que cela signifie?
 Cela signifie que les surveillantes ne doivent pas
 vous entendre. Si l'on vous entend, vous serez
-punies ; si l'on ne vous entend pas, on n'a pas de
+punies; si l'on ne vous entend pas, on n'a pas de
 reproche à vous faire. Je n'ai pas à vous demander
 compte de vos pensées. Si vos paroles ne font pas
 plus de bruit que vos pensées, je n'ai pas à vous
@@ -442,11 +442,11 @@ est suivie.
 Je lui demandai si ses supérieurs hiérarchiques
 approuvaient cette interprétation du règlement.
 
-I1 me répondit que les inspecteurs lui faisaient
+me répondit que les inspecteurs lui faisaient
 
 souvent des reproches; qu'alors il les conduisait
 jusqu'à la porte extérieure et leur disait: « Vous
-voyez cette grille ; elle est en bois. Si l'on enfermait
+voyez cette grille; elle est en bois. Si l'on enfermait
 ici des hommes, au bout de huit jours il n'en resterait pas un. Les femmes n'ont pas l'idée de s'évader. Mais il est prudent de ne pas les rendre enragées. Le régime de la prison n'est pas déjà très
 favorable à leur santé physique et morale. Je ne me
 charge plus de les garder si vous leur imposez la
@@ -461,7 +461,7 @@ affolées dontles plateauxse choquaient comme des
 cymbales. Cette déesse tournait la pointe de son
 glaive contre une petite malade couchée dans un
 lit de fer, sur un matelas aussi mince qu'une serviette pliée. On eût dit un enfant.
-— Eh bien! cela va mieux? demanda le docteur
+— Eh bien! cela mieux? demanda le docteur
 
 Et elle sourit.
 
@@ -474,7 +474,7 @@ dit le docteur Cabane.
 
 Et nous passâmes.
 
-— Pour quel délit a-t-elle été condamnée ?
+— Pour quel délit a-t-elle été condamnée?
 
 — Ce n'est pas pour un délit, c'est pour un
 
@@ -484,26 +484,26 @@ et dont les fenêtres, qui n'étaient pas grillées, donnaïent sur la campagne.
 jolie, écrivait devant un bureau. Debout près d'elle,
 une autre, très bien faite, cherchait une clef dans
 un trousseau pendu à sa ceinture. J'aurais cru volontiers que ce fussent les filles du directeur. IL
-_ m'avertit que c'étaient deux détenues.
+m'avertit que c'étaient deux détenues.
 
-— Vous n'avez pas vu qu'elles ont le costume de
-| la maison?
+— Vous n'avez pas qu'elles ont le costume de
+la maison?
 
 Je ne l'avais pas remarqué, sans doute parce qu'elles ne le portaient pas comme les autres.
 
 ï — Leurs robes sont mieux faites et leurs bonnets,
-b plus petits, laissent voir leurs cheveux.
+plus petits, laissent voir leurs cheveux.
 
 — C'est, me répondit le vieux directeur, qu'il est
 bien difficile d'empêcher une femme de montrer
 ses cheveux, quand ils sont beaux. Celles-ci sont
 soumises au régime commun et astreintes au
 
-— Que font-elles ?
+— Que font-elles?
 
 — L'une est archiviste et l'autre bibliothécaire.
 
-Il n'y avait pas besoin de le demander : c'étaient
+Il n'y avait pas besoin de le demander: c'étaient
 deux « passionnelles ». Le directeur ne nous cacha
 pas qu'aux délinquantes il préférait les criminelles.
 
@@ -514,7 +514,7 @@ capables de droiture, de courage et de générosité.
 Je n'en dirais pas autant de mes voleuses. Leurs,
 délits, qui restent médiocres et vulgaires, forment le tissu de leur existence. Elles sont incorrigibles.
 
-Ei cette bassesse, qui leur fit commettre des actes
+cette bassesse, qui leur fit commettre des actes
 répréhensibles, se retrouve à tout instant dans leur
 conduite. La peine qui les atteint est relativement
 légère et, comme elles ont peu de sensibilité physique et morale, elles la supportent le plus souvent avec facilité. » Ce n'est pas à dire, ajouta-t-il vivement, que ces
@@ -523,14 +523,14 @@ méritent point qu'on s'intéresse à elles. Plus je vis,
 plus je m'aperçois qu'il n'y a pas de coupables et
 qu'il n'y a que des malheureux. »
 
-I nous fit entrer dans son cabinet et donna à un
+nous fit entrer dans son cabinet et donna à un
 surveillant l'ordre de lui amener la détenue
 
 — Je vais, nous dit-il, vous donner un spectacle
 que je n'ai point préparé, je vous prie de le croire,
 et qui vous inspirera sans doute des réflexions
 neuves sur les délits et les peines. Ce que vous allez
-voir et entendre, je l'ai vu et entendu cent fois
+voir et entendre, je l'ai et entendu cent fois
 
 . dans ma vie.
 
@@ -551,10 +551,10 @@ vite dans sa tête.
 
 Cette fois elle comprit, ses mains se soulevèrent
 dans un geste de détresse, ses lèvres tremblèrent
-— C'est-il vrai qu'il faut que je m'en aille ? Alors
+— C'est-il vrai qu'il faut que je m'en aille? Alors
 qu'est-ce que je vas devenir? Ici j'étais nourrie,
 vêtue, et tout. Est-ce que vous pourriez pas le dire
-à ce bon monsieur, qu'il vaut mieux que je reste où je suis ?
+à ce bon monsieur, qu'il vaut mieux que je reste où je suis?
 
 Il l'avertit qu'à son départ elle recevrait une certaine somme, dix ou douze francs.
 Elle sortit en pleurant.
@@ -568,7 +568,7 @@ Elle a volé un tablier à ses maîtres... Vol domesti-
 Ce fut en peinture. J'avais passé en Belgique pour
 échapper à un magistrat curieux, qui voulait que
 j'eusse comploté avec des anarchistes. Je ne connaissais pas mes complices et mes complices ne me
-connaissaient pas. Ce n'était pas là une difficulté
+connaissaient pas. Ce n'était pas une difficulté
 pour ce magistrat. Rien ne l'embarrassait. Rien ne
 l'instruisait et il instruisait toujours. Sa manie me
 parut redoutable. Je passai en Belgique et je m'arrétai à Anvers, où je trouvai une place de garçon
@@ -581,7 +581,7 @@ juges, chevelus et barbus, portent, comme les rois
 des vieilles Bibles flamandes, une coiffure bizarre
 et magnifique qui tient à la fois du bonnet de nuit
 et du diadème. Leurs robes de brocart sont toutes
-fleuries. Le vieux maître a su leur donner un air de
+fleuries. Le vieux maître a leur donner un air de
 
 Anatole France gravité, de calme et de douceur. Leurs chevaux sont doux et calmes comme eux. Pourtant ils n'ont, ces juges, ni le même caractère ni la même doctrine.
 
@@ -598,7 +598,7 @@ les sépare du public, je les écoutai parler. Le premier juge dit
 loi fut écrite sur la pierre, en signe qu'elle durerait
 autant quele monde.
 
-L'autre juge répondit :
+L'autre juge répondit:
 — Toute loi écrite est déjà périmée. Car la main
 du scribe est lente et l'esprit des hommes est agile
 et leur destinée mouvante. É du
@@ -627,11 +627,11 @@ comme lui, et comme lui perfectible.
 
 PREMIER JUGE. — Juge, ouvre ton livre et lis
 ce qui est écrit. Car c'est Dieu qui l'a dicté à ceux
-qui croyaient en lui : Sic locutus est patribus nostris
-Abraham et semini ejus in sæcula.
+qui croyaient en lui: Sic locutus est patribus nostris
+Abraham et semini ejus sæcula.
 
 SECOND JUGE. — Ce qui est écrit par les morts
-_ sera biffé par les vivants, sans quoi la volonté de
+sera biffé par les vivants, sans quoi la volonté de
 . ceux qui ne seront plus s'imposerait à ceux qui sont
 
 encore, et ce sont les morts qui seraient les vivants,
@@ -651,7 +651,7 @@ PREMIER JUGE. — Les premières lois nous furent révélées par la Sagesse inf
 d'autant meilleure qu'elle est plus proche de cette
 SECOND JUGE. — Ne voyez-vous point qu'on en
 fait chaque jour de nouvelles, et que les Constitutions et les Codes sont différents selon les temps et
-selon les contrées ?
+selon les contrées?
 
 PREMIER JuGE. — Les nouvelles lois sortent des
 anciennes. Ce sont les jeunes branches du même
@@ -672,7 +672,7 @@ compatible avec le respect que nous leur devons.
 
 SECOND JUGE. — Si nous n'en voyons pas les
 
-* rigueurs, comment pourrons-nous les adoucir ?
+rigueurs, comment pourrons-nous les adoucir?
 
 PREMIER JUGE. — Nous sommes des juges, et
 non pas des législateurs et des philosophes.
@@ -696,9 +696,9 @@ toute de Dieu, si elle était toute de l'homme, il faudrait l'appliquer à la le
 et l'esprit flotte.
 SECOND JUGE. — La loi est tout entière de
 l'homme et elle naquit imbécile et cruelle dans les
-faibles commencements de la raison humaine. Mais |
-F fût-elle d'essence divine, il en faudrait suivre l'es- À
-prit et non la lettre, parce que la lettre est morte et !
+faibles commencements de la raison humaine. Mais
+fût-elle d'essence divine, il en faudrait suivre l'es- À
+prit et non la lettre, parce que la lettre est morte et!
 que l'esprit est vivant.
 Ayant ainsi parlé, les deux juges intègres
 mirent pied à terre et se rendirent avec leur escorte
@@ -726,14 +726,14 @@ création, et qu'il espérait bien que son règne arriverait tôt ou tard.
 ajouta-t-il, il faudra, comme tu dis, instituer la
 police des villes. Je voudrais qu'alors les lois des
 
-_ chevaux fussent chevalines, je veux dire favorables aux chevaux, et pour le bien hippique.
+chevaux fussent chevalines, je veux dire favorables aux chevaux, et pour le bien hippique.
 
-\ — Comment l'entends-tu, Roussin ? demanda
+— Comment l'entends-tu, Roussin? demanda
 
-{ — Je l'entends comme il faut. Je demande que
-4 _ les lois assurent à chacun sa part de picotin et sa
+— Je l'entends comme il faut. Je demande que
+4 les lois assurent à chacun sa part de picotin et sa
 
-place à l'écurie ; et qu'il soit permis à chacun d'aimer à son gré, durant la saison. Car il y a temps
+place à l'écurie; et qu'il soit permis à chacun d'aimer à son gré, durant la saison. Car il y a temps
 pour tout. Je veux enfin que les lois chevalines
 soient en conformité avec la nature.
 
@@ -742,13 +742,13 @@ Ils feront des lois sous l'inspiration du cheval céleste
 qui a créé tous les chevaux. Il est souverainement
 bon, puisqu'il est souverainement puissant. La puissance et la bonté sont ses attributs. Il a destiné ses
 créatures à supporter le frein, à tirer le licol, à sentir l'éperon et à crever sous les coups. Tu parles
-d'aimer, camarade : il a voulu que beaucoup d'entre
+d'aimer, camarade: il a voulu que beaucoup d'entre
 nous fussent faits hongres. C'est son ordre. Les lois
 devront maintenir cet ordre adorable.
 
 — Mais es-tu bien sûr, ami, demanda Rous-
 
-F sin, que ces maux viennent du cheval céleste qui
+sin, que ces maux viennent du cheval céleste qui
 nous a créés, et non pas seulement de l'homme, sa
 — Les hommes sont les ministres et les anges
 du cheval céleste, répondit Blanchet. Sa volonté
@@ -762,7 +762,7 @@ par édits, arrêts, décrets, sentences et ordonnances,
 pour complaire au cheval céleste. » Il faut, Roussin, ajouta Blanchet, il faut que tu
 aies une tête d'onagre, puisque tu ne comprends
 pas que le cheval a été mis au monde pour souffrir,
-que s'il ne souffre pas, il va en sens contraire de.
+que s'il ne souffre pas, il en sens contraire de.
 ses fins, et que le cheval céleste se détourne des
 
 Ayant pénétré plusieurs pensées de mon chien (.
@@ -775,7 +775,7 @@ en s'approchant et deviennent énormes quand ils
 sont sur moi. Moi non. Je demeure toujours aussi
 grand partout où je suis.
 
-Quand le maître me tend sous la table sa nourriture, qu'il va mettre dans sa bouche, c'est pour me
+Quand le maître me tend sous la table sa nourriture, qu'il mettre dans sa bouche, c'est pour me
 tenter et me punir si je succombe à la tentation.
 Car je ne puis croire qu'il se prive pour moi.
 
@@ -788,7 +788,7 @@ une dalle chaude. Cette dalle est divine.
 
 Je parle quand je veux. De la bouche du maître
 il sort aussi des sons qui forment des sens. Mais
-ces sens sont bien moins distincts que ceux que ‘2
+ces sens sont bien moins distincts que ceux que
 j'exprime par les sons de ma voix. Dans ma bouche
 tout a un sens. Dans celle du maître il y a beaucoup de vains bruits. Il est difficile et nécessaire de À
 deviner la pensée du maître.
@@ -801,9 +801,9 @@ les animaux et les choses sont rangés, hostiles ou
 favorables, autour de moi.
 
 On voit dans le sommeil des hommes, des chiens,
-ï des maisons, des arbres, des formes aimables et des ?
+ï des maisons, des arbres, des formes aimables et des?
 
-| formes terribles. Et quand on s'éveille, ces formes
+formes terribles. Et quand on s'éveille, ces formes
 ont disparu.
 
 Méditation. J'aime mon maître Bergeret parce
@@ -829,10 +829,10 @@ autre chien. Et toi Angélique la cuisinière, divinité
 très bonne et très grande, je te crains et je te vénère afin que tu me donnes beaucoup à manger.
 Un chien qui n'a pas de piété envers les hommes
 et qui méprise les fétiches assemblés dans la maison à
-du maître mène une vie errante et misérable. !
+du maître mène une vie errante et misérable.!
 
 Un jour, un broc percé, rempli d'eau, qui traversait le salon, mouilla le parquet ciré. Je pense que
-ce broc malpropre fut fessé. %
+ce broc malpropre fut fessé.
 
 Les hommes exercent cette puissance divine
 d'ouvrir toutes les portes. Je n'en puis ouvrir seul
@@ -866,7 +866,7 @@ membre de l'Académie française, Président de la Section du quartier de la Por
 dissement), à l'assemblée générale extraordinaire, du
 Ligue française pour la défense
 des Droits de l'Homme et du Citoyen.
-Comme le porte le procès-verbal de la méme assemblée, le discours que l'on va relire a été affiché par les
+Comme le porte le procès-verbal de la méme assemblée, le discours que l'on relire a été affiché par les
 soins de la Ligue.
 
 Il y a un petit conte de nourrice qu'on retrouve
@@ -886,7 +886,7 @@ domestique et paisible. (Rires prolongés) Quelle
 
 Sous leur première figure, il vous en souvient,
 citoyens, c'étaient des Hippogriffes et des
-Tarasques ; c'étaient des géants, des ogres affamés
+Tarasques; c'étaient des géants, des ogres affamés
 
 Anatole France de chair humaïne. Ils ne parlaient que de « décerveler » les citoyens paisibles. Ils allaient par les
 rues assommant les républicains, sous le regard
@@ -901,7 +901,7 @@ faisaient cortège en poussant des cris aigus. (Vifs
 
 Aux obsèques du président Faure, ce fut un beau
 vacarme. Un cheval se mit de la bande, un cheval
-militaire. (Rires) Il y a, paraît-il, des chevaux
+militaire. (Rires) Il y paraît-il, des chevaux
 nationalistes. En ces jours étranges, le nationalisme, plein de jeunesse, soulevait des troubles,
 causait des bagarres, organisait des émeutes,
 méditait des révolutions. Il s'apprétait à tuer la
@@ -917,36 +917,36 @@ disait-on, n'a plus que la ressource de se loger dans
 la dent creuse de l'ogre. » (Rires)
 
 Comment, en si peu de temps, les nationalistes
-ont-ils pu changer si complètement de mœurs et de
-langage? Ils ne sont plus reconnaissables ; ils ne
+ont-ils changer si complètement de mœurs et de
+langage? Ils ne sont plus reconnaissables; ils ne
 veulent plus tuer personne; ils ne parlent plus
 
-| de décerveler les citoyens. On ne leur voit plus
+de décerveler les citoyens. On ne leur voit plus
 de matraques. Ils respectent les institutions parlementaires, ils respectent le Sénat, ils respectent
 les chapeaux. (Rires) Lisez leurs affiches. Vous
-serez bien surpris : il n'y est question ni de guerres,
+serez bien surpris: il n'y est question ni de guerres,
 ne parle là-dedans que de liberté, de tolérance,
 d'économies et de réduction du service militaire.
 ministère. Et ce n'est pas là, sans doute, une profonde pensée. (Rires et applaudissements) On ne
 dit pas du tout dans ces placards qu'on renversera
 la République, on y dit même qu'on la réformera.
-Du plébiscite, pas de nouvelles. Bien mieux ! Tous
+Du plébiscite, pas de nouvelles. Bien mieux! Tous
 les nationalistes sont devenus républicains. Il en
 est de radicaux pour les électeurs radicaux, de
 socialistes pour les électeurs socialistes, de libertaires pour les électeurs libertaires. (Applaudissements répétés) En cherchant bien, on découvrirait des candidats qui se disent impérialisies
-| nationalistes républicains et des candidats qui se
+nationalistes républicains et des candidats qui se
 
 (Applaudissements et rires)
 
 En entendant leur nouveau langage, en voyant
 leurs mines hypocrites, on est tenté de leur dire
-comme Sganarelle à son maître : (Messieurs, je
+comme Sganarelle à son maître: (Messieurs, je
 vous aimais mieux comme vous, étiez ayant. »
 (Rires et applaudissements) Et de fait, ils étaient
 moins déplaisants quand ïils brandissaient leur
 vieille rapière rouillée, qu'ils ne sont aujourd'hui
-en soufflant dans la flûte de Guillot. (Rires et applaudissements prolongés) Mais qu'ils se montrent rodomonts ou papelards, qu'ils crient : « Vive le roi! »
-ou « Vive la République! », ce sont les mêmes gens
+en soufflant dans la flûte de Guillot. (Rires et applaudissements prolongés) Mais qu'ils se montrent rodomonts ou papelards, qu'ils crient: « Vive le roi! »
+ou « Vive la République! ce sont les mêmes gens
 et leur cœur n'est pas changé. (Applaudissements)
 
 Citoyens, c'est la procession de la Ligue qui
@@ -994,10 +994,10 @@ le gouverne dans l'esprit du passé avec tous les
 instruments du passé, toutes les forces de
 : réaction, forces de violence, forces de mensonge,
 forces d'ignorance et d'abêtissement.
-Citoyens, prenons garde ! Quand le cléricalisme a
+Citoyens, prenons garde! Quand le cléricalisme a
 mis la main sur un peuple, il le tient ferme. Voyez
 la Belgique. Il l'a surprise un jour; il l'a gardée
-vingt ans. Et qui sait, hélas ! ce qu'il faudra de sanglants efforts pour lui faire lâcher prise. (Vifs
+vingt ans. Et qui sait, hélas! ce qu'il faudra de sanglants efforts pour lui faire lâcher prise. (Vifs
 Citoyens, vous voterez, contre les nationalistes,
 pour les candidats vraiment et intérieurement républicains; non pour ces tristes et pâles candidats,
 qui floitent mollement entre le nationalisme et la
@@ -1013,7 +1013,7 @@ la paix universelle par l'union des travailleurs. On
 vous dira que ceux-là sont des utopistes. Mais les économistes dont ils s'autorisent se sont moins trompés que ceux des anciennes écoles, et surtout ils ont
 mieux corrigé leurs erreurs. Et s'ils étaient des utopistes, en vaudraient-ils moins? Sans les utopistes
 d'autrefois, les hommes vivraient encore misérables
-et nus dans les cavernes. (Applaudissements) Ge
+et nus dans les cavernes. (Applaudissements)
 sont des utopistes qui ont tracé les lignes de la
 première cité. Il faut plaindre le parti politique
 qui n'a pas ses utopistes. Des rêves généreux.
@@ -1029,7 +1029,7 @@ L'Assemblée générale extraordinaire de la Ligue
 des Droits de l'Homme, après avoir, par acclamation, décidé de faire afficher le discours de
 
 Ligue des Droits de l'Homme
-M. Anatole France, a adopté la résolution suivante : à
+M. Anatole France, a adopté la résolution suivante: à
 
 « La Ligue des Droits de l'Homme, réunie en
 Assemblée générale extraordinaire le 20 avril 1909,
@@ -1051,20 +1051,20 @@ dont la Justice eut encore plus à souffrir que le
 malheureux justiciable qui en fut la victime.
 « Appelle de ses vœux le triomphe de la défense
 républicaine qui symbolise à cette heure les idées
-de progrès moral et d'émancipation intellectuelle. » *
+de progrès moral et d'émancipation intellectuelle. »
 Fini d'imprimer trois mille exemplaires pour la
 première édition le jeudi premier mai 1902
 à l'Imprimerie de Suresnes
 9, rue du Pont
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
-la rédaction ni sur l'administration : ces fonctions
+la rédaction ni sur l'administration: ces fonctions
 
 des abonnements de souscription à cent francs;
-des abonnements ordinaires à vingt francs; .
+des abonnements ordinaires à vingt francs;.
 et des abonnements de propagande à huit francs.
 
-Il va sans dire qu'il n'y a pas une seule différence
+Il sans dire qu'il n'y a pas une seule différence
 de service entre ces différents abonnements. Nous voulons seulement que nos cahiers soient accessibles à tout
 le monde également.
 
@@ -1073,7 +1073,7 @@ Le prix de nos abonnements ordinaires est à peu près
 propagande est donc très sensiblement inférieur au prix
 de revient.
 
-Nous ne consentons des abonnements de propagande .
+Nous ne consentons des abonnements de propagande.
 que pour la France et pour la Belgique.
 
 Nos cahiers étant très pauvres, nous ne servons plus
@@ -1083,7 +1083,7 @@ Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
-8, rue de la Sorbonne, Paris. On recevra er spécimens
+8, rue de la Sorbonne, Paris. On recevra spécimens
 six cahiers de la deuxième et de la troisième série.
 
 M. André Bourgeois, administrateur des cahiers,

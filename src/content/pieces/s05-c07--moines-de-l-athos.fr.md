@@ -9,74 +9,74 @@ wordCount: 15075
 ocrSource: "Extracted 2026-05-25 from conflated s05-c07--notes-sur-la-hollande.fr.md (lines 1125–3019; running header 'Lebeau et Tharaud' identifies these lines)."
 translationNotes: "OCR garble remains throughout. Le fichier original s05-c07--notes-sur-la-hollande.fr.md contenait par erreur la totalité du cahier : Notes sur la Hollande (Henri Michel), Moines de l'Athos (Henri Lebeau + Jérôme et Jean Tharaud), et un Bulletin de l'Office du travail sur la grève des tisseurs d'Armentières. Cette portion Athos est extraite ici."
 ---
-| à Le courrier que l'on va lire a été publié pour la,
+à Le courrier que l'on lire a été publié pour la,
 : (1 mière fois, mais abrégé de plusieurs pages, dan
-| 12 Renaissance latine ; aujourd'hui nous en publion
-|" AURONE texte entier ; ce courrier a été rédigé en commun
-Ex : M. Henri Lebeau, et par Jérôme et Jean Tharaud :
+12 Renaissance latine; aujourd'hui nous en publion
+AURONE texte entier; ce courrier a été rédigé en commun
+: M. Henri Lebeau, et par Jérôme et Jean Tharaud:
 
-e voyageur qui désire visiter les monastères de ;
+voyageur qui désire visiter les monastères de;
 hos doit, à Constantinople, se munir d'une double re-
 imandation. Il lui faut d'abord obtenir du patriarche
-c œcuménique une lettre d'introduction pour le con-
+œcuménique une lettre d'introduction pour le con-
 des moines de la sainte montagne, — le protaton,
-siège à Karyès. Depuis l'époque où les empereurs |
+siège à Karyès. Depuis l'époque où les empereurs
 rient ont cessé d'être les maîtres suprêmes des à
 vents, dont beaucoup s'étaient élevés grâce à leur
 nificence, le patriarcat orthodoxe est la seule auto-
 que reconnaissent les moines grecs de l'Athos. à
-Is à côté des couvents grecs, les plus nombreux et
+à côté des couvents grecs, les plus nombreux et
 plus vénérables par l'antiquité de leurs traditions,
 riches monastères russes, peuplés d'une véritable
 iée de moines, se sont établis dans la presqu'île. à
 Ines grecs et moines russes se disputent l'hégémonie kr:
-la sainte montagne, et si en principe les moines ;
-ses reconnaissent la suprématie du patriarche grec, |
+la sainte montagne, et si en principe les moines;
+ses reconnaissent la suprématie du patriarche grec,
 'est pas mauvais, nous dit-on, pour être reçu avec
-ucoup de bonne grâce, d'arriver chez eux avec une {
-re du représentant du tsar auprès du sultan, — alors À
+ucoup de bonne grâce, d'arriver chez eux avec une
+du représentant du tsar auprès du sultan, — alors À
 ans le caïque qui nous emmenait à travers la Corne à
 
 Lebeau et Tharaud
 d'Or de la rive de Galata au Phanar, on nous conte que
 Sa Sainteté Joachim III avait été deux fois élu patriarche
-de Constantinople : une première fois, il y avait de cela
+de Constantinople: une première fois, il y avait de cela
 De: une quinzaine d'années, il s'était démis de ses hautes
 4 fonctions pour revenir à la vie cénobitique qui avait
-4 . plus de charme pour lui que les grandeurs du pouvoir.
+4. plus de charme pour lui que les grandeurs du pouvoir.
 C'est dans son ermitage, près de Lavra, où il s'adonnait
 ; aux exercices de piété, à la lecture et au jardinage que,
-j pour la seconde fois, on était venu le prendre pou
-s, l'élever au patriarcat.
-L. Nous étions naturellement curieux de voir ur
+pour la seconde fois, on était venu le prendre pou
+l'élever au patriarcat.
+L. Nous étions naturellement curieux de voir
 4 patriarche dont le désintéressement rappelle des traits
 14 de la vie des anciens solitaires. Quand nous arrivâmes au
-; fi Phanar,— le Vatican de l'église grécque, — tout Le palais
-était en rumeur : des prêtres grecs à la haute toque er
-* forme de cylindre; des moines, des moines, dans la
-| cour, sur les terrasses, sur les marches de l'escalier
+; Phanar,— le Vatican de l'église grécque, — tout Le palais
+était en rumeur: des prêtres grecs à la haute toque
+forme de cylindre; des moines, des moines, dans la
+cour, sur les terrasses, sur les marches de l'escalier
 ; extérieur... L'aimable secrétaire du patriarcat nous
 apprit que le patriarche espérait en ce moment même
 la visite d'un grand-duc de Russie. La visite ne seraït
-| pas longue, nous pouvions en attendant nous repose
+pas longue, nous pouvions en attendant nous repose
 : dans son bureau. Un domestique apporte du café, des
-+3 cigarettes. Nous fumons cinq, six, dix cigarettes : le
++3 cigarettes. Nous fumons cinq, six, dix cigarettes: le
 grand-duc ne s'annonçait toujours pas. Le patriarche
-| donne l'ordre de nous introduire auprès de lui... Nous
+donne l'ordre de nous introduire auprès de lui... Nous
 traversons une antichambre remplie de prêtres et de
-moines qui aurait pu sembler modeste si par les fenê:
-e tres ouvertes toute la splendeur de la Corne d'Or, ur
-j jour d'été éclatant, n'était entrée dans la pièce. Nous
+moines qui aurait sembler modeste si par les fenê:
+tres ouvertes toute la splendeur de la Corne d'Or,
+jour d'été éclatant, n'était entrée dans la pièce. Nous
 sommes introduits auprès de Sa Sainteté, qui se lève.
 c'est un homme gigantesque, d'une grande beauté, dans
 la force de l'âge. Au mont Athos nous vimes des barbes
 
-merveilleuses : nous ne devions pas en voir de plus
+merveilleuses: nous ne devions pas en voir de plus
 belles. Une simple croix d'or brille sur sa poitrine. Il
 nous reçoit debout; son secrétaire lui chuchote d'où
 nous venons. Alors il s'écrie d'une voix retentissante
 qui remplirait Sainte-Sophie, — si Sainte-Sophie, hélas,
-n'était devenue mahométane :
+n'était devenue mahométane:
 
 Nous acquiesçons de la tête. La conversation se
 serait ainsi poursuivie quelques minutes en allemand,
@@ -94,17 +94,17 @@ sa réception par une lettre fleurie où Elle nous présentait aux épitropes de
 
 La seconde lettre de recommandation nécessaire pour
 
-_ être admis dans les couvents de l'Athos est celle de
+être admis dans les couvents de l'Athos est celle de
 ambassadeur de Russie à Constantinople.
 
 Munis de ces deux talismans, nous prenons passage
 sur le vapeur Princesse Olga. parti d'Odessa à destination de l'Athos, Salonique, Smyrne, Tripoli, Beyrout et Jaffa. Ce vapeur est des plus intéressants.
 
 Lebeau et Tharaud
-C'est un navire de pèlerins : pèlerins du mont Athos,
+C'est un navire de pèlerins: pèlerins du mont Athos,
 pèlerins de Jérusalem. Hommes et femmes sont étendus
 sur le pont, si serrés que les matelots ont peine
-à passer pour le service : moujiks en bottes et en
+à passer pour le service: moujiks en bottes et en
 : blouse, barbes incultes, odeurs douteuses. Sur le
 pont de ce navire, c'est tout un morceau de la sainte
 Russie. Beaucoup de ces pèlerins ont fait à pied
@@ -118,15 +118,15 @@ de navigation, ils peuvent réaliser le rêve de leur vie:
 voir la montagne qui depuis le moyen âge est pour
 les chrétiens d'Orient l'endroit sacré par excellence.
 
-& Un officier mécanicien du bord m'a montré un ménage
+Un officier mécanicien du bord m'a montré un ménage
 de paysans venu à pied à Odessa du steppe d'Akmolinsk, du fond de la Sibérie.
 
 Ainsi entassés, ils donnent une impression de malpropreté, de misère sordide. Ils portent de longues
-souquenilles noires ou rayées, souillées de taches ; leurs
+souquenilles noires ou rayées, souillées de taches; leurs
 bottes sont éculées et flasques. Ils flottent dans leurs
 haillons, qui ne dessinent pas les formes du corps, à
 tel point que les femmes, mêlées aux hommes, s'en distinguent à peine. Les hommes sont étendus par groupes,
-indifférents ; les femmes, plus éveillées, se tiennent
+indifférents; les femmes, plus éveillées, se tiennent
 debout le long du bordage et chantent d'une voix très
 douce des cantiques ou bien s'intéressent au spectacle
 de la mer, se font remarquer les unes aux autres les
@@ -137,46 +137,46 @@ retrouverons bientôt à l'Athos, tous ces pèlerins, promenant de couvent en co
 loques à l'indéfinissable odeur, pareils à un troupeau
 . de grands enfants mal tenus.
 
-La nuit vient, nous entrons dans la Marmara ; les
+La nuit vient, nous entrons dans la Marmara; les
 minarets de Stamboul, qui sont restés en vue fort
 longtemps, disparaissent: on tend une toile sur toute
 la longueur du bateau pour protéger les passagers de
-pont contre la fraîcheur de La nuit. Nuit claire, merveilleuse ! Nos voisins, un moujik de Saratof et deux
+pont contre la fraîcheur de La nuit. Nuit claire, merveilleuse! Nos voisins, un moujik de Saratof et deux
 petits bourgeois, mi-moines, mi-laïques, qui ont une
 kellia, — ermitage dépendant en général d'un couventet
 habité par un ou plusieurs moines, — au mont Athos,
 nous offrent du thé et de ces petits pains semés de
 grains d'anis et de sénevé comme on en mange dans
 
-_ tout l'Orient. Ces ermites, comme la plupart des Russes
+tout l'Orient. Ces ermites, comme la plupart des Russes
 établis depuis quelque temps à l'Athos, savent quelques
 mots de grec et nous causons, tandis que le Saratof
 nous regarde curieusement de ses yeux bleus et rieurs.
 Il nous fait dire par l'intermédiaire de nos interprètes
-qu'il est content de nous voir, qu'il n'avait jamais vu
+qu'il est content de nous voir, qu'il n'avait jamais
 de Français, et s'adressant directement à moi, dont
-le visage était rubicond d'un récent coup de soleil :
+le visage était rubicond d'un récent coup de soleil:
 
-— Votre face est rouge comme la mienne : nous
+— Votre face est rouge comme la mienne: nous
 sommes tous les deux nés dans l'Aurore!
 
 Nous sommes réveillés, le lendemain, par des chants
 et des prières. Des pèlerins russes sont debout, tête
 nue, rassemblés autour d'une large ouverture carrée
 
-_ découpée dans le pont. Un prêtre officie à fond de cale
-| et les paysans assistent à l'office, groupés dérrière lui
+découpée dans le pont. Un prêtre officie à fond de cale
+et les paysans assistent à l'office, groupés dérrière lui
 
-Lebeau et Tharaud /
+Lebeau et Tharaud
 
-dans un profond recueillement : ceux qui n'ont pu
+dans un profond recueillement: ceux qui n'ont
 trouver place au fond suivent d'en haut la cérémonie.
-Cet office dure longtemps : il est monotone. Prières et
+Cet office dure longtemps: il est monotone. Prières et
 chants sont entonnés par des voix nasillardes, mais
 les mélodies sont très belles.
 
 Le soleil se lève sur les Dardanelles. Le vapeur s'ar-
-rête quelques minutes à la sortie du détroit : aussitôt
+rête quelques minutes à la sortie du détroit: aussitôt
 il est entouré de caïques, d'innombrables barques à
 rames et à voile. Penchés sur le bordage, les pèlerins
 marchandent des yoghourts, — lait qu'on a fait cailler
@@ -186,36 +186,36 @@ que le soir. Une carté à la main, nous cherchons à À
 reconnaître sur la côte d'Asie l'emplacement de l'an-
 
 4 cienne Troie. Puis ce sont des îles qui surgissent de
-tous les côtés de l'horizon : Imbros, Lemnos, Samothrace, dont le haut sommet est enveloppé de nuages;
+tous les côtés de l'horizon: Imbros, Lemnos, Samothrace, dont le haut sommet est enveloppé de nuages;
 Thasos, aux lignes harmonieuses; enfin le mont Athos,
 pareil lui-même à une île. De loin il apparaît comme
 une énorme falaise se dressant à pic sur la mer. Tous
 les pèlerins se sont portés à l'avant et sur le côté droit
 du navire. Notre ami de Saratof s'est arraché à sa
-sieste pour venir voir : nous lui passons notre jumelle.
+sieste pour venir voir: nous lui passons notre jumelle.
 Mais il ne sait pas se servir de l'instrument et il fautle
 
-4 lui mettre au point comme on ferait pour un enfant. L. '
+4 lui mettre au point comme on ferait pour un enfant.
 
 L'Aghion Oros n'est pas, comme les îles aperçues ce
 matin et cette après-midi, une terre âpre, rocheuse,
 
-= dénudée. De la base au sommet il apparaît vêtu de
-forêts ; sur le fond sombre des verdures éclatent des
-points blancs, les monastères etles skites.— On nomme 4 |
+dénudée. De la base au sommet il apparaît vêtu de
+forêts; sur le fond sombre des verdures éclatent des
+points blancs, les monastères etles skites.— On nomme
 ainsi des couvents en quelque sorte secondaires, par-
 fois très considérables et très peuplés, mais n'ayant
 
 pas le rang officiel de couvent, parce qu'ils n'envoient
 pas de délégué au conseil central de Karyès. — Un de
 nos voisins, un moine grec à la taille imposante, nous
-nomme les plus importants : voici Lavra, le plus ancien,
+nomme les plus importants: voici Lavra, le plus ancien,
 fondé par saint Athanase grâce aux libéralités de
 Nicéphore Phocas. Le couvent neuf, à la pointe de la
 presqu'île, régulière bâtisse peinturlurée de rose, c'est
 . le couvent roumain. Entre les monastères, perdus dans
 les bois, sont les skites. Quelques-uns sont collés au
-flanc de la montagne sur des pentes presque verticales : |
+flanc de la montagne sur des pentes presque verticales:
 on se demande par quels chemins de chèvres on y
 grimpe. Tel le skite de Sainte-Anne et les nombreux
 petits ermitages qui en dépendent, accrochés à une
@@ -226,16 +226,16 @@ Le vapeur double le cap de l'Athos, le fameux cap
 Saint-Georges, funeste aux flottes de Xerxès; il côtoie
 maintenant la côte occidentale de la sainte montagne,
 plus abrupte encore que la côte de l'est, et d'une végé-
-tation très différente ; la forèt y est moins épaisse : des
+tation très différente; la forèt y est moins épaisse: des
 vignes, des cyprès, des oliviers, des lauriers-roses. Les
-couvents apparaissent, sur cette côte, encore plus surprenants. On les voit de plus près : ils sont semblables
+couvents apparaissent, sur cette côte, encore plus surprenants. On les voit de plus près: ils sont semblables
 à des forteresses. Juchés sur des fondations énormes,
 ils dominent presque à pic la mer d'une hauteur de
 à 300 mètres. Ils sont entourés de remparts et de tours
-crénelées. Dès le onzième siècle, les moines ont dû ‘
+crénelées. Dès le onzième siècle, les moines ont
 
 . fortifier ainsi leurs enceintes pour se défendre contre
-| les attaques répétées des pirates, qui les assaiïllaient
+les attaques répétées des pirates, qui les assaiïllaient
 encore au seizième siècle. Les couvents de Saints-Pierreet-Paul, de Saint-Grégoire, de Simopétra, resteront
 
 Lebeau et Tharaud
@@ -250,47 +250,47 @@ qui y retrouvent une image dela patrie qu'ils viennent de
 lourde, large et longue barque sert au transbordement
 des marchandises et des passagers. Le déchargement
 - ne doit pas être facile quand la mer est un peu houleuse. Nulle jetée n'abrite le navire. La mer est très
-calme ce soir. Le soleil se couche à la racine de ia
+calme ce soir. Le soleil se couche à la racine de
 péninsule médiane de la Chalcidique, Longos. La
 mer est toute rose. Les montagnes à l'horizon baignent
 dans une lumière violette et dorée. Le débarquement,
 qu'éclaire toute la splendeur d'un soir d'été oriental,
-s'opère au milieu des cris ; moines et pèlerins se bousculent. On voit sortir du fond de la cale d'étranges
+s'opère au milieu des cris; moines et pèlerins se bousculent. On voit sortir du fond de la cale d'étranges
 armoires démantibulées, tout un bric-à-brac poussiéreux qui dormait Dieu sait où, et que les moines
-apportent là comme des trésors. Trois petits garçons
+apportent comme des trésors. Trois petits garçons
 musulmans, conduits par un vieux maître d'école,
 achèvent gravement un repas composé en majeure
 partie de concombres et de pastèques, et considèrent
 ce spectacle avec une indifférence tranquille d'êtres
-Il est trop tard pour songer à gagner Karyès : il faut
+Il est trop tard pour songer à gagner Karyès: il faut
 s'arranger pour passer la nuit à Daphni. Nous entrons
 
 dans l'unique auberge de l'échelle, et nous prenons
-pour la première fois contact avec la saleté et la ver- |
+pour la première fois contact avec la saleté et la ver-
 mine de l'Athos. Le patron de l'auberge, un Albanais
 qui parle grec, nous mêne dans la chambre la plus
-confortable de sa maison : deux petites fenêtres, à travers un mur épais d'un mètre, ouvrent sur un verger en
+confortable de sa maison: deux petites fenêtres, à travers un mur épais d'un mètre, ouvrent sur un verger en
 pente. Quatre lits. D'innombrables visiteurs ont couché
-là dedans. Nous demandons des draps propres. L'hôte
-nous répond :
+dedans. Nous demandons des draps propres. L'hôte
+nous répond:
 
-— Impossible : je n'ai que ceux-là.
+— Impossible: je n'ai que ceux-là.
 
 Nous nous installons pour dîner au bord de la mer.
 A peine assis, nous sommes rejoints par le kaïmakam,
 gouverneur ottoman du mont Athos, dont la résidence
 est à Karyès, le centre politique, religieux et commercial de la sainte montagne. A l'arrivée, il a visé nos passeports. Il parle français, sourit toujours et égrène un
-chapelet d'ambre entre ses doigts. Il est jeune; il a dû
+chapelet d'ambre entre ses doigts. Il est jeune; il a
 laisser.son harem à Salonique, — nulle femme n'a le
 droit de mettre le pied dans l'Aghion Oros, — il s'ennuie, il descend tous les quinze jours de Karyès à
 Daphni, cause avec les Européens, s'il y en a. Cela le
 distrait. Autour de nous rôde un jeune homme qui,
-chaque fois qu'il passe devant notre table, ôte sa cas- |
-quette et baragouine quelques mots en français : « Bien
+chaque fois qu'il passe devant notre table, ôte sa cas-
+quette et baragouine quelques mots en français: « Bien
 le bonsoir. parfaitement. j'ai l'honneur... » — C'est
 un fou. L'hôte le chasse, sans violence. Nul ne sait d'où
 il vient ni ce qu'il fait ici. Il revient toujours, jusqu'au
-moment où le bateau russe va lever l'ancre. On l'embarque pour Salonique.
+moment où le bateau russe lever l'ancre. On l'embarque pour Salonique.
 
 Nous cherchons à tirer du kaïmakam des renseignements sur l'Athos, sur les relations des couvents entre
 eux, les rapports du protaton avec les autorités de Con-
@@ -298,48 +298,48 @@ eux, les rapports du protaton avec les autorités de Con-
 à FLebeau et Tharaud
 stantinople. Le jeune fonctionnaire nous paie poliment
 de mots vagues et de fins sourires. Il préfère nous parler
-de Paris, qu'il voudrait visiter ; de la France, « dont
+de Paris, qu'il voudrait visiter; de la France, « dont
 sont sorties toutes les grandes idées de justice et de
-civilisation ! » Puisqu''il est si diplomate, ce kaïmakam,
+civilisation! » Puisqu''il est si diplomate, ce kaïmakam,
 : n'insistons pas!
 Dans l'auberge, tous les moines sont ivres. Le patron
-| albanais et son domestique sont fort occupés à servir
-aux clients l'eau-de-vie : Russes et Grecs fraternisent
+albanais et son domestique sont fort occupés à servir
+aux clients l'eau-de-vie: Russes et Grecs fraternisent
 : ce soir. Ceux qui ont déjà leur compte dorment, la
 tête sur la table, ou couchés par terre. Du haut en bas
 de l'auberge, dans l'escalier, dans les couloirs, dans les
-chambres, partout des corps étendus : c'est un grouillement de robes sales.
-F Toute la nuit, la maison retentit des cris, des rires,
+chambres, partout des corps étendus: c'est un grouillement de robes sales.
+Toute la nuit, la maison retentit des cris, des rires,
 des chants des robustes gaïllards qui continuent de
-boire. Au matin, le vacarme s'apaise ; les moines s'en
+boire. Au matin, le vacarme s'apaise; les moines s'en
 vont rejoindre leurs couvents ou skites respectifs, qui à
-pied, qui à mulet. Nous avons dormi tout vêtus, couchés sur nos manteaux. Hélas ! la vermine pourtant est
-triomphante ! Mais la mer est là, heureusement, et les
-grèves de l'Athos n'ont pas leurs pareilles ! |
+pied, qui à mulet. Nous avons dormi tout vêtus, couchés sur nos manteaux. Hélas! la vermine pourtant est
+triomphante! Mais la mer est là, heureusement, et les
+grèves de l'Athos n'ont pas leurs pareilles!
 Nous préparons, nous aussi, notre bagage et nous
 descendons, par des couloirs empuantis de relents
 d'ivrognes, vers le môle de Daphni. La matinée est
-superbe. Des mulets sont à la porte : on charge notre
-hejbe, (1) et en route pour Karyès. |
-() Sac turc à deux poches, séparées par une ouverture qui
+superbe. Des mulets sont à la porte: on charge notre
+hejbe, (1) et en route pour Karyès.
+Sac turc à deux poches, séparées par une ouverture qui
 s'engage dans le troussequin de la selle.
 
 Tout de suite l'étroit sentier grimpe dans la montagne.
 
 Il n'y a pas une ‘Seule route dans la presqu'île athonique, rien que des chemins muletiers qui ont parfois
 des allures d'escaliers, généralement en mauvais état.
-_ Et le mulet qui a la manie de marcher à l'extrême bord
+Et le mulet qui a la manie de marcher à l'extrême bord
 du sentier, du côté dangereux où une chute vous enverrait rouler dans l'autre monde, vous inspire d'abord
 quelque inquiétude. Bientôt on se rassure à le voir
 aller prudemment, la tête basse, inspectant, flairant
 les pierres. Il a une façon si élégante, si sûre d'affermir
 son sabot au point exact qu'il a choisi! Dans létroit
 chemin nous sommes frôlés au passage par des
-buissons d'églantines, de clématites en fleurs : des
+buissons d'églantines, de clématites en fleurs: des
 odeurs d'herbes parfumées et brûlées par le soleil,
 le pas de nos mulets, le scintillement de la mer audessous de nous, l'éclat du ciel, le sentiment délicieux
 
-d'un peu de vie primitive, tout concourt à nous assoupir |
+d'un peu de vie primitive, tout concourt à nous assoupir
 doucement, nous fait fermer à demi les yeux de volupté.
 
 Au fond d'une vallée nous nous arrêtons un instant
@@ -349,46 +349,46 @@ pierres de granit jusqu'aux murs du monastère grec de
 Xeropotamou, qui ressemble à une grande ferme provençale bien tenue, parmi les plantations en terrasses
 de vignes et d'oliviers. Le long de la muraille exté-
 rieure, dans une rigole de pierre, coule l'eau d'une
-source voisine : nos mulets s'abreuvent à la rigole;
+source voisine: nos mulets s'abreuvent à la rigole;
 lagoyate, — conducteur de chevaux ou de mulets, —
 puise à la source dans une coupe de bois. A mesure
 que nous montons, les châtaigniers et les chênes remplacent les oliviers et les vignes. Des prairies étroites
 
-Lebeau et Tharaud |
+Lebeau et Tharaud
 au milieu de bois de sapins font songer à des paysages alpestres. Le sentier est bordé des deux côtés
 d'arbres aux essences les plus variées qui se rejoignent
 au-dessus de nos têtes.
 
 La descente sur Karyès est encore plus abrupte que
-| la montée : il faut se rejeter en arrière et raidir les
+la montée: il faut se rejeter en arrière et raidir les
 jambes sur les étriers pour ne pas être précipité par
 dessus l'encolure de sa bête. A un tournant du chemin,
 nous apercevons les dômes et les maisons de Karyès.
 Le gros village est bâti sur un plateau, entre deux
-croupes montagneuses : il est dominé par des forêts de
+croupes montagneuses: il est dominé par des forêts de
 chênes et de noisetiers et entouré de jardins. Dans les
 rues pavées de cailloux pointus sur lesquelles s'ouvrent
 des maisons qui sont toutes des boutiques, — objets
 de piété, sculptures sur bois, selliers, corroyeurs, morteurs de bâts, — nul cri d'enfants, nul bavardage de
-femmes : il n'y a à Karyès ni femmes ni enfants. |
+femmes: il n'y a à Karyès ni femmes ni enfants.
 Nous faisons halte dans une épicerie qui est aussi
 une auberge. Dans le jardin où nous nous attablons
-" sous une treille, des gens fumentet boivent du café.
+sous une treille, des gens fumentet boivent du café.
 Près de nous, renversé sur sa chaise, l'air un peu
-hagard, un homme, qui se distingue des autres consommateurs par ses vêtements européens, prononce enfran- |
-çais excellent des paroles incohérentes. Nous prêtons |
-l'oreille. |
+hagard, un homme, qui se distingue des autres consommateurs par ses vêtements européens, prononce enfran-
+çais excellent des paroles incohérentes. Nous prêtons
+l'oreille.
 — Mystère. tout est mystère... Les nuages amèneront
 une flotte Ah! les poules! ils ne veulent pas de
-Et le bonhomme, en nous regardant, éclate de rire. |
-Les yeux de Johann disent en nous regardant :
-— Encore un fou, bien sûr. Pays cocasse !
+Et le bonhomme, en nous regardant, éclate de rire.
+Les yeux de Johann disent en nous regardant:
+— Encore un fou, bien sûr. Pays cocasse!
 Pendant que l'hôtelier nous sert, une sorte de sacrisb2
 
 tain assis à quelques pas de nous nous glisse un papier
-- dans la main, où nous lisons :
+- dans la main, où nous lisons:
 
-— Méfiance ! cet homme est atteint de la maladie de
+— Méfiance! cet homme est atteint de la maladie de
 la folie. Gardez-vous bien d'engager conversation avec
 lui. Il se dit médecin. Mais il ne sait rien, monsieur, il
 ne sait rien.
@@ -399,7 +399,7 @@ lève les yeux au ciel, désigne le fou du doigt et se livre
 à une si grotesque pantomime que nous nous demandons si lui-même n'est pas atteint. Manifestement, l'apothicaire et le médecin veulent entrer en relations avec
 nous. Mais rien n'est redoutable, en Orient, comme un
 
- officieux. Mieux vaut faire mine de ne pas entendre.
+officieux. Mieux vaut faire mine de ne pas entendre.
 
 Les Russes ont bâti à Karyès un skite immense,
 Saint-André, qu'ils nomment aussi le Seraï, dépendance
@@ -420,39 +420,39 @@ l'Aghion Oros des skites qui par leur splendeur écrasent
 les vieux couvents grecs. Pourtant ce sont les Grecs
 qui possèdent la terre de la sainte montagne. Ils n'en
 
-‘ Lebeau et Tharaud
-aliènent aux Russes que des parcelles, et au prix de '
+Lebeau et Tharaud
+aliènent aux Russes que des parcelles, et au prix de
 
-Le Seraï est construit sur le type traditionnel des couvents de l'Athos : une enceinte de bâtiments, une cour.
+Le Seraï est construit sur le type traditionnel des couvents de l'Athos: une enceinte de bâtiments, une cour.
 
-Au milieu de la cour, l'église ; près d'elle, une chapelle. |
-De ci de là, quelques cyprès et des lauriers-roses qui |
-embaument. Nous allons frapper à la porte du Seraï. |
+Au milieu de la cour, l'église; près d'elle, une chapelle.
+De de là, quelques cyprès et des lauriers-roses qui
+embaument. Nous allons frapper à la porte du Seraï.
 La lettre de M. Zinovief, que nous présentons, fait le
-meilleur effet. Nous sommes reçus par un vieux moine !
+meilleur effet. Nous sommes reçus par un vieux moine!
 
-' très soigné, très poli, très curieux, qui sans en avoir |
-l'air, cherche fort habilement à discerner qui nous }
+très soigné, très poli, très curieux, qui sans en avoir
+l'air, cherche fort habilement à discerner qui nous
 
 . sommes. Il nous confie aux bons soins d'un robuste
-moine, le père Isaac, dont la santé n'a certes pas à se ;
+moine, le père Isaac, dont la santé n'a certes pas à se;
 plaindre du régime monastique. Nous ne coucherons
 pas, cette nuit encore, dans des draps propres. Il faut
-en prendre notre parti : dans la sainte république il ;
+en prendre notre parti: dans la sainte république il;
 faut dormir tout habillé.
 
 Il est quatre heures. C'est l'heure de la réunion quotidienne du protaton. Chacun des vingt couvents de
 l'Athos envoie un représentant à Karyès. Ces vingt délé-
-gués, que président quatre épistates choisis parmi eux :
+gués, que président quatre épistates choisis parmi eux:
 à tour de rôle, forment le conseil de la république des
 moines. Tout voyageur, en arrivant à Karyès, doit se
-présenter au protaton pour en obtenir l'autorisation de ;
-visiter les monastères. La salle du conseil est tout près \
-de l'église de Karyès : dans le même corps de bâtiments
+présenter au protaton pour en obtenir l'autorisation de;
+visiter les monastères. La salle du conseil est tout près
+de l'église de Karyès: dans le même corps de bâtiments
 
 . demeure le gouverneur ture, qui peut ainsi surveiller
 de près les réunions. Nous montons un escalier de bois
-vermoulu. Sur une terrasse de bois, deux magnifiques \
+vermoulu. Sur une terrasse de bois, deux magnifiques
 palikares, — à l'air insolent et qui font songer, avec
 leurs fustanelles bouffantes, à des paons, — la ceinture À
 pleine de pistolets et de coutelas, préparent sur un
@@ -465,7 +465,7 @@ des soldats turcs, — la garde du kaïmakam, — font
 L'un des palikares quitte le fourneau pour annoncer
 au conseil l'arrivée de deux voyageurs. Il revient aussitôt et nous emmène dans une salle plus longue que
 
-| large, entourée de divans bas, recouverts de serge
+large, entourée de divans bas, recouverts de serge
 
 rouge. Au fond une veilleuse brûle devant une image de
 
@@ -485,11 +485,11 @@ tres, dans la cour, contre l'église. Les cloches sonnent
 
 ainsi quand un voyageur vient rendre visite au Conseil.
 
-| Vieille et jolie coutume. Le père Alexandre ajuste sur
+Vieille et jolie coutume. Le père Alexandre ajuste sur
 
-| son nez ses lunettes et lit la lettre du patriarche de
+son nez ses lunettes et lit la lettre du patriarche de
 
-| Constantinople, que nous venons de lui remettre. Un
+Constantinople, que nous venons de lui remettre. Un
 
 palikare, — décidément plus semblable à un dindon
 
@@ -498,19 +498,19 @@ qu'à un paon, — nous présente sur un plateau un pot
 de confitures, dont nous prenons une cuillerée, un verre
 
 d'eau, dont nous buvons une gorgée, et une tasse de
-café. Puis on cause :
+café. Puis on cause:
 
-— Nous sommes des savants, sans doute, des archéologues ? ‘
+— Nous sommes des savants, sans doute, des archéologues?
 
 — Non, des touristes.
 
-.  — Des touristes? Hum! Ce nom n'a pas l'air de bien
+. — Des touristes? Hum! Ce nom n'a pas l'air de bien
 sonner à l'oreille des moines. Et, tout aussitôt, la question que l'on nous posera, à peine arrivés, dans tous
-les couvents :
+les couvents:
 
-Lebeau et Tharaud |
-| — Combien de jours pensez-vous rester ici? Quand
-partez-vous ?
+Lebeau et Tharaud
+— Combien de jours pensez-vous rester ici? Quand
+partez-vous?
 
 Demain, nous devons revenir au protaton. Le secré-
 taire nous remettra une lettre pour les higoumènes et
@@ -519,10 +519,10 @@ taire nous remettra une lettre pour les higoumènes et
 
 Nous prenons congé des moines pour aller chez le
 kaïmakam. Le jeune fonctionnaire égrène toujours
-entre ses doigts son chapelet à grains d'ambre : il nous
+entre ses doigts son chapelet à grains d'ambre: il nous
 reçoit avec son éternel sourire, dans une chambre ayant
 
-| pour tous meubles un divan bas, une petite table, et
+pour tous meubles un divan bas, une petite table, et
 une immense armoire vert cru. Un soldat, son soldat,
 
 — un Turc quelconque, seulement remarquable en ceci
@@ -531,16 +531,16 @@ ses demi-bottes, montent jusqu'à ses genoux, enveloppant son pantalon d'un jaun
 la confiture et du café.
 
 Bien ennuyeux, le kaïmakam. Que fait-il, mon Dieu!
-toute l'année, dans ce trou de Karyès ? Nous l'apprendrons plus tard.
+toute l'année, dans ce trou de Karyès? Nous l'apprendrons plus tard.
 
 Il nous reste encore quelques minutes de grand jour
 avant que le soleil tombe derrière la forêt. Nous avons
-le temps de visiter l'église de Karyès, la plus vieille :
+le temps de visiter l'église de Karyès, la plus vieille:
 de l'Athos, bâtie par saint Athanase au dixième siècle.
 Peinte à l'extérieur en rouge vif, comme toutes les
 anciennes églises de l'Athos, elle a comme elles la forme
 quadrangulaire et aussi la disposition intérieure d'une
-église byzantine ; mais elle s'en distingue par une
+église byzantine; mais elle s'en distingue par une
 curieuse particularité, l'absence de coupoles, qui lui
 donne un aspect inachevé et lourd. On y voit de très
 vieilles fresques, malheureusement bien effacées, une
@@ -565,10 +565,10 @@ maisons de granit gris aux auvents de bois habitées
 par des vendeurs en robe sale. Nous allons par d'étroits
 chemins entre des murs bas de vergers. Un mendiant..
 deux mendiants… trois mendiants. Les chemins de
-l'Athos sont pleins de besaciers qui vont ainsi de couvent en couvent. Et cet Européen, en pardessus et chapeau clair, qu'est-il venu faire ici ? IL approche. Nous
+l'Athos sont pleins de besaciers qui vont ainsi de couvent en couvent. Et cet Européen, en pardessus et chapeau clair, qu'est-il venu faire ici? IL approche. Nous
 reconnaissons notre médecin de la matinée. Pas moyen
 de l'éviter. Il nous barre le sentier, il nous tend la main,
-il s'excuse de nous arrêter. :
+il s'excuse de nous arrêter.:
 
 — Vous m'excuserez, messieurs, mais c'est si rare ici
 de voir des gens d'Europe, des Français surtout.
@@ -584,16 +584,16 @@ la légion étrangère, a servi trois ans à Saïda. Il est à
 l'Athos depuis six mois. Il est venu espérant devenir le
 médecin officiel des moines.
 
-Alors il déraiïlle : il les haït, ces moines. On dirait
+Alors il déraiïlle: il les haït, ces moines. On dirait
 que le séjour dans cet étrange pays a achevé de détraquer cette faible cervelle. Il parle à mots couverts de
 
-J choses abominables qui se passent dans les couvents.
+choses abominables qui se passent dans les couvents.
 
-I1 a peur d'en avoir trop dit.
+a peur d'en avoir trop dit.
 
 é — Oh! ils ne vous feront rien, ce sont de bonnes gens.
-Vous pouvez être tranquilles. Ha ! ah! ah! ni femmes, ;
-ni poules, ni mules ! vous comprenez !
+Vous pouvez être tranquilles.! ah! ah! ni femmes,;
+ni poules, ni mules! vous comprenez!
 
 Il nous regarde avec des yeux d'homme qui a été
 intelligent. Le chemin monte. Il enlève son chapeau. La
@@ -602,7 +602,7 @@ asseyons dans un petit pré en pente, sur la lisière d'un
 de ces bois de noisetiers qui fournissent de si bonnes
 noisettes à toutes les confiseries d'Orient. La grande
 ombre de la sainte montagne s'étend doucement sur la
-mer : son sommet, où l'on distingue une chapelle, est
+mer: son sommet, où l'on distingue une chapelle, est
 rouge des derniers rayons du couchant.
 
 Le fou continue de parler, intarissable comme l'eau
@@ -619,7 +619,7 @@ Il accuse les moines de conspirer la chute de l'empire
 — Des négriers, je vous dis, les chefs de la jonction...
 précisément... Cela est mystérieux qu'on les laisse
 
-ici. ha ! ha! les jongleurs de la Turquie. Prenez garde
+ici.! ha! les jongleurs de la Turquie. Prenez garde
 surtout, si vous restez quelque temps ici, qu'on ne vous
 empêche ensuite de retourner à Constantinople.
 
@@ -632,7 +632,7 @@ boire du thé, du vin, et à manger de petits gâteaux
 acidulés entre le père Isaac, le sous-higoumène et un
 religieux à figure timide et mystique, — le seul visage
 mystique que nous ayons encore rencontré ici, — l'économe du couvent. La conversation, — en grec, — ne languit pas un instant. Aux murs sont pendus les portraits
-des supérieurs défunts : longues barbes et bâtons pastoraux ornés au sommet d'une ferrure en forme de
+des supérieurs défunts: longues barbes et bâtons pastoraux ornés au sommet d'une ferrure en forme de
 croissant. Le prédécesseur du supérieur actuel a été
 déposé. Il avait été surpris au moment où il allait fuir,
 emportant une grosse somme d'argent. Voici le portrait
@@ -641,7 +641,7 @@ est enterré là-bas, dans la cour, près des cyprès. Les
 gens très riches, nous explique le père Isaac, sont par-
 
 - fois ensevelis iciavec des honneurs particuliers. — Voici
-Félix Faure lui-même, Casimir-Perier, Sadi Carnot ;
+Félix Faure lui-même, Casimir-Perier, Sadi Carnot;
 notre ancien ambassadeur, M. Cambon, avec un autographe; des Alexandre et des Nicolas et des gravures
 de toute espèce, surtout des gravures représentant des
 batailles. Le père sous-higoumène nous fait remarquer
@@ -649,25 +649,25 @@ tout cela, et il y voit un symbole de la bonne entente
 qui règne en ce moment entre France et Russie. Tout à
 coup ses yeux tombent sur une estampe barbare où l'on
 
-s Lebeau et Tharaud
+Lebeau et Tharaud
 
-‘à voit une armée en déroute, sous la neige, poursuivie
+voit une armée en déroute, sous la neige, poursuivie
 
-7 par des Cosaques : Napoléon, la main droite passée
+7 par des Cosaques: Napoléon, la main droite passée
 
-# dans sa pelisse, courbé sur le cou de son cheval, s'en
+dans sa pelisse, courbé sur le cou de son cheval, s'en
 
-M va d'un air soucieux. Et le père dit de sa petite voix
+d'un air soucieux. Et le père dit de sa petite voix
 
 aigrelette de bon petit vieux, en faisant le geste de
 
-| balayer le plancher :
+balayer le plancher:
 
 Dieu l'a voulu.
 
-é Simple et touchante philosophie !
+é Simple et touchante philosophie!
 
-| Le père économe nous a appris qu'aujourd'hui est
+Le père économe nous a appris qu'aujourd'hui est
 
 jour de veille. Les moines passeront toute la nuit en
 
@@ -683,11 +683,11 @@ moments les coudes sur de hauts rebords dont les
 stalles sont munies. A chaque extrémité de l'icono-
 
 : stase, derrière laquelle officient les prêtres, invisibles
-aux assistants, se dresse un haut pupitre sculpté : deux
+aux assistants, se dresse un haut pupitre sculpté: deux
 cérémoniaires entonnent à tour de rôle l'antienne, et
 
 ; le chœur des moines répond. Les voix sont graves et
-exercées, les chants très beaux : beaucoup remontent
+exercées, les chants très beaux: beaucoup remontent
 à des temps très anciens. Parfois la partie centrale
 de l'iconostase s'ouvre, laissant apercevoir, tout au
 fond de l'abside, les prêtres à l'autel, revêtus d'ornements sacerdotaux anciens d'une richesse inouïe.
@@ -708,97 +708,97 @@ du protaton au jour discret, imbibée d'encens et de
 Sur de vigoureux chevaux cosaques, accompagnés
 du père Isaac, nous nous mettons en route pour le couvent de Saint-Pantéléimon. C'était autrefois un couvent
 grec. Dans le courant du siècle, les Russes l'ont envahi
-lentement. Les Grecs n'ont pas eu la force de s'opposer
+lentement. Les Grecs n'ont pas la force de s'opposer
 aux intrus. Quand les Russes ont été les plus nombreux,
 ils ont élu un higoumène de leur nationalité. Maintenant ils sont les maîtres du couvent. Le père Isaac
 nous fait le récit de cette conquête, tandis que nous
 chevauchons dans la montagne par des sentiers de fo- À
 rêts, précédés d'un agoyate macédonien au pas merveilleusement souple et rapide. Le père n'aime pas
-beaucoup le régime des monastères russes : toujours
+beaucoup le régime des monastères russes: toujours
 Au moins les Grecs se permettent-ils, à certains jours,
 de la viande, des liqueurs! Ils peuvent fumer! Par
-exemple, le couvent où nous allons gun caviar excellent ! Ce moine botté, énorme, à cheval sur une énorme
+exemple, le couvent où nous allons gun caviar excellent! Ce moine botté, énorme, à cheval sur une énorme
 bête, un immense parapluie d'un vert déteint sous le
 
-| Lebeau et Tharaud
+Lebeau et Tharaud
 
 130 bras et aspirant à de plus substantiels repas, dans ce
 0 décor prodigieusement beau d'arbres, de rochers, de
-Fr . montagnes et de mer, nous rejette très loin dans le
-“4 ln | passé. Au neuvième siècle, les forêts d'Occident ont
-78 assurément vu passer ce moine réjoui et sensuel.
+. montagnes et de mer, nous rejette très loin dans le
+“4 passé. Au neuvième siècle, les forêts d'Occident ont
+78 assurément passer ce moine réjoui et sensuel.
 
 Le couvent de Saint-Pantéléimon est situé au bord
-‘0 de la mer, pareil à une forteresse. Les étroits couloirs
+de la mer, pareil à une forteresse. Les étroits couloirs
 : 04 où nous passons sentent la caserne, le réfectoire et
-‘4 létable. Nous nesommes pas depuis cinq minutes dans
+létable. Nous nesommes pas depuis cinq minutes dans
 LE notre chambre qu'on frappe à la porte.
 
-‘0 C'est le père Anaximène, un grand seigneur russe de
+C'est le père Anaximène, un grand seigneur russe de
 M. Toula, voisin de campagne de Tolstoï, Français par sa
-‘1 mère, polyglotte et fort aimable, qui s'avance vers nous
-‘à les mains tendues :
+mère, polyglotte et fort aimable, qui s'avance vers nous
+les mains tendues:
 
-| # — Messieurs, soyez les bienvenus au Roussikon. C'est
+— Messieurs, soyez les bienvenus au Roussikon. C'est
 a toujours une joie pour moi de voir des Européens, sur-
 “4 tout des Français.
 
-k Il nous propose un bain de mer avant le déjeuner.
-‘4 { Nous acceptons avecplaisir. Nous traversons la grande
+Il nous propose un bain de mer avant le déjeuner.
+Nous acceptons avecplaisir. Nous traversons la grande
 .. cour, passons un porche défendu par une porte mas-
 à sive et nous engageons dans une allée de cyprès, d'ifs
-Ÿ et de lauriers-roses géants. Le père Anaximène paraît
-à : sincèrement gai de voir des hôtes. Il nous parle des
+et de lauriers-roses géants. Le père Anaximène paraît
+à: sincèrement gai de voir des hôtes. Il nous parle des
 
 1 — lis ne se lavent jamais. Ils considèrent la propreté
-ve comme un péché. Ainsi, tenez, moi, je suis un objet de
+comme un péché. Ainsi, tenez, moi, je suis un objet de
 ; scandale parce que je prends en hiver deux ou trois
 À bains chauds par semaine. Des moines m'ont dénoncé
-es au père supérieur. J'ai dû m'excuser sur ma santé.
+es au père supérieur. J'ai m'excuser sur ma santé.
 
-k Nous arrivons à la plage. Le père Anaximène est le
-L premier déshabillé, car il est nu sous sa robe.
+Nous arrivons à la plage. Le père Anaximène est le
+premier déshabillé, car il est sous sa robe.
 
 En revenant au couvent, il nous parle de Tolstoï, de à
-son excommunication par le saint synode. ‘1
-— Cette excommunication, nous dit-il, est une folie. *
+son excommunication par le saint synode.
+— Cette excommunication, nous dit-il, est une folie.
 On ne s'attaque pas à un homme comme Tolstoi. Pour
-moi, je le crois sincère. Ah! quel bien il aurait pu ,
-faire en Russie à la cause de la religion s'il avait {
+moi, je le crois sincère. Ah! quel bien il aurait,
+faire en Russie à la cause de la religion s'il avait
 Tout autour du couvent, une activité fiévreuse. On
 bâtit de toutes parts. Deux surveillants à vaste chapeau à
 de pailie plat, à face mongole, si pareils l'un à l'autre
-qu'on dirait deux sosies, dirigent tout un peuple d'ouvriers : Grecs fins et élancés de la Chalcidique, Bulgares, Slaves venus des cantons pauvres de la Macé-
+qu'on dirait deux sosies, dirigent tout un peuple d'ouvriers: Grecs fins et élancés de la Chalcidique, Bulgares, Slaves venus des cantons pauvres de la Macé-
 doine. Ils ont laissé leur famille pour gagner quelque
 argent et retourner ensuite dans leur pays.
 — Tous ces gens, nous dit le père, qui semble avoir
 l'esprit large, sont de religions et de rites différents,
 mais ils s'entendent très bien et sont faciles à mener,
-pourvu qu'on leur paie leur salaire. :
+pourvu qu'on leur paie leur salaire.:
 Comme nous nous étonnons de l'étendue des con- +0
 — Oh! nous sommes riches, répond le père Anaximène, très riches. Les moines de l'Athos sont très
 vénérés en Russie. On nous y considère comme des
 saints. — Il rit d'un rire méprisant et ironique. —
 Quand un de nos moines passait dans un village, les
 paysans sortaient devant leurs portes, lui apportaient
-tout ce qu'ils avaient. Le gouvernement s'est ému. II
+tout ce qu'ils avaient. Le gouvernement s'est ému.
 est aujourd'hui plus difficile qu'autrefois d'obtenir un
 passeport pour faire un pèlerinage à l'Athos; il est surtout très difficile pour nos moines de retourner en
-Russie : ils doivent avoir une autorisation du saint
+Russie: ils doivent avoir une autorisation du saint
 
 Lebeau et Tharaud
-| synode. On trouve qu'il nous arrive trop d'argent...
-Ah ! tenez, voici l'ossuaire du couvent. Voulez-vous
-voir l'ossuaire ? /
+synode. On trouve qu'il nous arrive trop d'argent...
+Ah! tenez, voici l'ossuaire du couvent. Voulez-vous
+voir l'ossuaire?
 
-Le père Anaximène nous arrête devant une maisonnette dont il pousse la porte : sur des rayons sont rangées, comme des pommes dans un fruitier, des têtes de
+Le père Anaximène nous arrête devant une maisonnette dont il pousse la porte: sur des rayons sont rangées, comme des pommes dans un fruitier, des têtes de
 
 ; morts, avec, écrit à l'encre, le nom du moine auquel ce
 crâne appartint. Les tibias, les fémurs sont empilés les
 4 uns sur les autres et confondus.
 
 — Et combien de temps, demande Johann, la terre
-met-elle à polir ces os si nets ?
+met-elle à polir ces si nets?
 
 — Oh! trois ou quatre ans, et c'est fini.
 
@@ -814,19 +814,17 @@ Et le père Anaximène, enriant,nous montre l'étagère
 où bientôt, espère-t-il, sa tête sera posée avec son
 nom écrit à l'encre.
 
-Ÿ — C'est une faveur grande, nous dit-il, pour un pèlerin,
+— C'est une faveur grande, nous dit-il, pour un pèlerin,
 de mourir au mont Athos. Il est assuré du paradis.
 Venez, je vais vous montrer le suaire dont on enveloppe
 les morts.
 
 Il nous emmène dans la boutique où l'on vend les
-objets de piété fabriqués au couvent. Rien que nous « n'ayons déjà vu à Karyès : icones, images pieuses, “
+objets de piété fabriqués au couvent. Rien que nous « n'ayons déjà à Karyès: icones, images pieuses,
 chromos, médailles, cuillers et fourchettes de bois « odorant sculptées au couteau et ornées d'oiseaux
 découpés à jour, de poissons, de petits cyprès.
 
-— Mon frère, demande le père Anaximène au vendeur, montrez-nous un suaire, je vous prie. |
-
-64
+— Mon frère, demande le père Anaximène au vendeur, montrez-nous un suaire, je vous prie.
 
 Le frère vendeur déploie devant nous une bande de
 toile grossière où est imprimé, dans toute sa longueur,
@@ -852,39 +850,39 @@ viennent, désœuvrés. Chaque bateau russe qui touche
 deux, trois mille signes de croix et génuflexions en une
 nuit. Un moine d'ici est célèbre pour avoir récité, dans
 l'espace d'une veille nocturne, du coucher au lever du
-soleil, seize cents chapelets. Oh ! c'est une religiosité
-de sauvages !
+soleil, seize cents chapelets. Oh! c'est une religiosité
+de sauvages!
 
 Sommes-nous au Tibet, au pays des moulins à
 
 Nous regardons le père Anaximène, étonnés. Ses
 jugements sur les moines sont toujours durs. Comment
 s'expliquer que cet homme intelligent et instruit soit
-venu échouer ici et qu'y étant venu il y reste ?
+venu échouer ici et qu'y étant venu il y reste?
 
 Il n'a pas de livres. Pour se distraire, il résout des
 
-} Lebeau et Tharaud
-| problèmes de mathématiques. Il nous parle de M. Flamj” marion, qu'il considère comme un grand esprit et un
-| grand artiste. Il voudrait relire quelques-uns de ses
-Qu livres : la description de Mars, de Vénus, Les Terres du
+Lebeau et Tharaud
+problèmes de mathématiques. Il nous parle de M. Flamj” marion, qu'il considère comme un grand esprit et un
+grand artiste. Il voudrait relire quelques-uns de ses
+livres: la description de Mars, de Vénus, Les Terres du
 Ciel. Mais il ne sait s'il pourra se les procurer, à cause
 À 4 de la censure turque. Nous promettons de lui expédier
 ces livres, aussitôt arrivés à Paris.
-; $ L'après-midi nous rendons visite à un vieux moine
-48 peintre, le père Benjamin, qui s'est construit un ermif tage à quelques centaines de mètres du couvent. Le .
+; L'après-midi nous rendons visite à un vieux moine
+48 peintre, le père Benjamin, qui s'est construit un ermif tage à quelques centaines de mètres du couvent. Le.
 ; bonhomme, qui est très vieux, vit tout seul, avec.quel-
-, h ques élèves. Pour nous souhaiter la bienvenue, il va
-4 nous cueillir un bouquet de fleurs de la passion : les
+, ques élèves. Pour nous souhaiter la bienvenue, il
+4 nous cueillir un bouquet de fleurs de la passion: les
 couleurs des pétales, la forme du pistil et des étamines
-ÿ rappellent les clous, le marteau, la couronne d'épines.
+rappellent les clous, le marteau, la couronne d'épines.
 Il nous offre ces fleurs avec un sourire charmant. Il
 nous emmène dans son atelier. Nous n'avons pas le
 courage de faire des compliments au vieux moine. Ces
 saint Georges, ces saint Michel, ces saint Pantéléimon
 peints à la fresque sur les murs ou à l'huile sur les
 toiles sont vraiment trop barbares. Mais le père Benjamin a trop vécu pour être encore vaniteux.
-| — Le vieux, nous dit le père Anaximène, qui le traite
+— Le vieux, nous dit le père Anaximène, qui le traite
 comme un enfant, ne s'intéresse plus qu'à son jardin.
 Et c'est vrai. Ce jardin est son œuvre. Aidé de ses
 élèves, il a couvert de bonne terre le caillou de la montagne, où ne poussent naturellement que des myrtes,
@@ -899,43 +897,43 @@ gnant d'un mouvement de tête deux longs/jeunes gens
 hâves aux soutanes maculées, voyez-les, c'est toute une
 histoire pour les faire arroser.
 Le père Anaximène est un homme bien singulier. Ce
-grand seigneur, avant de venir à l'Athos pour y mourir, ;
-a parcouru le monde : dans sa conversation surgissent
+grand seigneur, avant de venir à l'Athos pour y mourir,;
+a parcouru le monde: dans sa conversation surgissent
 à tous moments des noms de pays lointains. L'ile de
 Sakbaline, l'Annam, la Mandchourie, l'Égypte, sont
-pour lui des contrées familières : il est allé partout, et
+pour lui des contrées familières: il est allé partout, et
 toujours par terre, en bon Russe peu ami de la mer et
 pour qui les longs trajets en véhicules primitifs ne
 comptent guère. La liberté de son esprit est aussi surprenante que son érudition géographique. Nous nous
-attardons le soir, assez avant dans la nuit, à causer |
+attardons le soir, assez avant dans la nuit, à causer
 sur une des terrasses aériennes du couvent. La mer
 brille sous la lune. Le vent souffle doucement chargé
-de parfums. L'ombre accuse le caractère militaire du |
-couvent. Les mêmes chants monotones que nous avons ;
+de parfums. L'ombre accuse le caractère militaire du
+couvent. Les mêmes chants monotones que nous avons;
 déjà entendus dans la cale du bateau et au Seraï
 montent vers nous de l'église éclairée. Le père Anaximène nous explique comment se recrutent les moines
 russes de lAthos.
 — Chaque année, parmi les pèlerins qui nous arrivent,
-un millier environ demandent à rester au couvent :
+un millier environ demandent à rester au couvent:
 dans le nombre beaucoup de repris de justice, de
 vagabonds, de jeunes gens qui veulent échapper au
 service militaire. L'higoumène en retient cent cinquante
 à deux cents, chiffre qui représente la mortalité
-moyenne annuelle du couvent. On meurt plus chez |
-nous que chez les Grecs. Nous n'avons pas de médecin :
+moyenne annuelle du couvent. On meurt plus chez
+nous que chez les Grecs. Nous n'avons pas de médecin:
 tout au plus, lorsqu'un moine important est malade,
 
-* Lebeau et Tharaud
+Lebeau et Tharaud
 
-Ü envoie-t-on chercher le médecin du couvent grec de
+envoie-t-on chercher le médecin du couvent grec de
 
-| ‘ Lavra. Les autres sont soignés ici, à l'hôpital. Ils
+Lavra. Les autres sont soignés ici, à l'hôpital. Ils
 
 trouvent que c'est suffisant.
 
-$ Du recrutement des moines la causerie saute à la
+Du recrutement des moines la causerie saute à la
 
-P question de l'esclavage en Turquie.
+question de l'esclavage en Turquie.
 
 à — L'esclavage existe toujours en Turquie, dit le père
 
@@ -945,16 +943,16 @@ Anaximène. Je me souviens, il y a quelques années,
 
 : de Circassie. J'en ai même acheté trois pour mon
 
-| — Vous les avez gardées longtemps, mon père ?
+— Vous les avez gardées longtemps, mon père?
 
 : — Non, quelques semaines. Je m'ennuyais à Constan-
 
-| tinople, et je ne pouvais songer à emmener ces femmes
+tinople, et je ne pouvais songer à emmener ces femmes
 
 — Et qu'en avez-vous fait? Vous les avez revendues?
 
 — Non. Je leur ai donné la liberté. Naturellement
-elles n'ont su que faire de ce cadeau, et elles sont
+elles n'ont que faire de ce cadeau, et elles sont
 retournées se vendre au même marchand qui me les
 avait procurées.
 
@@ -966,7 +964,7 @@ sa vie monogame.
 
 Quant à la polyandrie, elle ne lui semble pas le
 
-| moins du monde contre nature. Il l'a rencontrée en
+moins du monde contre nature. Il l'a rencontrée en
 
 Les moines russes sont très hospitaliers, mais ils
 n'ont aucun souci de la liberté de leurs hôtes. Ils ne
@@ -983,12 +981,12 @@ passe au pied de vieilles tours ruinées, reste d'anciennes fortifications, trav
 débouchent de vallées au-dessus desquelles on aper-
 çoit, juchés à une formidable hauteur, des ermitages
 isolés. Nous passons sans nous arrêter au pied des
-murs de Dochiariou : ses innombrables bâtiments
+murs de Dochiariou: ses innombrables bâtiments
 polychromes aux formes variées, où des passerelles
 multicolores, des balcons bleus, rouges, verts, s'accrochent dans le désordre le plus pittoresque; ses
 coupoles écarlates, entre lesquelles pointent les cyprès,
 nous font regretter de n'y pouvoir au moins faire halte.
-Mais nous allons au Zôgraphe : ainsi en a décidé le
+Mais nous allons au Zôgraphe: ainsi en a décidé le
 père Anaximène, notre hôte de la veille. En quittant le
 bord de la mer, le chemin s'engage dans une gorge
 merveilleusement boisée où se mêlent toutes les
@@ -1007,97 +1005,97 @@ Lebeau et Tharaud
 1 — Le kaïmakam est en tournée, nous a-t-il dit en le
 voyant venir. Son gouvernement ne le paie pas. Il faut
 
-bien qu'il vive, cet homme! Alors il va ainsi de couvent
-E en couvent. Quand il est sur le point de partir, l'higoumène s'approche de lui et lui offre un mouchoir « pour
+bien qu'il vive, cet homme! Alors il ainsi de couvent
+en couvent. Quand il est sur le point de partir, l'higoumène s'approche de lui et lui offre un mouchoir « pour
 à essuyer la sueur de son front ». Le kaïmakam sait ce
-LÉ que cela veut dire. Il prend le mouchoir et le glisse
+que cela veut dire. Il prend le mouchoir et le glisse
 1 dans sa poche, avec les livres turques qu'il contient.
-N — Il est fort, le bakchich ?
+— Il est fort, le bakchich?
 4 — Cela dépend de la richesse du couvent, des ciri constances, et de la discrétion du kaïmakam. À
 La cour du Zôgraphe est une des plus belles cours
-“ de couvent que nous ayons vues. Elle est bordée d'un
+de couvent que nous ayons vues. Elle est bordée d'un
 côté par les hauts bâtiments monastiques; de l'autre,
 ; une montagne pelée la surplombe, plantée au sommet
 d'une ligne de cyprès hauts et minces, pareils à des
-1e lances. Un cloître court à l'étage inférieur des bâti-
-| ments. Deux immenses cyprès se dressent au centre de
+lances. Un cloître court à l'étage inférieur des bâti-
+ments. Deux immenses cyprès se dressent au centre de
 la cour. Plusieurs édicules de brique rose s'y élèvent
-\s sans souci de la symétrie. De l'herbe pousse entre les
-| pavés. L'église principale paraît s'écraser de vieillesse
+sans souci de la symétrie. De l'herbe pousse entre les
+pavés. L'église principale paraît s'écraser de vieillesse
 À au milieu, toute en briques avec des parvis de marbre.
-X A l'intérieur, devant l'iconostase, l'image miraculeuse
-k de saint Georges, le patron du couvent, attire le regard;
-| elle est ornée d'ex-voto qui sont des merveilles : mé-
-" dailles grecques anciennes, bijoux d'or et d'argent,
-s: pierres de prix. Jadis, selon la légende, cette figure à
+A l'intérieur, devant l'iconostase, l'image miraculeuse
+de saint Georges, le patron du couvent, attire le regard;
+elle est ornée d'ex-voto qui sont des merveilles: mé-
+dailles grecques anciennes, bijoux d'or et d'argent,
+pierres de prix. Jadis, selon la légende, cette figure à
 à l'expression archaïque et lointaine est venue d'ellemême de Palestine se placer dans l'église. Elle n'est
-Ë pas l'œuvre d'un peintre, mais bien du saint lui-même,
+pas l'œuvre d'un peintre, mais bien du saint lui-même,
 108) dont les traits apparaissent fixés sur la toile en
 
-vertu de son pouvoir surnaturel. C'est là l'origine
+vertu de son pouvoir surnaturel. C'est l'origine
 
-du nom même du couvent : Zôgraphe, qui signifie
+du nom même du couvent: Zôgraphe, qui signifie
 L'église est riche aussi en reliquaires d'argent. Le à
-sacristain qui découvre les reliques est un jeune frère !
+sacristain qui découvre les reliques est un jeune frère!
 au front bas, mangé par une toison de cheveux noirs, À
 aux yeux bruns, au teint de cire. Il nous regarde d'un
-air haineux : nous sommes des schismatiques. Nous
+air haineux: nous sommes des schismatiques. Nous
 voudrions contempler longtemps ces merveilles d'orfè-
 vrerie byzantine. Mais il ne le permet pas. Il jette bien
 vite dessus de vieilles soies fanées, comme si nos seuls
 regards profanaient les tibias, les crânes, les doigts
-vénérables des saints. Le moine bulgare qui nous fait |
+vénérables des saints. Le moine bulgare qui nous fait
 visiter Le couvent, le père Euphorion, est d'une timidité
 enfantine. Il n'a pas le courage de résister à cette jeune
-brute : il se contente de nous dire avec une grimace
+brute: il se contente de nous dire avec une grimace
 — C'est un fanatique!
-Ensuite il nous fait visiter de haut en bas le couvent, |
-confus assemblage des édifices les plus variés : tours,
+Ensuite il nous fait visiter de haut en bas le couvent,
+confus assemblage des édifices les plus variés: tours,
 appartements pour les moines et les étrangers. La
 cuisine, le réfectoire, les cours et le cloître sont de
-proportions colossales : le couvent a dû être autrefois
+proportions colossales: le couvent a être autrefois
 très peuplé. La polychromie, l'emploi des couleurs À
 vives, qui étonnent le visiteur dès son arrivée à l'Athos,
-sont ici plus frappants que partout ailleurs : murs,
+sont ici plus frappants que partout ailleurs: murs,
 portes et couloirs sont badigeonnés de jaune, de bleu
 foncé, de vert. A chaque pas des tableaux, gravures,
 chromos, panneaux sculptés, qui tous ont pour sujet la
-légende de saint Georges. Dans le salon où nous |
+légende de saint Georges. Dans le salon où nous
 reçoivent les deux supérieurs, dont l'air affable et la
 
 Lebeau et Tharaud
-û , avec l'hostilité des moines de l'église, une admirable
-AL tapisserie byzantine, digne pendant oriental des plus
+, avec l'hostilité des moines de l'église, une admirable
+tapisserie byzantine, digne pendant oriental des plus
 Ne beaux Bruges pour la finesse et le fondu des nuances,
 7 représente saint Michel terrassant le dragon. On nous
 a montre enfin au dernier étage du couvent une nouvelle
-Ke église, encore en construction, toute ornée de sculp-
+église, encore en construction, toute ornée de sculp-
 À tures sur bois qui font l'admiration des moines plus
-HS que la nôtre. D'une petite terrasse voisine, qui forme
+que la nôtre. D'une petite terrasse voisine, qui forme
 toit, on voit luire les deux mers qui baïignent la pres-
 È qu'île, on embrasse tout le chaos de montagnes boisées
 À au milieu duquel s'élève le monastère. Tout autour,
-k ji plus haut que les frêles balcons coloriés perchés çà et
-1% là entre les lourds contreforts de pierre, des nuées
+plus haut que les frêles balcons coloriés perchés et
+1% entre les lourds contreforts de pierre, des nuées
 ; d'hirondelles se donnent la chasse dans le jour finis-
 
-“ sant et crient.
+sant et crient.
 Le lendemain nous quittons le couvent, dont nous
-- n'avons pu visiter la bibliothèque, les moines ayant
+- n'avons visiter la bibliothèque, les moines ayant
 imaginé toutes sortes de prétextes pour nous empêcher
 ! d'y entrer. Bien des préjugés, bien des défiances à
 l'égard des Occidentaux subsistent encore dans l'esprit
 des moines de l'Athos. De tout temps ils ont été opposés aux tentatives d'union de l'orthodoxie avec l'Église
 latine, et il semble qu'ils n'aient point oublié les mau-
 ! vais traitements qu'au treizième siècle les conquérants
-| de la quatrième croisade firent subir à leurs devanciers.
+de la quatrième croisade firent subir à leurs devanciers.
 à A la porte du monastère, nous nous séparons du
 père Anaximène, qui repart au Roussikon, et nous
 prenons la route de Vatopédi. Nous sommes confiés
 aux bons soins du père Euphorion, le seul moine du
 Zôgraphe qui parle français. La vie de couvent semble
 
-m'avoir eu aucune influence sur le père Anaximène.
+m'avoir aucune influence sur le père Anaximène.
 On ne saurait en dire autant du père Euphorion. Le
 pauvre homme semble bien déprimé. Il ne parle que
 par monosyllabes, avec un bizarre sourire ennuyé, qui
@@ -1111,10 +1109,10 @@ congelés dans une huile rance, n'ont pas rassasié,
 nous précède silencieux sur son mulet. Ce mutisme
 attriste le père Euphorion.
 
-| — Votre ami est un mélancolique, me dit-il ; il devrait :
+— Votre ami est un mélancolique, me dit-il; il devrait:
 se marier, parce que les femmes, voyez-vous, les
 
-… femmes, ça excite. — Et, ce disant, il imite avec
+… femmes, excite. — Et, ce disant, il imite avec
 
 … son pouce le geste d'un homme qui fait sauter le
 bouchon d'gne bouteille de champagne.
@@ -1129,19 +1127,19 @@ Le père Euphorion nous apprend que le monastère de
 
 … Vatopédi, où nous allons, est un des plus beaux monas-
 
-| tères grecs. On y est très bien nourri; on a, là-bas, de
+tères grecs. On y est très bien nourri; on là-bas, de
 
 — bon vin, du cognac. Mais ce qui paraît surtout exciter
 
-—_ son admiration, ce sont les cabinets :
+son admiration, ce sont les cabinets:
 
-S — Des cabinets modernes, monsieur, avec de l'eau.
+— Des cabinets modernes, monsieur, avec de l'eau.
 
 Il nous tarde d'arriver dans un aussi confortable
 
 - Le vin qu'on nous y a servi délie la langue du père
 
-| Euphorion. Il devient même bavard. Il se lance dans la
+Euphorion. Il devient même bavard. Il se lance dans la
 
 Lebeau et Tharaud
 
@@ -1152,8 +1150,8 @@ hommes se tuaient avec des frondes ou au moyen
 d'arcs. Aujoùrd'hui, ils se tuent avec des obus. C'est
 la même chose, au fond. C'est toujours... comment
 dirai-je, — il cherche quelques instants le mot français
-qui rendra sa pensée, — … c'est toujours... le jet. Il ny
-a là aucune différence fondamentale. — Et sa figure
+qui rendra sa pensée, — … c'est toujours... le jet. Il
+a aucune différence fondamentale. — Et sa figure
 s'éclaire de ce sourire constipé qui nous étonne toujours.
 
 Ce moine est un ancien homme intelligent. Albanais
@@ -1163,22 +1161,22 @@ plus exacts sur les coutumes de sa patrie, sur les rivalités qui la divisent, s
 le français avec difficulté, mais d'une façon correcte,
 hésite avant de parler, mais rencontre toujours l'expression et le mot précis. L'étrange mysticisme du
 milieu où il vit semble avoir obscurci ses notions primitives. Comme nous l'interrogeons sur l'état d'esprit
-des moines :
+des moines:
 
 — Il y a des moines, nous dit-il, qui voudraient plus
 d'instruction dans les couvents. D'autres soutiennent
 qu'il faut vivre comme autrefois. Ils disent que si
-PAthos a pu subsister des siècles sans culture intellectuelle, si ses moines ont résisté aux attaques à main
+PAthos a subsister des siècles sans culture intellectuelle, si ses moines ont résisté aux attaques à main
 armée, et à la malveillance, parfois plus dangereuse, par
 la seule vertu des prières et de la foi, ils peuvent se
 contenter de suivre encore l'ancienne tradition.
 
 Mais le père semble craindre d'en dire trop long.
 Nous lui parlons du genre de vie des moines bulgares,
-il nous répond : ;
+il nous répond:;
 
-— Messieurs, connaissez-vous Assouân ? Quelles
-cataractes ! Vous savez, n'est-ce pas, qu'on a découvert
+— Messieurs, connaissez-vous Assouân? Quelles
+cataractes! Vous savez, n'est-ce pas, qu'on a découvert
 à Lougsor, sur un bloc de granit rouge, le plan détaillé
 d'une locomotive et le tracé d'une voie ferrée. Les
 anciens Égyptiens connaissaient donc la vapeur et ses
@@ -1196,45 +1194,45 @@ Vatopédi, avec ses vastes cours, ses préaux, ses
 hangars, ses bibliothèques et ses nombreuses cha-
 … pelles, évoque encore l'image d'une riche abbaye du
 moyen âge où vivent grassement des moines à riche
-— prébende : comme dans les moutiers des légendes,
- étables et bergeries regorgent, les visiteurs succèdent
+— prébende: comme dans les moutiers des légendes,
+étables et bergeries regorgent, les visiteurs succèdent
 aux visiteurs et les greniers sont pleins du beau
 —. grain doré des îles voisines. Le couvent possède un
 petit port, abrité des vents du nord par une digue.
 En arrière, disposées en arc de cercle sur la plage de
 sable fin, les cabanes de bois d'un minuscule village de
 moines pêcheurs, toutes munies d'une petite véranda
-ornée de fleurs, s'accolent aux murailles du couvent :
+ornée de fleurs, s'accolent aux murailles du couvent:
 … de grands filets et des voiles rouges pendent des balus_ trades en planches. Nous regardons tomber le soir au
 bord de la mer. Des pêcheurs de Longos et de Cassandra, les jambes nues, habillés de haillons, tirent à la
 
-té, ÿ Lebeau et Tharaud
+té, Lebeau et Tharaud
 À grève, rangés sur deux files, un long filet maintenu au
-it fond par des plombs, dont une barque montée par deux
-k moines vient de leur amener à la côte les deux extré-
+fond par des plombs, dont une barque montée par deux
+moines vient de leur amener à la côte les deux extré-
 4 mités. Depuis combien de siècles les pêcheurs de
-ee Chalcidique font-ils cette pêche primitive, que nous
-À avons vu pratiquer toute pareille au Lido ? A la nuit,
+Chalcidique font-ils cette pêche primitive, que nous
+À avons pratiquer toute pareille au Lido? A la nuit,
 1 nous retournons voir l'église à double portique, en-
 à tourée de lauriers. Elle renferme une des Panaghia les
-% plus vénérées de l'Athos, tellement sainte que nous
-ï. ne pouvons l'apercevoir qu'en passant et à la hâte : les
-* moines ne souffrent pas qu'on s'attarde à la contem- » pler.
-‘à Pantocrator, qu'un cap rocheux sépare de Vatopédi,
+plus vénérées de l'Athos, tellement sainte que nous
+ï. ne pouvons l'apercevoir qu'en passant et à la hâte: les
+moines ne souffrent pas qu'on s'attarde à la contem- » pler.
+Pantocrator, qu'un cap rocheux sépare de Vatopédi,
 ; est un couvent bien déchu de son ancienne splendeur.
 ; Quelques moines y vivent chichement du produit de
 : leurs vignes et de leurs oliviers. Mais c'est un des cou-
 ! vents où l'hospitalité est la plus digne, la plus courd toise. Le frère Alexis, un jeune moine de Syrie, beau
 À comme un dieu phrygien, nous apprend que l'année
-f précédente deux peintres français ont fait à Panto-
-] crator un séjour de quelques semaines. Ces voyageurs
-; ont eu le goût délicat. Le couvent s'avance sur une
-ÿ étroite falaise de rocs bruns. Quand la mer est un peu
-; forte, la vague saute jusqu'aux murailles. De la cui3 sine, la vue est merveilleuse sur Thasos, qui semble
-\ toute proche, Samothrace, plus lointaine, la côte de
-; U Macédoine. Cette cuisine est la pièce la plus agréable
-qu'on puisse imaginer : elle est haute, grande, éclairée
-Ë par la double lumière qui vient du ciel et de la mer.
+précédente deux peintres français ont fait à Panto-
+crator un séjour de quelques semaines. Ces voyageurs
+; ont le goût délicat. Le couvent s'avance sur une
+étroite falaise de rocs bruns. Quand la mer est un peu
+; forte, la vague saute jusqu'aux murailles. De la sine, la vue est merveilleuse sur Thasos, qui semble
+toute proche, Samothrace, plus lointaine, la côte de
+; Macédoine. Cette cuisine est la pièce la plus agréable
+qu'on puisse imaginer: elle est haute, grande, éclairée
+par la double lumière qui vient du ciel et de la mer.
 Dans les murailles rougeâtres de la cour sont enchâs76
 
 , sées de vieilles faïences turques aux tons éteints; une
@@ -1243,12 +1241,12 @@ double porte bardée de fer et qui date du haut moyen
 trace des balles qui s'y enfoncèrent sans la traverser,
 lors d'un assaut.
 
-La chambre des étrangers qui nous est offerte diffère peu des salles semblables des autres couvents : le
+La chambre des étrangers qui nous est offerte diffère peu des salles semblables des autres couvents: le
 même divan bas y court tout le long des murs, revêtu
 ici d'un tapis aux teintes passées, et pas d'autre installation pour dormir. Mais nous y jouirons deux jours
 durant, sans nous lasser, d'un paysage sublime. Tous
-les grands aspects de la nature, qui font de la presqu'îile athonique la plus belle terre d'Orient, sont ici ‘
-réunis : à droite des fenêtres, la montagne couverte
+les grands aspects de la nature, qui font de la presqu'îile athonique la plus belle terre d'Orient, sont ici
+réunis: à droite des fenêtres, la montagne couverte
 d'épaisses forêts que domine la haute cime de lAthos,
 couronnée de neige; à gauche et en face de nous, un
 immense horizon de mer, sans une voile, peuplé seulement d'îles, sous un ciel d'été invariablement pur.
@@ -1265,45 +1263,45 @@ la montagne, au milieu de forêts, le skite russe de
 Saint-Élie. Ses murailles neuves, ses coupoles vertes,
 ses croix dorées, son air d'opulence font paraître le
 monastère grec plus humble, plus noir, plus décrépit.
-Là haut sûrement est la puissance, la richesse, mais
+haut sûrement est la puissance, la richesse, mais
 ici est le passé, la poésie, la beauté.
 
 Lebeau et Tharaud
 De l'autre côté de la petite baie dont Pantocrator
 occupe la pointe nord, s'élève, aussi sur un promon-
-| toire de rochers entaillés par la mer, un autre monastère grec, Stavronikita. Nous nous en sommes appro-
-| chés, une après-midi de dimanche, en barque, avec le
+toire de rochers entaillés par la mer, un autre monastère grec, Stavronikita. Nous nous en sommes appro-
+chés, une après-midi de dimanche, en barque, avec le
 frère Alexis. Le couvent était silencieux et comme
-| inhabité. Le grand soleil qui tombait d'aplomb sur ses
+inhabité. Le grand soleil qui tombait d'aplomb sur ses
 pierres noircies l'attristait encore de sa lumière vivante
-| et dorée. Les pointes de quelques cyprès émergeant audessus des toits bruns, des loques pendues aux fenêtres,
+et dorée. Les pointes de quelques cyprès émergeant audessus des toits bruns, des loques pendues aux fenêtres,
 le bruit d'une simandre, — plaque de bois que l'on
 frappe avec un marteau de même matière, — appelant
-| les moines à un oflice, nous signifièrent que tout n'était
+les moines à un oflice, nous signifièrent que tout n'était
 pas mort là-haut dans cette romantique masure.
-Ë Nous faisons part au frère Alexis de nos craintes
+Nous faisons part au frère Alexis de nos craintes
 pour l'avenir des couvents grecs. Cela n'a pas l'air de
 l'émouvoir. Il a une foi robuste en l'hellénisme, la même
 foi absolue, enfantine, que nous avons déjà remarquée
 en lui quand nous avons parlé de religion. Nous lui
-avons dit un jour :
+avons dit un jour:
 
 — N'êtes-vous pas triste, frère Alexis, d'être venu si
 
 jeune dans ce couvent? Nous nous ferons moines, peut-
 : être, mais quand nous serons vieux, très vieux.
 
-1 nous a regardés étonné et nous a répondu :
+1 nous a regardés étonné et nous a répondu:
 
 — Sans doute, la vie est un peu monotone ici. Dans
 le monde, vous pouvez voyager... vous pouvez vous
-marier. Mais après... après ?
+marier. Mais après... après?
 
 Son imagination lui représente une éternité de
 
 É Ce jeune homme nous donne, nous ne savons pour-
 ; quoi, une impression de chrétien des premiers temps
-du christianisme : un jeune Syrien, adorateur de
+du christianisme: un jeune Syrien, adorateur de
 
 Mithra, qui se serait converti à la doctrine du Christ.
 Avec son teint chaud d'olive mûre, sa belle barbe
@@ -1325,12 +1323,12 @@ ayons jamais passé la nuit. Les fenêtres défendues
 
 . par d'énormes barreaux de fer ouvraient sur un petit
 verger planté de citronniers. Un lit de camp en bois
-faisait tout le tour de la vaste pièce, crasseuse et £
+faisait tout le tour de la vaste pièce, crasseuse et
 empuantie; au-dessus, des rayons semblant attendre
 
 . un fourniment complétaient l'illusion. Au matin, Johann
 
-. affirma avoir vu se promener, sur les couvertures où il
+. affirma avoir se promener, sur les couvertures où il
 dormait, des poux, des poux à barbe rouge!
 
 Avec beaucoup de peine nous sommes admis à voir
@@ -1338,40 +1336,40 @@ l'église et la bibliothèque. Ce couvent a été l'un des
 plus pillés par des visiteurs peu scrupuleux, philologues ou collectionneurs. Aussi les moines sont-ils
 devenus très méfiants. Le moine qui nous montre les
 
-"10 Lebeau et Tharaud ;
-13 , livres ne nous quitte pas des yeux : il nous fait voir
+"10 Lebeau et Tharaud;
+13, livres ne nous quitte pas des yeux: il nous fait voir
 2 des manuscrits dont toutes les miniatures et initiales
 “5 enluminées ont été découpées au canif et volées.
-sl Sur la plage, où brisait une mer houleuse, magni-
-#4 fique, nous avons assisté au lancement d'une barque
-‘à construite au chantier du couvent. Dans un kiosque,
-pe lhigoumène, entouré des dignitaires d'Iviron, assistait
-ee 8 à. l'opération en dégustant des petits verres de cognac.
-‘4 Le lancement ne s'effectue pas sans peine : il est
+Sur la plage, où brisait une mer houleuse, magni-
+4 fique, nous avons assisté au lancement d'une barque
+construite au chantier du couvent. Dans un kiosque,
+lhigoumène, entouré des dignitaires d'Iviron, assistait
+8 à. l'opération en dégustant des petits verres de cognac.
+Le lancement ne s'effectue pas sans peine: il est
 de accompagné de cris, de disputes, même de jurons.
-Fe Assis pêle-mêle sur des tas de foin odorant qu'on vient
+Assis pêle-mêle sur des tas de foin odorant qu'on vient
 É d'amener de Thasos, où les moines ont des domaines
-« 3 qu'ils font cultiver par des ouvriers laïques, de nomk: “à breux caloyers regardent, désœuvrés. On les sent
-#1. habitués à l'oisiveté, mais non au silence. Nous
-# admirons la sveltesse et l'élégance des bateliers, des
-| © marins de Longos, où la race grecque s'est conservée
-x: pure de tout mélange.
-; D'Iviron à Lavra la route est longue : nous n'arrivors
+« 3 qu'ils font cultiver par des ouvriers laïques, de nomk: breux caloyers regardent, désœuvrés. On les sent
+1. habitués à l'oisiveté, mais non au silence. Nous
+admirons la sveltesse et l'élégance des bateliers, des
+marins de Longos, où la race grecque s'est conservée
+pure de tout mélange.
+; D'Iviron à Lavra la route est longue: nous n'arrivors
 È qu'à la nuit au couvent fondé par saint Athanase à
 ! 1: l'extrémité méridionale de l'Aghion Oros. Précédés
-s par un jeune agoyate boiteux qui marche en sautillant
+par un jeune agoyate boiteux qui marche en sautillant
 à à la tête des mulets, nous allons par un sentier qui
 grimpe dans la montagne, descend dans des valleuses
 par de périlleux escaliers ou le long d'argiles glis-
 ‘se santes, contourne des criques couvertes de sable blanc
-(E et fin, où le bruit de la mer se mêle au bruit du vent
+et fin, où le bruit de la mer se mêle au bruit du vent
 ne. dans les arbres. Sur un escarpement rocheux qui
-k s'avance en éperon dans la mer se dresse une tour
+s'avance en éperon dans la mer se dresse une tour
 
-carrée à baies en ogive; derrière, là où cesse le rocher,
+carrée à baies en ogive; derrière, où cesse le rocher,
 s'étend un vaste enclos où des bosquets d'oliviers, de
 cyprès, se mêlent aux prés fleuris et aux pièces
-” d'avoine mûre; de grands espaces incultes parsemés
+d'avoine mûre; de grands espaces incultes parsemés
 de lentisques ajoutent encore au charme agreste de cet
 ermitage. Nous reconnaissons la kellia dont le frère
 Alexis nous a parlé l'avant-veille au Pantocrator. Là,
@@ -1384,69 +1382,69 @@ nouvel Athanase, pour l'élever au patriarcat; seul
 l'intérêt de l'hellénisme et de l'orthodoxie put le décider à renoncer à la vie cénobitique, qui avait plus
 d'attrait pour lui que les grandeurs du pouvoir.
 Notre leste agoyate, devant nous boitillant, nous
-presse d'exciter nos mulets. Il faut nous hâter : la
+presse d'exciter nos mulets. Il faut nous hâter: la
 porte du couvent de Lavra est fermée à huit heures. Le
 soleil qui décline éclaire la pointe de l'Athos, qui est
-toute rose : à travers les branches brille la mer. À
+toute rose: à travers les branches brille la mer. À
 l'horizon surgit Thasos dans une lumière surnaturelle,
 tellement fantastique que l'on doute si Thasos est une
 véritable terre ou un jeu de lumière et de brume.
 Thasos que nous ne verrons pas! La barque que nous
-avons vu lancer à Iviron devait faire voile vers l'île.
+avons lancer à Iviron devait faire voile vers l'île.
 Nous avons été tentés d'y prendre passage. Mais qui
-sait quand nous serions revenus ? En cette saison les
+sait quand nous serions revenus? En cette saison les
 vents sont si capricieux que la traversée demande
 quelques heures ou quelques jours.
 Plus nous avançons vers Lavra, plus la forêt devient
 épaisse. Des sources s'égouttent dans les taillis au
 
-ï Lebeau et Tharaud :
-V pied de châtaigniers séculaires. La lueur rosée qui
-u flamboyaïit au sommet du mont Athos s'est éteinte. La
-{ rocheuse Thasos n'a plus l'air irréelle. Nos mulets fati-
-\ gués s'arrêtent pour boire à tous les ruisseaux qui
+ï Lebeau et Tharaud:
+pied de châtaigniers séculaires. La lueur rosée qui
+flamboyaïit au sommet du mont Athos s'est éteinte. La
+rocheuse Thasos n'a plus l'air irréelle. Nos mulets fati-
+gués s'arrêtent pour boire à tous les ruisseaux qui
 ravinent le chemin. Notre agoyate se met à chanter
 une chanson grecque dont le rythme donne envie de
 danser. Un moulin, que nous frôlons, dans le creux
 4 d'un vallon dont la fraîcheur nous fait frissonner, nous
 à suit longtemps du gémissement de sa roue. Nous
-| passons à gué de petites rivières encombrées de pierres
-‘3 moussues et qui doivent foisonner d'écrevisses. Quel
-! ; délice si l'on pouvait vivre dans ce pays une vie primi- .
-# tive de pêche et de chasse! Avec un bateau, un fusil et
-G des lignes on aurait des mois de bonheur... La vie nocturne de la forêt s'éveille : des animaux invisibles
-td glissent sous les branches; un renard en chasse glapit
-| au loin; un oiseau plonge vers la mer d'un vol lourd.
+passons à gué de petites rivières encombrées de pierres
+moussues et qui doivent foisonner d'écrevisses. Quel
+!; délice si l'on pouvait vivre dans ce pays une vie primi-.
+tive de pêche et de chasse! Avec un bateau, un fusil et
+des lignes on aurait des mois de bonheur... La vie nocturne de la forêt s'éveille: des animaux invisibles
+glissent sous les branches; un renard en chasse glapit
+au loin; un oiseau plonge vers la mer d'un vol lourd.
 - Les eaux courantes changent de voix.
-°# L'agoyate nous montre du bout de son bâton,
-| ‘ au-dessous de nous, au milieu des oliviers, l'immense
-ÿ couvent qui domine la mer. L'allée qui mène à la
+L'agoyate nous montre du bout de son bâton,
+au-dessous de nous, au milieu des oliviers, l'immense
+couvent qui domine la mer. L'allée qui mène à la
 É poterne est pavée de larges dalles, bordées de cyprès
 alternant avec des lauriers en fleurs. Le vide du cou-
-# vent est d'autant plus saisissant qu'il a été bâti pour
-4 abriter une foule : la simandre n'appelle aux offices
+vent est d'autant plus saisissant qu'il a été bâti pour
+4 abriter une foule: la simandre n'appelle aux offices
 14 que quelques moines.
 Go: Par la beauté de son site, par le pittoresque, l'im-
 È prévu de ses architectures multicolores, Lavra est la
-\ merveille de l'Athos. Le voyageur qui n'aurait visité
-K que ce seul couvent emporterait de la montagne sainte
+merveille de l'Athos. Le voyageur qui n'aurait visité
+que ce seul couvent emporterait de la montagne sainte
 144 une vision éternelle de beauté. L'antique enceinte
 
 carrée, flanquée de tours aux quatre angles, est restée
-debout. Çà et là dans la muraille, des lézardes, envahies
+debout. et dans la muraille, des lézardes, envahies
 de plantes grimpantes; au bas, des bosquets de houx,
 de cyprès, rompant la monotonie de la pierre; plus
 haut que la ligne de faîte très nette sur le ciel cru, les
-toits des bâtiments monastiques, les coupoles écarlates à petites fenêtres blanches des chapelles et des :
+toits des bâtiments monastiques, les coupoles écarlates à petites fenêtres blanches des chapelles et des:
 pointes de cyprès qui s'inclinent sous le vent de mer.
 Depuis que les sièges ne sont plus à craindre, des
 cellules aériennes, retraites de moines amoureux d'horizon et de solitude, se sont accrochées par des étais
 de bois au mur extérieur. Un chemin de ronde en fait le
 tour, embarrassé de fleurs sauvages, d'arbustes épineux. Le couvent est bâti à mi-hauteur, à la limite où
-s'arrêtent les oliviers : en dessous, jusqu'à la mer,
+s'arrêtent les oliviers: en dessous, jusqu'à la mer,
 c'est un fouillis de verdure, une pente douce plantée
 de bois d'orangers, d'oliviers, d'amandiers, creusée
-d'étroits ravins d'où jaillissent des sources : on va, on
+d'étroits ravins d'où jaillissent des sources: on va, on
 erre au milieu des parfums, on se sent transporté aux
 côtes siciliennes. Plus haut que le couvent, la montagne couronnée par le sommet conique de l'Athos est
 couverte d'une brousse de genêts et d'ajoncs, sans
@@ -1461,22 +1459,22 @@ de l'Athos, est aussi celui qui permet de se faire l'idée
 la plus complète et la plus authentique d'un monastère
 byzantin du moyen âge. Au tympan de l'unique porte
 
-x Lebeau et Tharaud
+Lebeau et Tharaud
 
 d'entrée, un saint Athanase, peint à fresque, étend les
 mains. comme pour accueillir le visiteur; par un cou-
-| loir voûté, tortueux, on accède à la cour, irrégulièrement plantée de cyprès. Au milieu, à la place d'hon-
+loir voûté, tortueux, on accède à la cour, irrégulièrement plantée de cyprès. Au milieu, à la place d'hon-
 
-' neur, le Catholicos, la grande église à murs et à
-coupoles écarlates; çà et là, dans la cour, parmi
+neur, le Catholicos, la grande église à murs et à
+coupoles écarlates; et là, dans la cour, parmi
 
 d'autres bâtiments, plusieurs chapelles plus petites,
 
-J également à coupoles. Plus loin, le réfectoire, vaste
+également à coupoles. Plus loin, le réfectoire, vaste
 comme une cathédrale, laissé à l'abandon depuis
 l'époque où les moines, qui autrefois prenaient leurs
-repas en commun, ont commencé à vivre indépendants .
-et retirés chacun dans sa cellule : sur leurs bases de
+repas en commun, ont commencé à vivre indépendants.
+et retirés chacun dans sa cellule: sur leurs bases de
 
 pierre reposent encore les anciennes tables, de larges
 
@@ -1501,45 +1499,45 @@ dans la muraille des faïences multicolores, aux dessins
 
 variés; sur les fonds bleus ou blancs de larges plats,
 
-| des roses, des iris, des tulipes, d'autres fleurs réelles
+des roses, des iris, des tulipes, d'autres fleurs réelles
 ou nées de la fantaisie du peintre sont semées au
 
 hasard, ou groupées en bouquets. Quel poète, quel
 
 ; artiste a rêvé d'égayer ces vieux murs au laid badigeon
 rouge de la féerie de couleurs des jardins d'Orient?
-SR Ici, où toutes choses ont un air ancien, les moines ont
+Ici, où toutes choses ont un air ancien, les moines ont
 conscience de la valeur des trésors d'orfèvrerie, pré-
 
-sents des empereurs, que renferme leur église : ils ne les
+sents des empereurs, que renferme leur église: ils ne les
 montrent qu'avec respect et suivant les règles d'un
 cérémonial impressionnant. Devant l'iconostase en
-or, noircie par l'encens, les visiteurs attendent, debout :
+or, noircie par l'encens, les visiteurs attendent, debout:
 elle s'ouvre lentement et l'higoumène et ses deux
 acolytes, tous trois revêtus de l'étole, viennent à nous,
-tenant dans leurs mains la croix reliquaire dé Nicé-
+tenant dans leurs mains la croix reliquaire Nicé-
 phore Phocas et l'image en mosaïque du Baptiste,
-entourée d'émaux cloisonnés. Et là aussi les yeux des
+entourée d'émaux cloisonnés. Et aussi les yeux des
 schismatiques ne doivent pas s'arrêter longtemps sur
 les reliques vénérables.
 
 A. la bibliothèque nous avons parcouru le livre des
 visiteurs. Lavra est un des couvents les plus fréquentés
-par les touristes : il a la réputation d'être plus propre
+par les touristes: il a la réputation d'être plus propre
 que les autres et la cuisine y est meilleure. Nous consta-
 
 , tons une fois de plus que les seuls visiteurs de l'Athos
 sont, ou bien de pauvres diables d'artistes et d'archéologues, ou bien les conseillers et secrétaires des ambassades de Constantinople, ou bien des yachtmen à particule qui, au retour des chasses d'hiver en Albanie,
 viennent croiser sur cette côte.
 
-Heureux yachtmen ! qui peuvent se promener pendant le jour dans ce pays enchanteur et dormir
+Heureux yachtmen! qui peuvent se promener pendant le jour dans ce pays enchanteur et dormir
 dans leur cabine, à l'abri de la vermine, pendant la
 nuit.
 
 Le père bibliothécaire nous pose deux questions
-qu'on nous a faites dans tous les monastères :
+qu'on nous a faites dans tous les monastères:
 
-— Vous venez copier des manuscrits ?
+— Vous venez copier des manuscrits?
 
 — Vous venez photographier, alors?
 
@@ -1551,7 +1549,7 @@ emporté une photo-jumelle quelconque. Pour ces esprits
 
 simples un appareil photographique est encore une
 
-| machine mystérieuse, et qui confère de l'autorité à son
+machine mystérieuse, et qui confère de l'autorité à son
 
 C'est de Lavra que l'on part pour faire, en deux
 
@@ -1563,13 +1561,13 @@ russe de Kurrachee, bâti au milieu des sapins. Depuis
 
 que nous sommes à l'Athos, nos hôtes d'un jour nous
 
-ont causé bien des surprises : la bizarrerie de leurs
+ont causé bien des surprises: la bizarrerie de leurs
 
 manières, leur étrange mentalité, tout en eux nous
 
 déconcertait. Mais cet épitrope de Kurrachee est le
 
-/plus invraisemblable de tous. On l'aurait mieux vu à la
+/plus invraisemblable de tous. On l'aurait mieux à la
 
 tête d'une bande de cosaques qu'à son banc d'église, ce
 
@@ -1583,7 +1581,7 @@ sans cesse menaçant et gesticulant. Il méprise les Turcs
 
 les méprise moins que les Grecs, parce que ceux-ci ont
 
-; peur des Russes. C'est un violent, qui a eu souvent
+; peur des Russes. C'est un violent, qui a souvent
 maille à partir avec le kaimakam. Dernièrement, quand
 il construisait son église, le kaïmakam est venu lui
 demander s'il avait une permission du sultan. L'épitrope a mis le fonctionnaire à la porte par les épaules
@@ -1595,10 +1593,10 @@ gros yeux bleus à fleur de tête, que traversent parfois
 
 — Ah! si vous saviez le russe, je vous en raconterais,
 
-Oh ie grêle, l'occidental kaïmakam de Karyès ! Cet
+Oh grêle, l'occidental kaïmakam de Karyès! Cet
 épitrope l'aurait écrasé d'un coup de poing.
 
-Le pappas Georges, comme l'appelle le moine servant, est aussi un redoutable buveur : il nous faut boire
+Le pappas Georges, comme l'appelle le moine servant, est aussi un redoutable buveur: il nous faut boire
 pour lui tenir tête jusque très avant dans la nuit, — on
 boit beaucoup dans les couvents russes. — IL nous raconte avec une verve intarissable toutes sortes d'histoires, qui toutes se terminent par des malédictions
 contre les impies. Tolstoï en a sa part; décidément,
@@ -1619,28 +1617,28 @@ Cet ermite s'impose sans doute des mortifications
 exagérées, pour qu'il le traite si irrévérencieusement.
 
 Le reste de la nuit, impossible de dormir. Notre
-chambre n'est séparée de la chapelle que par l'épaisseur du mur : jusqu'au matin nous entendons psalmodier des voix nasillardes.
+chambre n'est séparée de la chapelle que par l'épaisseur du mur: jusqu'au matin nous entendons psalmodier des voix nasillardes.
 
 De bonne heure, à pied, nous avons commencé l'ascension de l'Athos. Par des escaliers à demi détruits,
 le chemin monte à travers des bosquets où errent en
 
 à Lebeau et Tharaud
-4 liberté de robustes chèvres ; bientôt toute végétation
+4 liberté de robustes chèvres; bientôt toute végétation
 ; cesse, et l'on grimpe au milieu des éboulis calcaires
-k jusqu'au cône dénudé qui, dès l'antiquité, portait le
-nom d'Athos et que les Grecs avaient eu l'idée de tailler
+jusqu'au cône dénudé qui, dès l'antiquité, portait le
+nom d'Athos et que les Grecs avaient l'idée de tailler
 en statue d'Alexandre. On découvre du sommet toute
 la presqu'île orientale de Chalcidique, boisée et coupée
-x de profondes vallées, jusqu'au canal creusé par Xerxès,
-s dont nous pouvons distinguer l'emplacement à la lor7 gnette. Malheureusement il y a de la brume sur la mer.
-| En été, il est rare que la lumière soit limpide sur la mer
-\ Égée. La chaleur est effroyable. Les pierres brûlent à
+de profondes vallées, jusqu'au canal creusé par Xerxès,
+dont nous pouvons distinguer l'emplacement à la gnette. Malheureusement il y a de la brume sur la mer.
+En été, il est rare que la lumière soit limpide sur la mer
+Égée. La chaleur est effroyable. Les pierres brûlent à
 ; la descente. Et le voici, là-bas, le mâvro, un paysan
-| russe qui rentre, un fagot de branchages sur les
+russe qui rentre, un fagot de branchages sur les
 épaules, dans la hutte où il vit, seul, à la limite des
-arbres. Il est tout noir, en effet : une barbe noire lui
+arbres. Il est tout noir, en effet: une barbe noire lui
 mange le nez, les lèvres, les yeux; et sa peau aussi est
-noire ! Il nous reçoit avec une grande dignité dans son
+noire! Il nous reçoit avec une grande dignité dans son
 isba, où brûle un. samovar. Dans un coin, devant
 l'icone, une veilleuse allumée. L'ermite nous sert du
 thé brûlant dans des écuelles, casse avec une hachette
@@ -1648,8 +1646,8 @@ des morceaux d'un énorme pain de sucre. Des moines
 russes en robe bleue, que nous venons de rencontrer au
 : sommet de l'Athos où ils ont célébré à l'aube la messe
 dans la chapelle bâtie par le patriarche Joachim III en
-| mémoire de son séjour à la sainte montagne, entrent
-Û après nous, mourant comme nous de soif. Nous lapons
+mémoire de son séjour à la sainte montagne, entrent
+après nous, mourant comme nous de soif. Nous lapons
 notre thé comme des loups.
 Pendant notre absence, l'épitrope a quitté le skite de
 Kurrachee pour aller à Lavra. Nous sommes accueillis
@@ -1658,23 +1656,23 @@ blond, les cheveux frisés, timide comme une fille, char-
 ! mant. Il nous parle de la vie des cosaques, de leurs
 
 chants, de leurs danses, de leurs oatumes, en un grec
-très correct :
+très correct:
 
 — A Karyès, nous apprend-il, pendant l'hiver, est
 ouverte une école grecque, où l'on enseigne la langue
 grecque et la théologie. Beaucoup de moiïnes grecs la
-fréquentent. C'est là que j'ai appris ce que je sais de
+fréquentent. C'est que j'ai appris ce que je sais de
 
 Nous causons des écrivairis russes. Celui qu'il pré-
 fère, c'est Pouchkine. Le nom seul de Tolstoï lui est
 comme un épouvantail. Tolstoi l'excommunié, le mauvais patriote. Spontanément, il, lui oppose Pobiedonotseff.
 
-— Oh ! nous dit-il, celui-là est bon, celui-là est vertueux.
+— Oh! nous dit-il, celui-là est bon, celui-là est vertueux.
 
 Quelle simplicité d'âme, quelle absolue ignorance de
 tout ce qui n'est pas l'orthodoxie russe chez ce jeune
 moine si intelligent et instruit, enlevé dès douze ans à
-la vie à demi barbare du steppe !
+la vie à demi barbare du steppe!
 
 Les sentiers de la côte méridionale sont plus escarpés
 encore que ceux de l'ouest. La montagne tombe presque
@@ -1690,22 +1688,22 @@ tous.
 La petite échelle où nous atterrissons est gardée par
 
 Lebeau et Tharaud
-deux vieux moines pêcheurs qui ont bâti une cabane :
+deux vieux moines pêcheurs qui ont bâti une cabane:
 aux murs extérieurs sèchent des filets.
 
 Ils nous invitent à prendre le café sur une étroite
 terrasse tapissée de vieux numéros du Harper's
-Weekly journal of civilisation. Tandis que les petites
+Weekly journal civilisation. Tandis que les petites
 casseroles sont sur le fourneau, un des moines embouche
 un large porte-voix de fer-blanc et beugle vers le couvent, demandant deux mulets. Une voix qui semble
 venir du ciel lui répond, et une demi-heure après des
 mulets descendus de là-haut nous attendént à la porte.
 
-Le couvent domine la mer de trois cents mètres. Il sè
+Le couvent domine la mer de trois cents mètres. Il
 compose de sept étages, bâtis sur un soubassement de
 vingt mètres. Son aspect extérieur révèle que l'antique
 
-| genre de vie en commun, ailleurs disparu, s'y est conservé. Ici point de petits balcons ornés de fleurs, peints
+genre de vie en commun, ailleurs disparu, s'y est conservé. Ici point de petits balcons ornés de fleurs, peints
 de couleurs vives, agrémentant comme à Lavra le logis
 particulier de chaque moine; au haut des toits, point
 de ces multiples cheminées d'où monte vers le ciel la
@@ -1715,7 +1713,7 @@ hauteur au-dessus de l'abîime à donner le vertige, et
 relie entre elles toutes les cellules.
 
 On entre par un couloir en escargot qui ressemble à
-un souterrain ; la moisissure des siècles vous y prend à
+un souterrain; la moisissure des siècles vous y prend à
 la gorge. Au delà, un vrai dédale de couloirs humides,
 sombres, moisis, recélant des portes basses et des
 cachettes. Sans le moine obligeant qui nous guide,
@@ -1726,21 +1724,21 @@ chapelles, le réfectoire commun, l'infirmerie, où dort
 L'air du dehors ne circule pas dans ces réduits séparés
 
 l'un de l'autre par des murs énormes, parfois creusés
-dans le roc vif : ‘des bosses, des arêtes de granit font
+dans le roc vif: ‘des bosses, des arêtes de granit font
 saillie dans des corridors inhabilement maçonnés. Dernier refuge des défenseurs en cas de siège, une tour
 géante domine l'ensemble des bâtiments, percée d'une
-seule ouverture grillée : on y monte par une échelle
-mobile facile à retirer pendant l'assaut. Simopétra a /
-une légende : lors de la fondation du monastère, l'architecte s'était refusé à construire une bâtisse à une
+seule ouverture grillée: on y monte par une échelle
+mobile facile à retirer pendant l'assaut. Simopétra a
+une légende: lors de la fondation du monastère, l'architecte s'était refusé à construire une bâtisse à une
 pareille hauteur, mais le fondateur, le saint ermite
 Simon, exigea qu'il se mît à l'œuvre. Cemme les
-mages à la naissance du Christ, il avait vu briller audessus du rocher une nouvelle étoile à l'éclat radieux.
+mages à la naissance du Christ, il avait briller audessus du rocher une nouvelle étoile à l'éclat radieux.
 Le jour où il allait être terminé, le couvent entier
 s'écroula d'un coup. Mais le lendemain l'architecte
 stupéfait put le voir debout, miraculeusement redressé
 par la toute-puissance de Dieu.
 
-Le moment du départ approche : nous devons repasser à Karyès pour remettre au protaton la lettre
+Le moment du départ approche: nous devons repasser à Karyès pour remettre au protaton la lettre
 d'introduction qu'il nous a donnée voici quinze jours.
 Dans la salle du conseil, orageux débat... Un muletier
 a laissé vagabonder son mulet dans une propriété
@@ -1748,28 +1746,28 @@ a laissé vagabonder son mulet dans une propriété
 Le muletier s'humilie, demande pardon, s'agenouille
 à trois reprises devant le président du protaton, lui
 baise la main, pleure et murmure des excuses. Le
-moine le fait taire d'une voix rude :
+moine le fait taire d'une voix rude:
 
-— Tais-toi, tais-toi, écoute !
+— Tais-toi, tais-toi, écoute!
 
 Le mulet, une jeune bête au beau poil luisant, que
 
-k Lebeau et Tharaud
+Lebeau et Tharaud
 
-d maintiennent les palikares dans la cour, restera plu-
+maintiennent les palikares dans la cour, restera plu-
 
-pr sieurs jours en prison, pour punir le muletier, qui se
+sieurs jours en prison, pour punir le muletier, qui se
 
-| retire humilié et piteux. Ensuite il quittera l'Athos au
+retire humilié et piteux. Ensuite il quittera l'Athos au
 _plus vite, lui et sa bête.
 
 5% Cette petite scène ne fait pas supposer que la justice
 
 ecclésiastique, autrefois, dût être plus douce que la
 
-' Le kaïmakam a assisté au débat, roulant son chapelet
-| d'ambre entre ses doigts, l'air distrait. Tout à coup les
-Tous tremblent et deviennent livides. La veilleuse :
+Le kaïmakam a assisté au débat, roulant son chapelet
+d'ambre entre ses doigts, l'air distrait. Tout à coup les
+Tous tremblent et deviennent livides. La veilleuse:
 
 allumée devant la Panaghia se met à danser.
 — Quoi? qu'y a-t-il? demandons-nous ahuris.
@@ -1777,8 +1775,8 @@ allumée devant la Panaghia se met à danser.
 reprend péniblement ses esprits. Un tremblement de
 Ê Un peu de café, en effet, s'est renversé dans nos
 Au Seraï, nous retrouvons une ancienne connaissance, le-père Anaximène, qui vient d'y accompagnét
-| deux hôtes : il nous fait de grandes protestations d'aF mitié. Au diner, il s'amuse à faire raconter à un moine
-pèlerin un miracle très populaire en Russie : comment
+deux hôtes: il nous fait de grandes protestations d'aF mitié. Au diner, il s'amuse à faire raconter à un moine
+pèlerin un miracle très populaire en Russie: comment
 un saint homme a enfermé le diable dans une bouteille
 pour le noyer ensuite dans une cuvette.
 
@@ -1787,7 +1785,7 @@ curieux de voir le plaisir hypocrite que prend le père
 Anaximèêne à leur faire étaler les uns après les autres
 
 leur crédulité. De temps en temps il nous jette un clin
-| d'œil qui veut dire :
+d'œil qui veut dire:
 
 — Hein! croyez-vous qu'ils sont assez stupides!
 
@@ -1798,19 +1796,19 @@ est traité avec beaucoup de déférence par les hauts
 dignitaires. Il est prince. Peu à peu le salon se remplit
 de moines et de pèlerins russes, qui avant de se retirer
 dans leurs chambres viennent demander la bénédiction
-du supérieur : ils prennent sa main droite entre leurs
+du supérieur: ils prennent sa main droite entre leurs
 mains et la baïisent. Aux plus pauvres l'higoumène
 distribue du vin et des gâteaux. Tout à coup paraît au
 milieu de la pièce un étrange bonhomme qui semble un
 nain sorti des fentes du plancher. Ses culottes sont si
 larges que son corps forme un exact quadrilatère. IL
-s'approche de l'higoumène, comme s'il glissait : on ne
+s'approche de l'higoumène, comme s'il glissait: on ne
 peut voir le mouvement de ses jambes, ni ses pieds. IL
-se prosterne, baise le tapis devant l'higoumène, se |
+se prosterne, baise le tapis devant l'higoumène, se
 frappe trois fois la tête contre ses pieds, lui baise la
 main. L'higoumène lui jette des morceaux de pain
 comme à un chien. Ce nain, nous dit le père économe,
-est un vagabond roumain échoué ici : le couvent le
+est un vagabond roumain échoué ici: le couvent le
 nourrit parce qu'il est polyglotte et sert d'interprète
 entre les entrepreneurs russes et les ouvriers albanais.
 
@@ -1822,64 +1820,64 @@ de l'Athos.
 Mais le père Anaximène insiste pour nous ramener à
 son couvent de saint Pantéléimon; il nous tente avec
 une soupe russe, du caviar, des fruits. Rendus lâches
-par plusieurs jours de carême dans les couvents grecs, .
+par plusieurs jours de carême dans les couvents grecs,.
 nous abandonnons la patène pour un bon diner.
 
 Lebeau et Tharaud
 
 À A peine sommes-nous au monastère que le père entre
 
-M effaré dans notre chambre :
+effaré dans notre chambre:
 
 — Une dépêche, s'écrie-t-il, vient d'arriver au cou-
 
-Ye vent. Le vapeur arrive avec une avance de deux heures
+vent. Le vapeur arrive avec une avance de deux heures
 aujourd'hui. Vous n'avez que le temps de gagner Daphni
 si vous ne voulez pas manquer le bateau.
 
 Nous nous hâtons vers la grève. Une longue barque
 
-He à huit rameurs nous enlève rapidement à Daphni. Là,
+à huit rameurs nous enlève rapidement à Daphni. Là,
 
 3 le receveur turc du télégraphe nous apprend que les
 
-Hi tremblements de terre ont coupé la communication avec -
+tremblements de terre ont coupé la communication avec -
 
 Salonique, que nulle dépêche n'est arrivée. Le père
 
 à Anaximène nous a menti. Pourquoi? Mystère.
 
-| Le bateau ne devait arriver que le lendemain matin,
-au point du jour ! Le bon moine Isaac, qui nous avait,
+Le bateau ne devait arriver que le lendemain matin,
+au point du jour! Le bon moine Isaac, qui nous avait,
 accompagnés jusqu'au port, s'obstine à demeurer avec
-nous malgré l'approche de la nuit : il ne veut pas
+nous malgré l'approche de la nuit: il ne veut pas
 retourner au couvent avant de nous avoir embarqués
 lui-même. Mais bientôt nous le voyons s'esquiver dans
-un petit skite russe voisin de l'échelle. Il passe là sa
+un petit skite russe voisin de l'échelle. Il passe sa
 nuit à boire et à chanter avec des amis. Quant à nous,
 nous avons conservé un tel souvenir de l'auberge albanaise et de ses hôtes en robe de bure que nous préfé-
-rons n'y pas remettre les pieds : roulés dans nos man-
+rons n'y pas remettre les pieds: roulés dans nos man-
 
-| teaux, le ventre creux, nous attendons le bateau toute
+teaux, le ventre creux, nous attendons le bateau toute
 la nuit, couchés sur les pierres de la jetée, parmi les
 pèlerins et les journaliers des Balkans, pleins de mépris
 
 40 pour ces Européens, riches évidemment, qui ne vont
 
-| pas à l'auberge.
+pas à l'auberge.
 
 Nous nous embarquons à l'aube et sur le pont nous
 nous heurtons à... notre ami le médecin fou de Karyès.
 
 Pendant les quinze jours que nous sommes restés à
 
-lAghion Oros, il est allé à Constantinople, et maintenant il va à Salonique. Il nous semble devenu plus
+lAghion Oros, il est allé à Constantinople, et maintenant il à Salonique. Il nous semble devenu plus
 raisonnable depuis qu'il a quitté ce fantastique pays,
-_ merveilleux et baroque à la fois. Il parle des moines
+merveilleux et baroque à la fois. Il parle des moines
 avec plus de liberté, moins d'amertume. Il répète sa
 — Ni femmes, ni poules, ni mules! Ah! ah! Ils sont
 capables de tout!
 Étendus sur le dos, les yeux presque fermés, nous
 regardons la pointe de l'Athos s'éclairer des rayons du
 soleil levant. C'est à demi endormis que nous entendons notre voisin fou s'écrier, avec son étrange rire:
-— Et tout ça avec la devise : Tout pour le bon
+— Et tout avec la devise: Tout pour le bon

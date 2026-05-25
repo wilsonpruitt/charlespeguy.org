@@ -18,8 +18,8 @@ Diderot le précurseur de Lamarck et de Darwin, c'est
 Ferdinand Buisson, c'est à Gabriel Séailles de vous
 parler du philosophe qui préféra l'examen utile des
 faits à la vaine recherche des causes et enseigna qu'il
-faut demander à la nature non pas : Pourquoi cela?
-comme font les enfants, mais : Comment cela? à la
+faut demander à la nature non pas: Pourquoi cela?
+comme font les enfants, mais: Comment cela? à la
 manière du chimiste et du physicien.
 
 Pour moi, je n'ai qu'un mot à dire. Je voudrais vous
@@ -40,7 +40,7 @@ collaborateurs prirent soin de le dresser, c'est ce que le
 prospectus de Encyclopédie nous fait connaitre.
 
 On s'est adressé, y est-il dit, aux plus habiles —
-ouvriers — de Paris et du royaume ; on s'est donné la
+ouvriers — de Paris et du royaume; on s'est donné la
 peine d'aller dans leurs ateliers, de les interroger,
 d'écrire sous leur dictée, de développer leurs pensées,
 d'en tirer les termes propres à leurs professions, d'en
@@ -77,7 +77,7 @@ où le préjugé les a tenus si longtemps. »
 
 Voilà donc au milieu du dix-huitième siècle, les métiers
 honorés, chose étrange, nouvelle, merveilleuse. Les
-traditionnels. Et Diderot leur crie : Relevez-vous. Vous
+traditionnels. Et Diderot leur crie: Relevez-vous. Vous
 ne vous croyez méprisables que parce qu'on vous a mé-
 prisés. Mais de votre sort dépend le sort de l'humanité
 tout entière. Diderot a inséré dans l'Encyclopédie la
@@ -100,7 +100,7 @@ large acception, un socialiste.
 La victoire du prolétariat est certaine. Ce sont moins
 les efforts désordonnés de nos adversaires que nos pro-
 pres divisions et les indécisions de notre méthode qui
-pourraient la retarder. Elle est certaine parce que la ‘à
+pourraient la retarder. Elle est certaine parce que la
 nature même des choses et les conditions de la vie l'or-
 donnent et la préparent. Elle sera méthodique, raisonnée, harmonieuse. Elle se dessine déjà sur le monde
 avec l'inflexible rigueur d'une construction géométrique.
@@ -121,13 +121,13 @@ Ce qui est seulement insupportable, c'est de transformer
 l''admirable ouvrier de l'Encyclopédie, l'un des plus puissants artisans de la révolution bourgeoise, en « défenseur
 du prolétariat ».
 
-() Nos anciens abonnés se rappellent que le Socialiste est l'organe
+Nos anciens abonnés se rappellent que le Socialiste est l'organe
 officiel du Parti Ouvrier Français.
 
-Quand c'est précisément l'essor de l'industrie, dû à Ja
+Quand c'est précisément l'essor de l'industrie, à
 prise de possession du pouvoir politique par le Tiers, qui
 a achevé de dégager du milieu économique le type de
-« l'ouvrier libre », entièrement séparé des moyens de production et ne vivant exclusivement que du travail de ses
+« l'ouvrier libre entièrement séparé des moyens de production et ne vivant exclusivement que du travail de ses
 
 Confondre avec le mouvement « socialiste » la préparation de la victoire de la bourgeoisie révolutionnaire, qui seule
 a fait naître les conditions où pouvait plus tard se produire le socialisme, c'est ce qui vraiment n'est pas permis
@@ -168,7 +168,7 @@ et dont il s'est acquitté avec beaucoup de soin, ilena
 joint un autre qui ne l'est pas moins, —
 Enfin les noms de ces amateurs et ouvriers
 .. M. Le Romain, ingénieur en chef de l'île de la Grenade, a donné toutes les lumières nécessaires sur les
-sucres, et sur plusieurs autres machines qu'il a eu
+sucres, et sur plusieurs autres machines qu'il a
 occasion de voir et d'examiner dans ses voyages, en
 philosophe et en observateur attentif.
 M. Venelle, très versé dans la physique et dans la
@@ -218,7 +218,7 @@ le métier à bas, machine admirable.
 des lumières sur la bonneterie.
 MM. Bonnet et Laurent, ouvriers en soie, ont monté
 et fait travailler, sous les yeux de M. Diderot, un
-métier à velours, etc., et un autre en étoffe brochée : on
+métier à velours, etc., et un autre en étoffe brochée: on
 en verra le détail à l'article Velours.
 
 M. Papillon, célèbre graveur en bois, a fourni un
@@ -227,7 +227,7 @@ M. Fournier, très habile fondeur de caractères d'imprimerie, en a fait autant 
 
 M. Favre a donné des mémoires sur la serrurerie,
 taillanderie, fonte des canons, etc., dont il est bien
-désirer sur la connaissance de son art. : .
+désirer sur la connaissance de son art.:.
 
 M. Hill, Anglais de nation, a communiqué une verrerie
 anglaise exécutée en relief et tous ses instruments,
@@ -239,19 +239,19 @@ arts. M. Eidous a fait en entier les articles de maré-
 chalerie et de manège, et M. Arnauld, de Senlis, ceux
 qui concernent la pêche et la chasse.
 
-Enfin, un grand nombre d'autres personnes bien in- ,
+Enfin, un grand nombre d'autres personnes bien in-,
 tentionnées ont instruit M. Diderot sur la fabrication
 des ardoises, les forges, la fonderie, refenderie, tréfi-
 Ce cahier a été composé par des ouvriers syndiqués
 
-+ Nous prions ceux de nos abonnés qui nous envoient +: (10
+Nous prions ceux de nos abonnés qui nous envoient (10
 à des documents et des renseignements de vouloir bien
 écrire très lisiblement et d'un seul côté de la page.
-FÉ Quand leurs études sont d'ensemble et un peu longues,
+Quand leurs études sont d'ensemble et un peu longues,
 ils peuvent les rédiger. Mais toutes les fois qu'ils nous
 erwoient des renseignements pour ainsi dire instantanés,
 Res mieux vaut nous écrire privément et laisser au citoyen
-Æ rédacteur le soin d'exercer son métier.
+rédacteur le soin d'exercer son métier.
 La rédaction. et l'administration des cahiers sont
 installées 16, rue de la Sorbonne, au second.
 a M. André Bourgeois, administrateur des cahiers,
@@ -260,12 +260,12 @@ semaine, le dimanche excepté, — le matin de dix
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction
 le jeudi soir de deux heures à cinq heures et de pa.
-huit heures à dix heures. - : kAdresser à M. André Bourgeois, administrateur des he
-cahiers, 16, rue de la Sorbonne, Paris, la correspon- pe
-dance d'administration : abonnements et réabonnements,
+huit heures à dix heures. -: kAdresser à M. André Bourgeois, administrateur des
+cahiers, 16, rue de la Sorbonne, Paris, la correspon-
+dance d'administration: abonnements et réabonnements,
 rectifications et changements d'adresse, cahiers man-
-quants, mandats, indication de nouveaux abonnes. .
-N'oublier pas d'indiquer dans la correspondance le .
+quants, mandats, indication de nouveaux abonnes..
+N'oublier pas d'indiquer dans la correspondance le.
 numéro de l'abonnement, comme il est inscrit sur
 l'étiquette, avant le nom.
 Adresser à M. Charles Péguy, gérant des cahiers,
@@ -283,7 +283,7 @@ seize cents exemplaires de ce septième cahier le samedi
 livres à la a.
 des Cahiers
 
-Nous faisons dans nos bureaux les plus fortes réductions usuelles, c'est-à-dire que nous y vendons les livres ‘1
+Nous faisons dans nos bureaux les plus fortes réductions usuelles, c'est-à-dire que nous y vendons les livres
 
 exactement aux prix de l'Odéon.
 Nous envoyons franco à domicile à Paris aux mêmes
@@ -294,4 +294,4 @@ l'étranger avec les plus fortes réductions usuelles, Me
 c'est-à-dire exactement aux prix de l'Odéon, pour toute 2: 2808
 commande égale ou supérieure à onze francs.
 Notre service de librairie est rigoureusement réservé
-à nos abonnés. Re
+à nos abonnés.

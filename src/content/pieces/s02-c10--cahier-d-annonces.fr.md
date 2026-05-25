@@ -10,19 +10,19 @@ wordCount: 16854
 Nous n'eussions jamais pensé à nous assembler pour
 condamner la Société nouvelle de librairie et d'édition.
 Réciproquement nous n'acceptons pas la condamnation
-Ë prononcée contre les cahiers par la majorité d'une
+prononcée contre les cahiers par la majorité d'une
 assemblée générale de la même Société.
 . Georges Bellais, co-fondateur démissionnaire de
 la Société nouvelle
-Daniel Delafarge, ancien élève de l'École Normale Supérieure ; À
+Daniel Delafarge, ancien élève de l'École Normale Supérieure; À
 de la Société nouvelle;
 René Lavaud, ancien élève de l'École Normale
 Ernest Tharaud, ancien élève de l'École Normale
-4 $ Je suis profondément heureux que des amis éprouvés
+4 Je suis profondément heureux que des amis éprouvés
 garantissent ma défense. Ils me laissent ainsi le loisir
 de travailler. Nos abonnés trouveront annoncés dans ce
 cahier plusieurs moyens de travailler eflicacement. Nos
-Fe et suivantes, les éléments d'une action urgente. ” a+
+et suivantes, les éléments d'une action urgente.
 
 Depuis plus de deux semaines le duel atroce engagé
 entre la Petite République et le Petit Sou vérifie surabondamment tout ce que nous avons dit depuis l'institution de nos cahiers. Mais nous ne serons pas le mauvais
@@ -37,7 +37,7 @@ Hubert Lagardelle, qui revient d'une longue et réconfortante tournée dans les 
 Rhône, à son retour nous disait qu'il avait ou des militants avoir les larmes aux yeux en lisant que l'adminis-.
 tration de la Petite République envoyait au syndicat du
 Creusot la somme de 2.292 francs 45. Un ami de Paris
-nous dit qu'il a vu dans son arrondissement des militants pleurer. Nos sentiments sont les mêmes.
+nous dit qu'il a dans son arrondissement des militants pleurer. Nos sentiments sont les mêmes.
 
 Il est lamentable que le plus crapuleux des bandits
 bourgeois, M. Edwards, par la puissance de ses sales
@@ -46,12 +46,12 @@ est lamentable que les guesdistes, les blanquistes mangent le pain de cet homme 
 est lamentable que la plupart des allemanistes et des
 
 indépendants aient aussi longtemps mangé son pain et
-bu son champagne. Il est lamentable que vingt députés,
+son champagne. Il est lamentable que vingt députés,
 mains de cet homme, dupes ou complices.
 Mais il est déplorable que la Petite République ait au
 moins commis une erreur de deux mille et des cents.
 francs dans l'administration d'une souscription. IL est
-déplorable que l'on ait pu démontrer que toute l'instal-
+déplorable que l'on ait démontrer que toute l'instal-
 
 lation de ce journal reposait en définitive sur un commerce déloyal de paletots, sur une atroce exploitation
 du travail à domicile, sur une implacable application du
@@ -70,9 +70,9 @@ censement de ses infamies passées, de ses combinaisons
 présentes, il recueillait M. Jacques Dhur, M. Eugène
 
 Thébault, M. Louis Marsolleau, anciens rédacteurs de
-e la Petite République. ,
+la Petite République.,
 
-s Il est encore permis de supposer que Jaurès lit la
+Il est encore permis de supposer que Jaurès lit la
 
 Petite République. Il doit donc savoir comme cette campagne est grave. Elle disloque le parti socialiste officiel
 dans ses fondements économiques. Elle est sans aucun
@@ -81,10 +81,10 @@ doute la plus grave atteinte que l'on ait jamais portée
 porter ces atteintes. Mais on doit au moins savoir ce
 que l'on fait. Il y aurait enfantillage coupable à s'imaginer que des congrès et des comités pèsent quelque
 poids auprès de ce débordement de haines.
-Quand un parti n'a pas eu le courage de se conformer
+Quand un parti n'a pas le courage de se conformer
 aux lois les plus simples de l'hygiène morale, quand il
 a renié la justice pour la faveur, la sincérité pour la
-complaisance, et la vérité pour l'unité factice, quand il ”
+complaisance, et la vérité pour l'unité factice, quand il
 abandonne la réalité des mœurs pour la vanité des
 phrases, quand il renie son idéal pour des manies politiques, il est inévitable que des empestements pour-
 rissent les organes.
@@ -99,9 +99,9 @@ pouvors donner ici que des renseignements généraux.
 Un comité d'étudiants jeunes s'est formé spontanément
 au quartier. M. Louis Lapicque, maître de conférences
 à la Faculté des Sciences de l'Université de Paris, s'est
-mis, avec son empressement jeune, à leur entière disposition. .
+mis, avec son empressement jeune, à leur entière disposition..
 
-Nous reproduisons d'abord l'affiche apposée aux murs .
+Nous reproduisons d'abord l'affiche apposée aux murs.
 du quartier par les étudiants. Cette affiche a été aussi
 réduite en prospectus. On remarquera que les signatures sont individuelles, personnelles. Aucun des groupes
 régulièrement constitués au quartier ne s'est engagé
@@ -130,9 +130,9 @@ pour déclarer que cette juridiction peut seule assurer
 l'ordre et la dignité nécessaires aux études.
 
 Les événements s'aggravent et donnent cruellement
-raison à nos maîtres : des émeutes et des violences
+raison à nos maîtres: des émeutes et des violences
 sont intervenues. Nous n'avons pas en tant qu'élèves
-de l'Université à nous en occuper ; mais sur la question
+de l'Université à nous en occuper; mais sur la question
 purement universitaire qui est l'origine des troubles,
 nous avons le devoir d'affirmer notre sympathie pour
 nos camarades de Russie.
@@ -149,7 +149,7 @@ Il sera perçu 0 franc 25 pour les frais
 Hesse (Lettres), Dantez Le Hire (Docteur en droit),
 (Agrégé de philosophie), Wersxopr (Lettres).
 
-dixième cahier de la deuxième série “#
+dixième cahier de la deuxième série
 Le comité d'initiative ayant besoin d'établir sa per-
 manence au cœur du quartier, nous sommes heureux
 qu'il ait accepté de l'établir dans nos bureaux. Un
@@ -164,8 +164,8 @@ aux soins de M. André Bourgeois,
 administrateur des cahiers,
 rue de la Sorbonne, au second
 
-Is doivent spécifier s'ils autorisent ou non M. La- À
-picque à faire un usage public de leur lettre. Hi
+doivent spécifier s'ils autorisent ou non M. La- À
+picque à faire un usage public de leur lettre.
 
 Ceux de nos abonnés qui ont à écrire à M. André
 Bourgeois n'ont qu'à introduire dans leur lettre une
@@ -175,7 +175,7 @@ Le comité d'initiative a préparé un texte pour les
 imprimées circulent pendant les cours et conférences et
 recueillent les signatures. Ces feuilles sont ainsi
 En faveur des Étudiants russes (1)
-Ç Camarades des Universités Russes,
+Camarades des Universités Russes,
 ) C'est avec indignation que nous apprenons les mesures
 oppressives dont vous êtes victimes; la constitution monstrueuse de ces commissions spéciales où siègent côte
 côte gendarmes et professeurs; l'incorporation pénale de
@@ -193,10 +193,10 @@ diants sont tous de cœur avec vous.
 
 Nous souffrons de ne pouvoir combattre à vos côtés pour
 la liberté des études et de la pensée. Mais recevez tout au
-moins notre encouragement fraternel ; soyez sûrs de l'admi-
+moins notre encouragement fraternel; soyez sûrs de l'admi-
 ration et de l'ardente amitié des Etudiants de France.
 
-Î (1) Permanence, 16, rue de la Sorbonne, au second, de deux
+(1) Permanence, 16, rue de la Sorbonne, au second, de deux
 
 heures à six heures, tous les jours, excepté le dimanche.
 
@@ -223,7 +223,7 @@ sept cents signatures. Elles continuent à circuler.
 Nous ne saurions trop engager nos amis à envoyer
 leur signature.
 
-M. Lapicque a bien voulu nous donner par écrit des ”
+M. Lapicque a bien voulu nous donner par écrit des
 renseignements généraux. Il a remis à jour pour les
 cahiers un double feuillet que l'on avait fait circuler,
 imprimé, au premier moment. Voici la nouvelle version, plus complète, arrêtée au 24 mars
@@ -235,20 +235,20 @@ côte gendarmes et professeurs.
 Qu'est-ce que c'est que cette pénalité? Qu'est-ce
 que c'est que cette juridiction? Cela semble un cauchemar.
 
-. Les renseignements étaient très incomplets, passablement incohérents ; les journaux nous informent très mal
+. Les renseignements étaient très incomplets, passablement incohérents; les journaux nous informent très mal
 sur la Russie.
 
-pour camarade un Français qui est né en Russie et y a
+pour camarade un Français qui est en Russie et y a
 passé toute sa jeunesse. D'en causer avec lui, j'ai ressenti de ces événements une impression plus forte et
 plus vivante qu'à la simple lecture d'un fait divers. J'ai
 voulu savoir ce qui se passait.
 
-J'ai pu trouver des témoignages différents par leur
+J'ai trouver des témoignages différents par leur
 source et par leur tendance; je les ai contrôlés par les
 textes officiels, notamment par le rapport du ministère
 de l'instruction publique paru dans le Messager du Gouvernement (en russe). Les faits sont simples et clairs
 qu'on les prenne à une source ou à une autre, ils sont
-toujours les mêmes ; seule varie la couleur sous laquelle
+toujours les mêmes; seule varie la couleur sous laquelle
 ils sont présentés.
 
 Les voici aussi objectivement que possible. On suivra
@@ -257,20 +257,20 @@ une grave et douloureuse crise dont nous ne pouvons
 encore prévoir l'issue.
 
 Les étudiants de l'Université de Kiev ayant manifesté.
-contre un professeur qu'ils accusaient d'ignorance, ie Re
+contre un professeur qu'ils accusaient d'ignorance,
 général gouverneur de la ville intervint pour révoquer
 ce professeur. Les étudiants, estimant qu'une question
-universitaire devait être réglée par l'autorité universi- VO
-täire, ne trouvèrent pas qu'une telle mesure füt de nature L)
-à leur donner satisfaction. : 3 À
+universitaire devait être réglée par l'autorité universi-
+täire, ne trouvèrent pas qu'une telle mesure füt de nature
+à leur donner satisfaction.: 3 À
 Sur ces entrefaites, un incident d'un autre ordre vint
-augmenter le mécontentement ; un étudiant, en compa- =.
-gnie d'une fille, et plus ou moins ivre, avait échangé des mr
+augmenter le mécontentement; un étudiant, en compa- =.
+gnie d'une fille, et plus ou moins ivre, avait échangé des
 coups de poing avec un cocher de fiacre; divers jour- +.
 naux de la ville racontèrent inexactement l'incident, et- ET
 y ajoutèrent des appréciations fort désobligeantes sur …
 l'honorabilité des étudiants en général.
-Les étudiants se réunirent, chose interdite ; ils wou- ES
+Les étudiants se réunirent, chose interdite; ils wou- ES
 laient « opposer aux outrages un démenti collectif ».
 Un inspecteur de police pénétra dans la réunion, quise
 dispersa à la première sommation.
@@ -292,7 +292,7 @@ Les étudiants organisèrent alors un nouveau meeting
 à l'Université même, dans l'espoir de décider le recteur
 à y venir. Ils s'introduisirent à midi dans une salle de
 cours qu'ils trouvèrent ouverte. La salle était plutôt
-petite : ils s'y entassèrent environ quatre cents et firent
+petite: ils s'y entassèrent environ quatre cents et firent
 savoir qu'ils attendraient le recteur jusqu'au moment
 où il consentirait à les entendre. A trois heures, heure
 habituelle de la fermeture, le recteur, sans leur avoir
@@ -300,7 +300,7 @@ donné de réponse, quitta l'Université et prévint la
 police. Les bâtiments de l'Université furent aussitôt
 entourés par un cordon de troupes, gendarmes, cosaques et fantassins, fusils chargés. Les « émeutiers »
 continuèrent à attendre leur recteur. Ils avaient déjeuné
-d'un peu de pain et de charcuterie ; comme ils étouffaient dans la salle trop petite, aux doubles fenêtres
+d'un peu de pain et de charcuterie; comme ils étouffaient dans la salle trop petite, aux doubles fenêtres
 clouées et calfeutrées, ils brisèrent quelques vitres et
 
 Ce fut le chef de la gendarmerie, le général Novitzky,
@@ -309,29 +309,28 @@ qui perdit le premier patience.
 buit heures du soir, il pénètre dans la salle avec
 une dizaine de gendarmes, sabre au clair. Les étudiants
 persistant à demander le recteur, le général l'envoie
-chercher ; le recteur vient : « Monsieur le recteur, dit le
+chercher; le recteur vient: « Monsieur le recteur, dit le
 
 président de la réunion, il y a huit heures que nous
-vous attendons ; mettez-vous au fauteuil, nous avons
+vous attendons; mettez-vous au fauteuil, nous avons
 des demandes à vous soumettre. » Le général, après
 quelques pourparlers, somme les étudiants de sortir
 
-Louis Lapicque
 trente par trente pour qu'on prenne leurs noms; cet
 ordre est exécuté sans résistance.
 Le lendemain, les trois cent quatre-vingt-douze étudiants dont on avait ainsi constaté la présence étaient
 déférés à une commission mixte, convoquée spécialement, par le ministre de l'instruction publique (x).
 C'allait être la première application de l'oukase du
 Voici, textuellement traduits, les articles 1 et 2 de cet
-oukase, intitulé : Règlement provisoire concernant le
+oukase, intitulé: Règlement provisoire concernant le
 service militaire des élèves des écoles supérieures exclus
 pour désordres collectifs.
 Article 1. — Les élèves des écoles supérieures, pour l'or- à
 ganisation collective des désordres à l'intérieur des écoles
 ou au dehors, ou pour l'excitation à ces désordres; pour
-l'abstention organisée des exercices scolaires, ou pour ps
+l'abstention organisée des exercices scolaires, ou pour
 l'excitation à cette abstention, seront exclus des écoles et
-incorporés dans les régiments, même lorsqu'ils ont une li
+incorporés dans les régiments, même lorsqu'ils ont une
 dispense acquise soit par leur situation de famille, soit par
 leur degré d'instruction, ou même lorsqu'ils n'ont pas encore
 l'âge de la conscription, ou encore lorsqu'ils ont tiré un
@@ -339,7 +338,7 @@ numéro qui les dispense du service.
 Article 2. — Pour connaître des délits énumérés dans
 l'article 1, il est institué auprès de chaque école supérieure
 un conseil composé du curateur du district scolaire, président; des membres du conseil universitaire qui disposent
-du pouvoir disciplinaire ; des représentants des ministères
+du pouvoir disciplinaire; des représentants des ministères
 (1) On m'a assuré que les professeurs de Kiev avaient demandé
 se réunir pour examiner l'affaire et que la permission leur avait été
 
@@ -351,12 +350,12 @@ voici sur quoi elle était établie.
 
 Auprintemps de 1899, des troubles graves s'étaient
 produits à l'Université de Pétersbourg; nous avons
-eu à ce moment en Europe de vagues échos des scènes
+à ce moment en Europe de vagues échos des scènes
 de la rue, des charges de cosaques frappant la foule
 coups de fouets; les autres Universités russes, par solidarité, organisèrent la grève, avec obstruction, tout ce
 que l'oukase nomme l'abstention. Il y eut des arrestations en masse; un professeur, qui est un savant
-illustre, avait suspendu son cours, n'ayant plus d'étu- !
-diants ; il reçut l'ordre formel de le reprendre : « Trèsbien, répondit-il, mais où dois-je le faire ? A l'Université, ou à la prison? »
+illustre, avait suspendu son cours, n'ayant plus d'étu-!
+diants; il reçut l'ordre formel de le reprendre: « Trèsbien, répondit-il, mais où dois-je le faire? A l'Université, ou à la prison? »
 
 Le général Vanovsky fut chargé d'une enquête; son
 rapport conclut que la responsabilité des troubles
@@ -371,7 +370,7 @@ plus sage comme la plus juste était une large indulgence.
 
 Mais les mesures étaient déjà prises indépendamment de ce rapport; l''oukase du 29 juillet avait été promulgué.
 
-Cet oukase n'avait pas encore été appliqué ; on le
+Cet oukase n'avait pas encore été appliqué; on le
 considérait généralement en Russie comme devant res-
 ter à l'état d'épouvantail. Le Ministre de l'Instruction
 publique trouva nécessaire d'y recourir contre les étudiants de Kiev.
@@ -383,7 +382,7 @@ membres de l'Université désignés pour en faire partie
 autres membres, outre le curateur, étaient le général de
 gendarmerie Novitzky, un procureur militaire et un
 
-Aux termes du rapport officiel : « La commission tint
+Aux termes du rapport officiel: « La commission tint
 quinze séances du 11-24 décembre au 31 décembre- (
 janvier, interrogea ceux qui se rendirent à la convocation, prit connaissance des dépositions écrites de ceux
 qui ne s'y rendirent pas, et, après avoir jugé la conduite
@@ -391,17 +390,17 @@ de chaque participant, arrêta à la majorité des voix (1):
 tous les étudiants ayant pris part à la réunion du 7 dé-
 cembre sont déclarés coupables et condamnés à être
 exclus de l'Université et incorporés dans l'armée pour
-les durées suivantes : 2 étudiants pour trois ans, 5 étudiants pour deux ans, tous les autres, y compris un
+les durées suivantes: 2 étudiants pour trois ans, 5 étudiants pour deux ans, tous les autres, y compris un
 étudiant d'une autre université, à savoir 385, pour un
 an; le jugement sera soumis au Ministre de l'Instruction publique. »
 
 (1) D'après un renseignement digne de foi, les voix se sont ainsi
-partagées : pour l'incorporation, le curateur du district scolaire, le
-recteur, deux doyens, et le général Novitzky ; contre, deux doyens,
+partagées: pour l'incorporation, le curateur du district scolaire, le
+recteur, deux doyens, et le général Novitzky; contre, deux doyens,
 le procureur militaire et le procureur civil.
 
-1.4 _ Le ministre confirma le jugement pour les 2 étudiants de la première catégorie et les 5 étudiants de la
-deuxième ; de plus, pour 176 étudiants de la troisième ;
+1.4 Le ministre confirma le jugement pour les 2 étudiants de la première catégorie et les 5 étudiants de la
+deuxième; de plus, pour 176 étudiants de la troisième;
 les 209 autres eurent leur peine commuée.
 
 On dit que huit d'entre eux, à l'arrivée au régiment,
@@ -432,7 +431,7 @@ sités, l'enseignement cesse. Ou bien les Universités sont
 4 (1) À partir d'ici, ma documentation n'est pas aussi rigoureuse
 nous n'avons plus de rapport officiel comme guide; nous trouvons
 
-une série de nouvelles fragmentaires, dans les journaux, déjà suffi- »  santes pour nous révéler la gravité de la situation ; et puis j'ai eu
+une série de nouvelles fragmentaires, dans les journaux, déjà suffi- » santes pour nous révéler la gravité de la situation; et puis j'ai
 
 communication de lettres privées, tout à fait dignes de confiance,
 qui éclairent ces nouvelles.
@@ -441,7 +440,7 @@ fermées officiellement, ou bien les amphithéâtres sont
 vides à l'heure des cours.
 Les manifestations paraissent dans les rues.
 En beaucoup de villes, les ouvriers se joignent aux
-étudiants ; des usines se mettent en grève, parce que;
+étudiants; des usines se mettent en grève, parce que;
 disent les ouvriers, « nous avons besoin des étudiants
 et nous ne voulons pas qu'on tue les Universités ».
 La police répond par des charges de cosaques et
@@ -460,13 +459,13 @@ cinq lignes, avec trois ou quatre noms pris dans la liste
 des signataires, juste de quoi désigner des victimes.
 Les autres journaux font le silence.
 Criez, intellectuels russes qu'on égorge! Personne ne
-vous entendra : La France est trop bas !
-Non ! La presse et le gouvernement trahissent par
+vous entendra: La France est trop bas!
+Non! La presse et le gouvernement trahissent par
 leur silence vendu la cause de l'humanité, trahissent la
 France elle-même, dont c'est l'honneur traditionnel de
 répondre à l'appel de la justice. Mais la France vaut
 
-mieux que ce que sa presse et son gouvernement voudraient faire croire. ,
+mieux que ce que sa presse et son gouvernement voudraient faire croire.,
 L'Université française, du moins, a prouvé qu'elle a
 une conscience.
 
@@ -483,18 +482,18 @@ suis adressé encore qu'à une partie d'entre eux, et j'ai
 bien peu de refus) ont écrit et signé leur sentiment, pour
 l'envoyer à leurs collègues de Russie,avec des nuances
 diverses, avec une réprobation exprimée ou implicite;
-tous ont dit :« Ce qui se passe en Russie est abominable ; une juridiction purement universitaire peut seule
+tous ont dit Ce qui se passe en Russie est abominable; une juridiction purement universitaire peut seule
 assurer à la fois l'ordre et la dignité nécessaires aux
 
-Les étudiants n'ont pas été moins unanimes : le
-cercle catholique est indigné comme la Ligue démocratique des écoles. Les groupes n'ont pas pu se décider
+Les étudiants n'ont pas été moins unanimes: le
+cercle catholique est indigné comme la Ligue démocratique des écoles. Les groupes n'ont pas se décider
 signer un appel collectif en tant que groupes. Chose
 étrange, il y a des pudibonderies, des craintes de compromission, plus fortes pour une étiquette de groupe
 que pour une signature d'homme. Mais les individus
 
 ont subi loyalement la poussée de leur conscience.
 Marc Sangnier, du Sillon, à signé l'affiche commune
-côté de Ludovic Marchand, des Socialistes Révolutionnaires internationalistes. L'officielle et timorée Asso1
+côté de Ludovic Marchand, des Socialistes Révolutionnaires internationalistes. L'officielle et timorée
 
 ciation générale des étudiants avait, elle, courageusement, pour une fois, décidé en Comité de prendre part
 au meeting; ce n'est que devant le refus des groupes
@@ -507,7 +506,7 @@ L'ex-professeur Milukov, un historien qui compte
 Paris beaucoup d'amis, avait rédigé une supplique
 adressée au tsar dans les termes du plus pur loyalisme,
 aussi bien que du patriotisme le plus élevé; on la
-arrêté, et on a saisi sa supplique avant qu'il ait pu la
+arrêté, et on a saisi sa supplique avant qu'il ait la
 faire parvenir à son souverain.
 
 Les Universités de Belgique et d'Italie sont animées
@@ -539,8 +538,8 @@ plus, c'est qu'il a été exclu de l'Université, et pour
 frontière. De l'étranger, où il était en sûreté, il est
 revenu en Russie, sacrifiant délibérément sa vie.
 Voici ce qui me paraît caractériser la situation en
-Russie : à Moscou on a promené le drapeau rouge;
-sur le drapeau était écrit : Abolition de l''Oukase de
+Russie: à Moscou on a promené le drapeau rouge;
+sur le drapeau était écrit: Abolition de l''Oukase de
 
 Maitre de conférences à la Faculté des Sciences
 de l'Université de Paris
@@ -586,7 +585,7 @@ aux sabres de sbires;
 
 Convaincus que notre indignation est partagée
 par tous nos confrères russes dont nous n'avons pas
-eu le temps d'obtenir la signature, par toute la
+le temps d'obtenir la signature, par toute la
 société intellectuelle russe, par tous ceux chez qui
 n'ont pas encore été détruits les sentiments de
 dignité et d'humanité
@@ -599,14 +598,14 @@ pour donner le plus de publicité possible à la constatation des faits lamentab
 
 Marie WATSON, PIERRE WEINBERG, exprofesseur à l'Université de Pétersbourg;
 
-dixième cahier de la deuxième série ‘4
+dixième cahier de la deuxième série
 l'Université de Pétersbourg; Gorky (ALExXIS
-à l'Université de Pétersbourg ; VLaprmim
+à l'Université de Pétersbourg; VLaprmim
 Lessevrrcn, professeur de philosophie
-l'Université de Pétersbourg ; MARIE LETKOv,
+l'Université de Pétersbourg; MARIE LETKOv,
 femme de lettres; D. Manixe-Sipirrak,
 MixnaiLovsky, directeur de la revue
-Pétersbourg ; P. LesHAFT, professeur d'anatomie à l'Université de Pétersbourg.
+Pétersbourg; P. LesHAFT, professeur d'anatomie à l'Université de Pétersbourg.
 
 Nous publierons dans un prochain cahier la supplique
 
@@ -629,8 +628,8 @@ les diverses manifestations de l'opinion publique. Deux,
 de ces principes, celui de l'égalité des droits et celui de
 la souveraineté nationale, furent le plus souvent invo-
 qués dans l'élaboration de la nouvelle cité politique.
-Historiquement, ce sont les principes essentiels de la ss
-Révolution. On les conçut et on les appliqua différem- Pa
+Historiquement, ce sont les principes essentiels de la
+Révolution. On les conçut et on les appliqua différem-
 ment, selon les époques. Le récit de ces vicissitudes,
 voilà le principal objet de ce livre.
 En d'autres termes, je veux raconter l'histoire politique de la Révolution au point de vue des origines et se
@@ -654,7 +653,7 @@ universel et du suffrage censitaire. On demanda d'abord
 classe, la classe bourgeoise, et ce régime bourgeois,
 c'est la période du Directoire. Puis on demanda à tout
 le peuple d'abdiquer ses droits en faveur d'un homme,
-Napoléon Bonaparte : c'est la république plébiscitaire,
+Napoléon Bonaparte: c'est la république plébiscitaire,
 c'est la période du Consulat.
 Cette histoire de la démocratie et de la république
 
@@ -675,7 +674,7 @@ révolutionnaire, constitution de l'an III, constitution de
 l'an VII, le mouvement d'idées qui prépara, établit,
 modifia ces institutions; les partis, leurs tendances et
 leurs querelles, les grands courants d'opinion, les révo-
--  lutions de l'esprit public, les élections, les plébiscites,
+- lutions de l'esprit public, les élections, les plébiscites,
 - la lutte de l'esprit nouveau contre l'esprit du passé, des
 —. forces nouvelles contre les forces de l'ancien régime, de
 
@@ -683,16 +682,16 @@ l'esprit laïque contre l'esprit clérical, du principe rationnel de libre exame
 d'autorité, voilà surtout en quoi consista la vie politique
 de la France.
 D'autres faits eurent une influence, mais moins
-directe : ce sont par exemple les batailles, les actes
+directe: ce sont par exemple les batailles, les actes
 diplomatiques, les actes financiers. Il est indispensable
 de ne pas les ignorer, mais il suffit de les connaître en
 gros et dans les résultats. — —
 
-— — J'ai donc laissé de côté l'histoire militaire, diplomatique, financière. Je ne me dissimule pas que c'est là
+— — J'ai donc laissé de côté l'histoire militaire, diplomatique, financière. Je ne me dissimule pas que c'est
 une abstraction qui peut paraître dangereuse, etque je
 m'expose au reproche d'avoir faussé l'histoire en la
 tronquant. Mais toute tentative historique est forcément
-une abstraction : l'effort rétrospectif d'un esprit ne peut
+une abstraction: l'effort rétrospectif d'un esprit ne peut
 embrasser qu'une partie de l'immense et complexe
 réalité. C'est déjà une abstraction de ne parler que
 d'une période, et, dans une période, de ne parler que
@@ -703,7 +702,7 @@ mien, comme les autres, suppose et exige d'autres lec-
 Voilà comment j'ai choisi les faits. Voici dans quel
 ordre je les ai exposés.
 
-L'ordre chronologique s'imposait, et j'ai pu le suivre
+L'ordre chronologique s'imposait, et j'ai le suivre
 strictement dans presque toute la première partie de ce
 travail. Il n'y avait, en effet, pour la période de 1789 à
 qu'à exposer, à mesure qu'elles se rencontrent, les
@@ -712,7 +711,7 @@ constitutionnelle et du régime bourgeois. Pour les trois
 
 bourgeoise, république plébiscitaire, il eût été difficile
 d'exposer à la fois, dans la même suite chronologique,
-les institutions, la lutte des partis, les vicissitudes de ‘
+les institutions, la lutte des partis, les vicissitudes de
 l'opinion publique. Ç'aurait été mettre dans le récit la
 confusion qui a existé dans la réalité, surtout pour la
 période de la république démocratique. J'ai cru devoir
@@ -737,22 +736,22 @@ même d'en aborder les principales. Celui qui voudrait
 écrire, à lui seul, toute cette histoire, n'en pourrait
 approfondir que quelques parties et n'aboutirait, dans
 ! lensemble, qu'à une esquisse superficielle, tracée de
-{ seconde ou de troisième main. Pour l'histoire politique,
+seconde ou de troisième main. Pour l'histoire politique,
 
-si on la réduit aux faits que j'ai choisis, il est possible di
+si on la réduit aux faits que j'ai choisis, il est possible
 à un homme, en une vingtaine d'années, de lire les lois
 de la Révolution, les journaux influents, les correspondances, les délibérations, les discours, les procèsverbaux d'élection, la biographie des personnages qui
 ont joué un rôle. Or, voilà un peu plus de vingt ans que
 j'ai entrepris cette lecture. J'ai commencé, en 1879, par
-étudier les discours des orateurs, et, depuis quinze ans, he
-dans mon cours à la Sorbonne, j'ai étudié les insti- is
+étudier les discours des orateurs, et, depuis quinze ans,
+dans mon cours à la Sorbonne, j'ai étudié les insti-
 tutions, les partis, la vie des grands individus. J'ai donc
-eu le temps matériel d'explorer les sources de mon sujet.
+le temps matériel d'explorer les sources de mon sujet.
 Si la forme de ce livre sent l'improvisation, mes
 recherches ont été lentes et je les crois complètes dans
 l'ensemble. Je ne pense pas avoir omis une source
 importante, ni avoir émis une seule assertion quinesoit
-directement tirée des sources. — — — pa
+directement tirée des sources. — — —
 — — Quant à l'état d'esprit où je me suis trouvé en
 écrivant ce livre, je dirai seulement que j'ai voulu, dans
 la mesure de mes forces, faire œuvre d'historien, et non
@@ -775,29 +774,29 @@ deux ou trois cents pages du livre. Table des matières
 Mercier. le dossier secret.
 le bordereau. le huis clos.
 l'arrestation. le procès.
-à l'enquête. . la dégradation.
+à l'enquête.. la dégradation.
 la Libre Parole. la chute de Mercier.
 be. la capitulation de Mercier.
 
 dixième cahier de la deuxième série de
-Une bibliothèque monumentaire de l'affaire Dreyfus ji
-est ainsi constituée : Ju
+Une bibliothèque monumentaire de l'affaire Dreyfus
+est ainsi constituée:
 Le Procès Zola devant la Cour d'assises de la Seine et
-la Cour de cassation (7 février-23 février; 31 marsavril 1898). Compte rendu sténographique in extenso
+la Cour de cassation (7 février-23 février; 31 marsavril 1898). Compte rendu sténographique extenso
 et documents annexes. Deux volumes 10 francs
 l''Affaire Dreyfus. — La revision du procès à la Cour
 de cassation (27, 28 et 29 octobre 1898). Compte rendu
-sténographique in extenso. Un volume 2 francs;
+sténographique extenso. Un volume 2 francs;
 l'Affaire Dreyfus. — La revision du procès. Enquéte
-de la Cour de cassation. Instruction de la Chambre cri- Fe
+de la Cour de cassation. Instruction de la Chambre cri-
 minelle. Instruction des Chambres réunies. Pièces an-
 l'Affaire Dreyfus. — La revision du procès. Débats
 de la Cour de cassation. Rapport de M. Ballot-Beaupré,
-conclusions de M. le procureur général Manau, mémoire ie
+conclusions de M. le procureur général Manau, mémoire
 et plaidoirie de maître Mornard, arrêt de la cour (29,30
 et 31 mai, premier juin 1899). Compte rendu sténogra-
-phique in extenso. Un gros volume 3 francs
-l''Affaire Dreyfus. — Le procès de Rennes (7 août- di
+phique extenso. Un gros volume 3 francs
+l''Affaire Dreyfus. — Le procès de Rennes (7 août-
 les Preuves, de l'ancien Jaurès 1 franc
 Histoire des Variations de l'État-Major, par quatre
 Joseph Reinach. Histoire de l'affaire Dreyfus
@@ -807,7 +806,7 @@ Vient de paraître à la Société nouvelle de librairie
 et d'édition, 17, rue Cujas, Paris
 
 Pris dans nos bureaux ou franco
-Franco à domicile en province ou à l'étranger :
+Franco à domicile en province ou à l'étranger:
 Seul ou dans une commande inférieure
 Dans une commande égale ou supérieure
 Ce compte rendu a d'autres qualités et rendra d'autres
@@ -816,7 +815,7 @@ de la version française en préparation aux cahiers.
 
 Vient de paraître à la Société nouvelle de librairieet
 . Pris dans nos bureaux ou franco à
-Franco à domicile en province ou à l'étranger : -
+Franco à domicile en province ou à l'étranger: -
 Seul ou dans une commande inférieure
 Dans une commande égale ou supérieure
 Il est indispensable que les véritables militants aient
@@ -849,12 +848,12 @@ où j'en avais l'administration.
 dixième cahier de la deuxième série
 L'action des Journaux pour tous est moléculaire, en
 
-ce sens qu'elle attaque un par un les citoyens qu'on lui ,
+ce sens qu'elle attaque un par un les citoyens qu'on lui,
 
 L'action des Journaux pour tous est d'éducation, en
 ce sens qu'elle fait lire aux personnes signalées des
 journaux et des publications qu'elles n'auraient pas
-lues d'elles-mêmes. ;
+lues d'elles-mêmes.;
 L'action des Journaux pour tous est nouvelle ence
 sens qu'au lieu de propagander en vase clos elle atteint
 sans cesse de nouveaux citoyens soigneusement choisis
@@ -887,7 +886,7 @@ pénètre enfin partout pour dissiper l'ignorance et l'erreur, pour instituer la
 
 NOUS VOUS OFFRONS un moyen pratique de collaborer à cette œuvre d'éducation en dépensant deux centimes par jour (1).
 
-Quand vous avez lu votre journal, NE LE DÉTRUISEZ
+Quand vous avez votre journal, NE LE DÉTRUISEZ
 JAMAIS, mais envoyez-le à un camarade de province
 qui le lira avec joie et le fera lire avec fruit.
 
@@ -895,28 +894,28 @@ Pour cela, il suflit d'envoyer une carte postale avec
 votre nom, votre adresse, et le titre de votre journal ou
 de vos journaux au Secrétaire des ‘JOURNAUX POUR
 
-TOUS”, 17, rue CUJAS (cinquième arrondissement). Il ,
+TOUS”, 17, rue CUJAS (cinquième arrondissement). Il,
 
-ë vous fournira l'adresse d'un correspondant.
+vous fournira l'adresse d'un correspondant.
 
 (1) Si des camarades de bonne volonté se voyaient forcés de renoncer à cette
-d légère dépense, qu'ils nous demandent des bandes toutes timbrées : nous les leur
+légère dépense, qu'ils nous demandent des bandes toutes timbrées: nous les leur
 
 M. Émile Boivin, l'infatigable secrétaire des Journaux
 pour tous, a bien voulu rédiger pour nous la notice que
-l'on va lire : SAENDES
+l'on lire: SAENDES
 L'œuvre des Journaux pour tous est une œuvre dreyfu- »
-siste : elle a été entreprise au mois de mai 1809, alors.
-que M. Ballot-Beaupré préparait son rapport à la Cour .
+siste: elle a été entreprise au mois de mai 1809, alors.
+que M. Ballot-Beaupré préparait son rapport à la Cour.
 de Cassation, que le lieutenant-colonel Picquart était
 au Cherche-Midi, et que Déroulède passait en cour d'as- À
-” sises. Elle est dreyfusiste, car elle a pour programme
+sises. Elle est dreyfusiste, car elle a pour programme
 l'éducation politique des citoyens par la communication de la vérité, par la libre discussion. Elle ne se
 recommande d'aucun parti politique, mais de ce qu'il
 y a de sincère, de juste et de vrai en chacun d'eux.
 Les socialistes, les radicaux, les républicains collabo-
 rent ensemble à l'œuvre des Journaux pour tous,
-comme ils ont collaboré à la défense de la justice et .
+comme ils ont collaboré à la défense de la justice et.
 de la vérité dans l'affaire Dreyfus. — En fait, l'œuvre
 des Journaux pour tous répand à la campagne le plus
 grand nombre possible de publications de toutes sortes,
@@ -931,12 +930,12 @@ A Paris et dans quelques villes de province, elle a
 recruté jusqu'ici 2.300 adhérents. Ces adhérents n'ont
 pas donné leur collaboration par complaisance ou par
 
-_‘ enthousiasme momentané : ce sont des adhérents con__ vaincus et, sauf quelques rares exceptions, opiniâtres
+enthousiasme momentané: ce sont des adhérents con__ vaincus et, sauf quelques rares exceptions, opiniâtres
 chaque jour ils font œuvre efficace de collaboration en
 écrivant une ou plusieurs bandes pour leur journal, en
 allant, au besoin, au bureau de poste; quelques-uns,
 méme, en lisant le journal pour y souligner ce qui leur
-semble intéressant ; ils entretiennent ainsi une discus-
+semble intéressant; ils entretiennent ainsi une discus-
 sion libre, une correspondance, rudimentaire mais
 régulière. Souvent cette correspondance imprimée
 s'achève en correspondances personnelles, privées; l'envoyeur et le destinataire lient connaissance, parfois se
@@ -952,34 +951,34 @@ rien à faire lire aux adhérents ainsi groupés. Il advient
 souvent que les journaux et les brochures envoyés à ces
 adresses passent dans tout le village. Que s'il y a
 (2) Une lettre entre mille
-« J'ai vu que vous envoyez des journaux gratuits pour tous. Si je
+« J'ai que vous envoyez des journaux gratuits pour tous. Si je
 vous écris, c'est que je ne suis pas riche et cependant je voudrais
 en lire pour savoir ce qui se es dans notre pays et ailleurs,
 
-surtout pes notre République. Voilà donc : je vous prie FL vous
-} ayez la bonté de m'envoyer un de vos Fes Four De Je vous dirai sioge
-d je suis un ouvrier journalier, et cependant j'aimerais à lire, — Pas
-autre chose à vous ge er le moment,
+surtout pes notre République. Voilà donc: je vous prie vous
+ayez la bonté de m'envoyer un de vos Fes Four De Je vous dirai sioge
+je suis un ouvrier journalier, et cependant j'aimerais à lire, — Pas
+autre chose à vous le moment,
 … « Agréez donc mes salutations. »
 
 parmi ces demandeurs des avares qui ne sollicitent
 l'envoi que parce qu'il sera gratuit, l'œuvre ne peutni
-ne veut le savoir : mieux vaut donner en vain que de bi
+ne veut le savoir: mieux vaut donner en vain que de
 refuser à tort. Nous sommes assurés d'ailleurs que les
-abus sont peu nombreux. jt
+abus sont peu nombreux.
 Une autre partie intéressante de la clientèle de cam- ne
-pagne est celle que l'œuvre va trouver d'elle-même,
-sans qu'ils aient rien demandé. Nous avons, un peu br
+pagne est celle que l'œuvre trouver d'elle-même,
+sans qu'ils aient rien demandé. Nous avons, un peu
 partout, des agents de bonne volonté, simplement et
-spontanément choisis parmi nos correspondants fidèles ; À
+spontanément choisis parmi nos correspondants fidèles; À
 ces précieux collaborateurs se chargent de nous envoyer
-des listes de noms : pour que la liste soit bien faite et
-complète, il faut que chaque nom soit suivi de ren- re
-seignements utiles, exacts : lectures habituelles du (4
+des listes de noms: pour que la liste soit bien faite et
+complète, il faut que chaque nom soit suivi de ren-
+seignements utiles, exacts: lectures habituelles du (4
 futur destinataire — le plus souvent Le Petit Journal ou
-un journal local, — état d'esprit, journal qu'il conviendrait d'envoyer à titre d'essai. On échoue quelquefois ; à
+un journal local, — état d'esprit, journal qu'il conviendrait d'envoyer à titre d'essai. On échoue quelquefois; à
 souvent on ignore le résultat de la démarche; mais
-presque toujours le journal est accepté ; de là à le lire
+presque toujours le journal est accepté; de à le lire
 il n'y a qu'un pas; quelquefois on réussit tout à fait
 nous avons reçu des lettres d'où il apparaissait que la
 lecture des journaux républicains avait été une révé-
@@ -1000,38 +999,38 @@ soutient contre le curé; si l'on vient à ne plus recevoir
 de journaux, on a tellement pris l'habitude qu'on
 réclame purement et simplement, sans fausse honte
 
-Ça m'étonne beaucoup de ne plus recevoir vos journaux
+m'étonne beaucoup de ne plus recevoir vos journaux
 voilà le dixième jour que j'en ai point reçu. Je ne comprends pas s'ils passent ailleurs ou si vous ne m'envoyez
 plus. Je vous remercie beaucoup de ceux que vous m'avez
 envoyés. Auparavant, j'avais beaucoup de visites de mes
-voisins : tous mes camarades venaient me voir pour
+voisins: tous mes camarades venaient me voir pour
 s'instruire sur vos journaux, et maintenant que j'en reçois
 plus, personne vient me voir.
 
 l'Œuvre compte environ 2.300 expéditeurs. Un très
 petit nombre de nos collaborateurs se fatiguent et
 renoncent. Plus de 7.000 personnes ont été ou sont
-encore desservies : 2.000 au moins attendent leur tour.
+encore desservies: 2.000 au moins attendent leur tour.
 
 L'Œuvre a fait de très nombreuses distributions de
 livres ou de brochures, grâce à des donateurs
-Tolstoi. . Les temps sont proches . . . .
-Déclaration des Droits de l'Homme, . . . .
+Tolstoi.. Les temps sont proches....
+Déclaration des Droits de l'Homme,....
 Environ 20.000 brochures de Bouglé, Duclaux, Reinach,
 Havet, André Léo, Yves Guyot, Le Pic, Baggio, Fournière,
 
-Elle a pris des abonnements de propagande au “à
-Radical, à l'Aurore, à la Petite République, au Petit ‘1
+Elle a pris des abonnements de propagande au
+Radical, à l'Aurore, à la Petite République, au Petit
 Bleu, au Paysan de France, au Réveil des Vosges,
-grâce à des collaborateurs qui préféraient la dépense re
+grâce à des collaborateurs qui préféraient la dépense
 en bloc à l'effort quotidien. Des administrations de
-journaux ou de revues mettent d'elles-mêmes des abon ‘”
-nements à sa disposition : le Paysan de France, le
-Volume, les Cahiers de la Quinzaine. Enfin, par imitation et avec l'appui — au moins moral — du comité de ; id
+journaux ou de revues mettent d'elles-mêmes des abon
+nements à sa disposition: le Paysan de France, le
+Volume, les Cahiers de la Quinzaine. Enfin, par imitation et avec l'appui — au moins moral — du comité de;
 Paris, il s'est créé des sections des Journaux pour
 tous à Belfort pour le territoire de Belfort, à Saint.
-Claude pour le Jura, et à Chambéry pour la Savoie. ‘14
-L'Œuvre des Journaux pour tous s'est développée .
+Claude pour le Jura, et à Chambéry pour la Savoie.
+L'Œuvre des Journaux pour tous s'est développée.
 lentement, régulièrement; elle a marché pas à pas.
 Nous avons plus de confiance dans cette méthode,
 que les circonstances nous ont d'ailleurs imposée, —que
@@ -1040,27 +1039,27 @@ La création du comité la Propagande socialiste est
 une application partielle du principe des Journaux pour
 tous. Le comité sera collaborateur des Journaux pour
 tous exactement au même titre que le lecteur de
-Petite République ou de l' Aurore envoyant son journal
-à une adresse indiquée : c'est dire à la fois la liberté
+Petite République ou de Aurore envoyant son journal
+à une adresse indiquée: c'est dire à la fois la liberté
 d'action de chacune des deux œuvres à l'égard de
-l'autre, et leur complète solidarité. F À
-Nous reproduisons d'après les journaux le programme ‘
+l'autre, et leur complète solidarité. À
+Nous reproduisons d'après les journaux le programme
 de la Propagande socialiste.
 Il importe de faire connaître les principes et la doctrine
 du socialisme, au moment où la lutte économique devient de
 plus en plus äâpre, et où le socialisme grandissant, s'il ne
 peut plus être nié, est calomnié. Il importe, avant tout, de
-les propager là où le Parti n'a pas d'adhérents, et on doiït
+les propager où le Parti n'a pas d'adhérents, et on doiït
 dire qu'il n'y a pas moins de vingt départements qui, aux
 dernières élections législatives, n'ont pas rallié mille voïx
 
 Voilà pourquoi un certain nombre de socialistes, ouvriers,
-étudiants, employés, se sont réunis, sans distinction d'organisation, et ont créé le comité « la Propagande socialiste », qui enverra des brochures de propagande dans toute
+étudiants, employés, se sont réunis, sans distinction d'organisation, et ont créé le comité « la Propagande socialiste qui enverra des brochures de propagande dans toute
 la France, et en premier lieu dans les régions qui ont été,
 jasqu'à présent, les plus rebelles à nos idées. Ce sera, nous
 l'espérons, en même temps anéantir l'action de nos adversaires et frayer la route à notre parti.
 
-Assurée de l'appui de l'œuvre « les Journaux pour tous »,
+Assurée de l'appui de l'œuvre « les Journaux pour tous
 qui lui fournira des adresses et lui procurera des correspondants, « la Propagande socialiste » est certaine du suc-
 cès, si les camarades viennent à elle assez nombreux pour
 rendre son action eflicace. « La Propagande socialiste » fait
@@ -1071,7 +1070,7 @@ La cotisation a été fixée à 25 centimes par mois.
 Les assemblées générales qui auront lieu tous les mois
 décideront du choix des brochures; la commission exécutive réglera les affaires courantes.
 
-Pour « la Propagande socialiste »:
+Pour « la Propagande socialiste
 
 N. B. — Envoyer les adhésions et les communications au )
 citoyen Georges Weill, secrétaire, 9, rue des Feuillantines
@@ -1084,32 +1083,32 @@ dans toutes les villes de province.
 
 Au dernier moment l'ami qui nous a communiqué les
 renseignements suivants nous fait parvenir cette notice.
-pense avec raison que l'on ne connaît bien une œuvre Ë; "4
+pense avec raison que l'on ne connaît bien une œuvre "4
 que si l'on connaît l'histoire des initiateurs.
 Notre ami René Bazin avait été embrigadé tout jeune
 dans des œuvres dont le but avoué est de faire « du bien
 à leurs membres en les exerçant aux œuvres de charité ».
 s'en évada et courut à ceux qui croyaient possible une vie
-morale sans fondement religieux, à Paul Desjardins, à M"
+morale sans fondement religieux, à Paul Desjardins, à
 Jules Lagneau. Il aima longtemps les longues causeries.
 Mais l'homme d'œuvres qui était en luis'éveilla. La morale
 sociale doit être active, nous dit-il, et il fonda, dans l'esprit
-de l'Union pour l'Action morale, la . Société des Visiteurs. Di.
+de l'Union pour l'Action morale, la. Société des Visiteurs. Di.
 Ses amis du même âge n'ont pas oublié la conférence
 de propagande qu'il fit à l'École des Sciences politiques.
 M. Anatole Leroy-Beaulieu en combattit âprement les con- “#8
 clusions. René Bazin n'y gagna qu'un seul collaborateur,
-un gentilhomme russe. ‘4
+un gentilhomme russe.
 Depuis, sa vie fut d'une extraordinaire intensité. Les
 hommes sont exigeants et n'admettent pas qu'on se donne
-à moitié. Les miséreux lui prirent tout son temps, lui mon- ‘à
+à moitié. Les miséreux lui prirent tout son temps, lui mon-
 trèrent toute leur misère. Bazin fut épouvanté. Il connut
 alors pourquoi l'instinct, qui ne trompe guère, avait empé-
 ché fes camarades d'École, riches et heureux, de collaborer
 avec lui. C'est que l'ignorance des misères humaines est le
-plus solide rempart du bonheur, de l'optimisme, et du libé- ‘2
+plus solide rempart du bonheur, de l'optimisme, et du libé-
 ralisme économique. Vanterait-on la concurrence si l'on en
-avait vu de près les victimes?
+avait de près les victimes?
 Ainsi René Bazin devint socialiste, non dans les salons,
 mais dans les mansardes. Mais comme il était venu au
 socialisme par un sentiment profond de solidarité, il ne fut
@@ -1129,7 +1128,7 @@ rue de Lille
 Autorisée par Arrêtés du Préfet de Police en date des 19 février 1896 et 11 mars 1898
 
 But. — L'objet de la Société est de préserver de la
-misère définitive : elle intervient en faveur de ceux qui
+misère définitive: elle intervient en faveur de ceux qui
 ont besoin d'une aide temporaire pour échapper à l'indigence.
 
 La Société laisse en dehors de son action tous ceux
@@ -1154,22 +1153,22 @@ membres Bienfaiteurs et de membres actifs ou Visiteurs.
 Les Visiteurs voient à domicile les familles qui sont
 adoptées après enquête, ils apportent à chacune d'elles
 l'appui moral ou matériel reconnu le plus efficace, sans
-se cantonner dans un mode unique d'assistance : pla-
+se cantonner dans un mode unique d'assistance: pla-
 
 dixième cahier de la deuxième série
-cement, avances d'argent, dons de vêtements, recom- ‘1
+cement, avances d'argent, dons de vêtements, recom-
 mandations aux œuvres spéciales et aux diverses administrations, etc. Taie
 
 Le secours pécuniaire est donné en principe sous la
 forme d'un prêt gratuit, aussi élevé que possible,
 accordé en vue d'un besoïn déterminé, et remboursable
-par acomptes. ‘2
+par acomptes.
 Les Visiteurs se réunissent en groupes de quartiers; “4
 un bureau central relie les groupes et gère les services
-Situation et résultats. — 1896-1900 : La Société
+Situation et résultats. — 1896-1900: La Société
 Caisse de prêts gratuits.
-Familles adoptées depuis l'origine, . . . .
-Remboursements des prêts en 1899 : 1.234 fr.
+Familles adoptées depuis l'origine,....
+Remboursements des prêts en 1899: 1.234 fr.
 
 ARTICLE PREMIER. — La Société a pour but de venir en
 aide à des familles qui, se trouvant dans l'impossibilité momentanée de subvenir à leurs besoins, sont reconnues susceptibles d'échapper, grâce à un appui temporaire, à la
@@ -1181,8 +1180,8 @@ neur, de membres actifs ou visiteurs, de membres bienfaiteurs.
 ARTICLE 4. — Le fonctionnement de la Société repose
 essentiellement sur l'initiative et sur l'activité des Visiteurs.
 Chaque Visiteur se tient en relations amicales et suivies
-avec la famille qui lui est confiée ; il la voit à domicile, se
-rend compte de ses besoins et lui prête :
+avec la famille qui lui est confiée; il la voit à domicile, se
+rend compte de ses besoins et lui prête:
 1° Un appui moral, sous forme de conseils, encouragements, renseignements, démarches et recommandations,
 2° Un appui matériel, en lui procurant des ressources et
 du travail, et en provoquant en sa faveur des avances d'argent.
@@ -1194,10 +1193,10 @@ limiter au territoire d'un quartier.
 Chaque Groupe tient des séances périodiques pour S'entretenir des besoins des familles admises, prendre les déci-
 
 dixième cahier de la deuxième série 74 te
-sions et voter les dépenses nécessaires. Il élit son bureau ‘
-et arrête son règlement. : *]
+sions et voter les dépenses nécessaires. Il élit son bureau
+et arrête son règlement.:
 Anrice 6. — Chaque groupe désigne des membres char:
-gés spécialement des enquêtes. Ces enquêteurs, conjoin nn
+gés spécialement des enquêtes. Ces enquêteurs, conjoin
 tement ou non avec ceux des autres groupes, se réunissent
 en une ou plusieurs commissions, qui statuent sur l'admis-
 sion des familles. AS
@@ -1216,19 +1215,19 @@ crétaire et un Trésorier. ne:
 Il est élu par les Présidents de Groupes pour quatre ans ne
 et renouvelable tous les ans par quart. Les membres sor-
 tants sont rééligibles. On ne peut être à la fois Président
-d'un Groupe et membre du Bureau de la Société. ‘5
+d'un Groupe et membre du Bureau de la Société.
 Nul ne peut faire partie de ce Bureau s'il n'est Français, “2
 
 majeur, et s'il ne jouit de ses droits civiques, civils et de
-ARTICLE 9. — Le Bureau de la Société, avec l'aide d'ad- “l
+ARTICLE 9. — Le Bureau de la Société, avec l'aide d'ad-
 joints choisis par lui, organise et dirige un certain nombre
-de services généraux mis à la disposition de tous les Visi- nn
-teurs en faveur des familles admises et qui sont notam- ‘4
+de services généraux mis à la disposition de tous les Visi-
+teurs en faveur des familles admises et qui sont notam-
 
 Un service de relations avec les institutions d'assistance
 Un service de renseignements pratiques.
 
-Ressources de la Société ps
+Ressources de la Société
 1° Les cotisations annuelles ou mensuelles des Visiteurs
 
 3° Les subventions, dons et affectations spéciales
@@ -1269,18 +1268,18 @@ Anricie 18. — Nul ne peut assister aux réunions s'il n'a
 ARTICLE 19. — La Société devra se pourvoir d'une autorisa-
 tion spéciale pour chaque fête organisée par ses soins, à
 laquelle seraient admises d'autres personnes que les socié-\
-ARTICLE 20. — En cas de modifications aux statuts, ‘l:2
-Société devra demander de nouveau à la préfecture de police l'autorisation prescrite par l'article 201 du Code pénal. .
+ARTICLE 20. — En cas de modifications aux statuts,
+Société devra demander de nouveau à la préfecture de police l'autorisation prescrite par l'article 201 du Code pénal..
 ARTICLE 21. — En cas de dissolution, la liquidation s'effec- +14
-tuera selon les règles du droit commun. RE à
+tuera selon les règles du droit commun. à
 M. Noyelet, secrétaire, adressera des imprimés de la
 Société à quiconque voudra bien lui en faire la demande.
-Il se tient au siège social tous les jours, de dix heures &
+Il se tient au siège social tous les jours, de dix heures
 midi et de deux heures à sept heures, à la disposition des
 personnes qui seraient désireuses d'obtenir des renseigne
 ments oraux sur le fonctionnement de la Société. ne
 Un visiteur a bien voulu rédiger pour nous la notice
-que l'on va lire. Il nous a promis pour plus tard de Si
+que l'on lire. Il nous a promis pour plus tard de Si
 nouveaux renseignements et un bref historique.
 
 Sous la présidence de M. Louis Havet, professeur au
@@ -1292,7 +1291,7 @@ La société des visiteurs « a pour but de venir en aide
 momentanée de subvenir à leurs besoins sont reconnues
 susceptibles d'échapper, grâce à un appui temporaire, à
 la misère définitive. » (Article premier des statuts) Elle
-laisse donc de côté toutes les misères chroniques, l'indigence permanente causée par la vieillesse, les maladies incurables, un gain insuffisant, etc. ; elle ne s'occupe
+laisse donc de côté toutes les misères chroniques, l'indigence permanente causée par la vieillesse, les maladies incurables, un gain insuffisant, etc.; elle ne s'occupe
 que des misères aiguës, des souffrances causées par des
 crises passagères, suite de chômage, grève, maladies gué-
 rissables, etc. Elle n'ignore pas qu'il est presque impos- “LV
@@ -1311,23 +1310,23 @@ tive. Elle veut conserver à l'homme sa: dignité d'homme
 
 et avant qu'il ne soit tombé elle l'aide comme un ami
 aide son ami. Ne.
-Mais, dira-t-on : pourquoi ajouter une œuvre nouvelle
+Mais, dira-t-on: pourquoi ajouter une œuvre nouvelle
 à tant d'œuvres de charité, impuissantes à résoudre la
 question sociale? Vous avouez que vous ne pouvez
 rien faire pour les indigents et vous espérez améliorer.
 le sort des familles en état de crise. Allons donc!les
-efforts individuels sont vains ; la philanthropie n'a
+efforts individuels sont vains; la philanthropie n'a
 jamais sauvé personne et a tout au plus diminué
 l'énergie et les revenus des philanthropes. Employez tout
-le temps, tout l'argent que vous pouvez en de vains he
+le temps, tout l'argent que vous pouvez en de vains
 efforts à étudier attentivement la vie ouvrière; créez
-des syndicats, des coopératives, demandez l'abolition ‘4
-de la propriété individuelle, vos travaux, pour ne pas  “
+des syndicats, des coopératives, demandez l'abolition
+de la propriété individuelle, vos travaux, pour ne pas
 vous donner, comme la charité, des satisfactions immé-
-diates, au moins ne seront pas de nul effet. ‘4
-cela je répondrai que les visiteurs ne sont pas des be
+diates, au moins ne seront pas de nul effet.
+cela je répondrai que les visiteurs ne sont pas des
 impassibles. Mais il ne leur est pas possible, en atten-
-dant la révolution sociale, de déjeuner gaiement, dd
+dant la révolution sociale, de déjeuner gaiement,
 passer au théâtre une bonne soirée, de causer même
 joyeusement avec des amis, sans être hantés par les
 misères qui à toute minute se sont dressées devant eux,
@@ -1338,40 +1337,40 @@ Ils ont individuellement essayé. L'expérience leur
 démontra que de par le monde il existe encore quelques \00
 petits fromages de Hollande; ils y gitèrent leurs amis
 malheureux. Mais ils s'y donnèrent beaucoup de peine,
-car ils avaient rarement dans leurs relations la relation “À y
+car ils avaient rarement dans leurs relations la relation y
 utile. Alors ils se syndiquèrent, et quand ils eurent mis
 leurs relations en commun ils réussirent quelquefois
 et quand au lieu de dix ils furent cent, ils furent deux
 cents, ils réussirent presque toujours. Leur tâche est
 donc analogue à celle des syndicats et des coopératives. Ils s'efforcent de tirer, grâce à l'association, le
 meilleur parti possible de la société actuelle.
-Mais comment s'y prennent-ils ? Le visiteur se tient
+Mais comment s'y prennent-ils? Le visiteur se tient
 en relation amicale et suivie avec la famille dont il a
-pris la charge; il va la voir chez elle, lui donne des conseïls, des recommandations, l'aide dans ses démarches
+pris la charge; il la voir chez elle, lui donne des conseïls, des recommandations, l'aide dans ses démarches
 il lui prête sur l'honneur des sommes assez élevées, qui
 lui sont remises par le groupe ou section de quartier
 auquel il est aflilié. Quant aux renseignements dont le
 visiteur a besoin pour découvrir des emplois ou donner
 des conseils, il les trouve au bureau central où sont
-organisés divers services : 1° de relations avec les
-institutions d'assistance ; 2° de placements ; 3° de renseignements pratiques ; 4° un oflice de consultations et de
+organisés divers services: 1° de relations avec les
+institutions d'assistance; 2° de placements; 3° de renseignements pratiques; 4° un oflice de consultations et de
 renseignements médicaux et d'hygiène.
 Vainement on chercherait dans les autres œuvres un
 fonctionnement aussi simple et aussi heureux. Ce n'est
 certes pas dans les froides institutions organisées sur
 des bases administratives où un fonctionnaire assis
 derrière un grillage distribue maussadement de maigres
-pièces de monnaie ; ni dans les institutions confessionnelles qui prennent les jeunes gens à la sortie de
+pièces de monnaie; ni dans les institutions confessionnelles qui prennent les jeunes gens à la sortie de
 l'école et les englobent, sous prétexte de charité, dans
 des œuvres de prière en commun. Dans ces dernières,
-hélas ! vont beaucoup de généreux qui, dès l'enfance,
+hélas! vont beaucoup de généreux qui, dès l'enfance,
 ont besoin de partager leur pain ou leur cœur avec les
 misérables. Combien de jeunes gens, presque incroyants,
-navons-nous pas vu entrer dans des œuvres confessionnelles parce que les républicains n'avaient pas su orga-
+navons-nous pas entrer dans des œuvres confessionnelles parce que les républicains n'avaient pas orga-
 
 niser des foyers d'amour, et qui, resserrés peu à peu”
-ï dans de discrets réseaux, rentraient doucement dans \ #4
-le giron des Églises ; certes, la Société des Visiteurs
+ï dans de discrets réseaux, rentraient doucement dans #4
+le giron des Églises; certes, la Société des Visiteurs
 peut se vanter d'avoir conservé à la République bien
 des jeunes gens qui jadis s'en fussent détournés faute
 de pouvoir dépenser leur sensibilité dans une œuvre
@@ -1379,10 +1378,10 @@ Mais elle fait mieux que de les conserver à la Républi-
 que. Beaucoup en arrivant à la Société des Visiteurs
 croient à la souveraine efficacité de la philantropie. Ils
 s'imaginent qu'il suflit, pour sauver un monde, de disperser pour autrui un peu de son superflu, un peu de ses.
-loisirs. Mais quand ils ont fréquenté dans les tristes He
+loisirs. Mais quand ils ont fréquenté dans les tristes
 logis des ouvriers, quand ils ont comparé ces doulou-
 reuses existences avec leur vie trop facile, et sans
-insécurité; quand ils ont assisté aux séances de nos ‘12
+insécurité; quand ils ont assisté aux séances de nos
 commissions d'enquête où nous sommes obligés de
 refuser les familles nombreuses parce que seul l'Étatou
 des établissements publics pourraient soulager de telles
@@ -1391,30 +1390,30 @@ problèmes sociaux, ignorés jusqu'alors, se dressent
 impérieux et menaçants devant eux. Ils sont conquis.
 Selon leur tempérament ils deviennent socialistes aigus
 ou modérés, mais aucun ne reste bourgeois.
-C'est pourquoi nous disons aux socialistes : Entrez
-la Société des. Visiteurs ; vous y trouverez le moyen
+C'est pourquoi nous disons aux socialistes: Entrez
+la Société des. Visiteurs; vous y trouverez le moyen
 d'aider vos amis malheureux; envoyez-nous surtout
-ceux de vos amis que vous n'aurez pu convaincre par fe:
+ceux de vos amis que vous n'aurez convaincre par fe:
 vos plus habiles arguments: Nous en ferons des …
 
 Paraissant le premier et le 15 de chaque mois
-BELGIQUE : Bruxelles, 14, rue du Béguinage
+BELGIQUE: Bruxelles, 14, rue du Béguinage
 Le Mouvement Socialiste paraît deux fois par mois,
 en une forte livraison de 64 pages. Il est avant tout une
 revue concrète et d'actualité, indispensable à tous les
 militants socialistes, qui peuvent y trouver les renseirue d'ordre théorique et pratique nécessaires
-Le Mouvement Socialiste publie : 1° des articles
+Le Mouvement Socialiste publie: 1° des articles
 d'exposition et de discussion théoriques, et des études
 sur l'évolution et la constitution du socialisme dans les
 divers pays; 2° des articles d'actualité générale et
-socialiste ; 3° des articles sur la tactique et l'organisation socialistes ; 4° des études de législation ouvrière;
+socialiste; 3° des articles sur la tactique et l'organisation socialistes; 4° des études de législation ouvrière;
 5° des correspondances sur la situation potins et
 socialiste dans les divers pays; 6° des articles de
 critique littéraire, artistique et musicale; 7° des études
 d'économie sociale; 8 des monographies de Syndicats,
 de Coopératives, de Bourses de Travail, des enquêtes
 sur l'action des Municipalités socialistes, la situation
-de l'agriculture, etc. ; 9° une revue critique des œuvres
+de l'agriculture, etc.; 9° une revue critique des œuvres
 d'économie, d'histoire, de philosophie, etc., qui paraissent; 10° un index bibliographique donnant un
 compte rendu, succinct mais suflisamment complet, des
 livres et des revues de France et de l'étranger.
@@ -1426,7 +1425,7 @@ Envoyer un mandat postal à la Société Nouvelle de Librairie et d'Édition,
 
 Secrétaire de la Direction: Émile
 Société nouvelle de Librairie et d'Édition De
-Secrétaire de rédaction : Jean LONGUET
+Secrétaire de rédaction: Jean LONGUET
 
 depuis sa Fondation
 
@@ -1444,179 +1443,179 @@ Max Quark (Francfort-sur-le-Mein). — Paul Singer (Berlin).
 (Vienne). ne
 ITALIE. — L. Bissolati (Rome). — Ettore Ciccotti (Milan).
 Articles de théorie ou de tactique
-ADLER : Théorie et tactique d'après Bernstein. — BELFORT
-À Bax : Bernstein et la théorie socialiste de l'histoire. —
+ADLER: Théorie et tactique d'après Bernstein. — BELFORT
+À Bax: Bernstein et la théorie socialiste de l'histoire. —
 
-“ Berxsren : Des forces de la Démocratie industrielle. —
-Démocratie industrielle et démocratie politique. — Démocratie et socialisme. — ÉnouarD BERTH : À propos de la
-lutte de classe. — Pauz DramaAs : Le cas Millerand, —
-Excecs : Lettres inédites sur la politique socialiste. —
-A. GRAZrADEI : La théorie du profit (réponsê à Jaurès). —
+Berxsren: Des forces de la Démocratie industrielle. —
+Démocratie industrielle et démocratie politique. — Démocratie et socialisme. — ÉnouarD BERTH: À propos de la
+lutte de classe. — Pauz DramaAs: Le cas Millerand, —
+Excecs: Lettres inédites sur la politique socialiste. —
+A. GRAZrADEI: La théorie du profit (réponsê à Jaurès). —
 
-J. Gozpsreix : La question de la dépopulation en France.
-— JEAN Jaurès : Bernstein et l'évolution de la méthode
+J. Gozpsreix: La question de la dépopulation en France.
+— JEAN Jaurès: Bernstein et l'évolution de la méthode
 socialiste. — La leçon des fêtes de Bruxelles. — Karr
-Kaursky : Démocratie et lutte de classe. — Jaurès et Mille-
+Kaursky: Démocratie et lutte de classe. — Jaurès et Mille-
 rand. — Le cas Millerand et le socialisme français. —
-Huserr LAGARDELLE : Le socialisme et l'affaire Dreyfus. —
+Huserr LAGARDELLE: Le socialisme et l'affaire Dreyfus. —
 propos des Universités populaires. — Le parti socialiste
-et la crise. — Rosa LuxemBurG : Le cas Millerand, — Karz
-Marx : La Commune. —Marcez Mauss : L'action socialiste.
-— Louis Réveunx : La liberté de l'enseignement. — ÉMILE
-VAXDERVELDE : La décadence de la propriété personnelle.
+et la crise. — Rosa LuxemBurG: Le cas Millerand, — Karz
+Marx: La Commune. —Marcez Mauss: L'action socialiste.
+— Louis Réveunx: La liberté de l'enseignement. — ÉMILE
+VAXDERVELDE: La décadence de la propriété personnelle.
 Histoire et organisation des partis socialistes
 Enquête sur l'organisation intérieure des partis socialistes
 Braux. — Le parti socialiste allemand.
 BissozATI. — Le parti socialiste italien,
 IGzesras. — Le parti socialiste espagnol.
 à VANDERVELDE. — Le parti socialiste belge.
-ñ TrogLsrrA. — Le parti socialiste hollandais.
+TrogLsrrA. — Le parti socialiste hollandais.
 ApLEr. — La Démocratie socialiste en Autriche.
-F5 ELrLcexpoGex.— Le parti socialiste autrichien.
-eo BorGB3ERG. — Le parti socialiste danois.
+ELrLcexpoGex.— Le parti socialiste autrichien.
+BorGB3ERG. — Le parti socialiste danois.
 
 dixième cahier de la deuxième série
 
-A. BrAux : Le prétendu « Caporalisme » des socialistes
-allemands. — PAuz FAucoxxer : Les débats sur la tactique
+A. BrAux: Le prétendu « Caporalisme » des socialistes
+allemands. — PAuz FAucoxxer: Les débats sur la tactique
 au congrès de Hanovre. pe:
 
-CorneLissex : Le socialisme en Hollande (réponse à Vliegen).…
+CorneLissex: Le socialisme en Hollande (réponse à Vliegen).…
 
-L'unité du parti ouvrier anglais. — QueLcu : L'organisation ]
+L'unité du parti ouvrier anglais. — QueLcu: L'organisation
 unitaire du socialisme anglais. — A propos de l'unité du
 
-RENÉ Aror : Le socialisme aux Antilles.
+RENÉ Aror: Le socialisme aux Antilles.
 
-GEORGES FauQuET : L'organisation du parti socialiste et les
-syndicats. — JEAN JAURÈS : L'unité socialiste. — PniLIPPE
-Lanprtœu : Les fédérations départementales. — W. Lies
-KNECHT : Soyons unis. — HUBERT LAGARDELLE : Pour l'unité
+GEORGES FauQuET: L'organisation du parti socialiste et les
+syndicats. — JEAN JAURÈS: L'unité socialiste. — PniLIPPE
+Lanprtœu: Les fédérations départementales. — W. Lies
+KNECHT: Soyons unis. — HUBERT LAGARDELLE: Pour l'unité
 socialiste. — Le congrès national du socialisme français. —
 L'œuvre du congrès. — Le congrès socialiste international.
 
 — Vers l'unité. — La lecon de la conférence Guesde-Jaurès.
 congrès de l'unité socialiste. — Le second congrès du parti
-socialiste français. — MarcEez Mauss : L'union et la question
-ministérielle. — Ponarp : Réflexions d'un militant ouvrier
-avant le congrès national de 1900. — RÉVELN : Le congrès
+socialiste français. — MarcEez Mauss: L'union et la question
+ministérielle. — Ponarp: Réflexions d'un militant ouvrier
+avant le congrès national de 1900. — RÉVELN: Le congrès
 général du parti socialiste. — L'œuvre du congrès national.
 La Politique à l'Étranger
-Louis BERTRAND : La Banque nationale en Belgique. —
-P. La CnEsnais : Remarques arithmétiques sur les élections -
-belges. — AuGusTE DEWINNE : Le nouveau régime électoral
+Louis BERTRAND: La Banque nationale en Belgique. —
+P. La CnEsnais: Remarques arithmétiques sur les élections -
+belges. — AuGusTE DEWINNE: Le nouveau régime électoral
 belge. — Les alliances électorales et le parti ouvrier belge.
 — Le résultat des élections en Belgique. — ELLENBOGEN
-L'antisémitisme à Vienne. — Orro Pour : L'antisémitisme
+L'antisémitisme à Vienne. — Orro Pour: L'antisémitisme
 et les élections municipales à Vienne. — Errore CIcco®rt
-L'unité italienne. — G. PixARD1 : Les élections italiennes: —
-Jean Deck : La situation en Finlande. — Issayey « Les
-finances russes. — PABLo IGzesras : Les élections législatives
-en Espagne. — Marcez Mauss : La guerre du Transvaal.
+L'unité italienne. — G. PixARD1: Les élections italiennes: —
+Jean Deck: La situation en Finlande. — Issayey « Les
+finances russes. — PABLo IGzesras: Les élections législatives
+en Espagne. — Marcez Mauss: La guerre du Transvaal.
 
 - Supexum: La justice de classe en Allemagne. — PoPoviTcx
-Situation économique de la Serbie. — Rivière : Les Trusts
+Situation économique de la Serbie. — Rivière: Les Trusts
 
-Max ALBERT : L'Inspection du travail en France. —
-ouvrière en Allemagne. — E. Briar : Congrès de la
-Prud'homie, — Pau DramaAs : La loi du 9 avril 1898, sur
-les accidents du travail. — FAUQUET : La réduction de la
+Max ALBERT: L'Inspection du travail en France. —
+ouvrière en Allemagne. — E. Briar: Congrès de la
+Prud'homie, — Pau DramaAs: La loi du 9 avril 1898, sur
+les accidents du travail. — FAUQUET: La réduction de la
 journée de travail. — Le congrès international pour la
-protection légale des travailleurs. — HiLFERDING : L'Inspection du travail en Autriche. — HuBERT LAGARDELLE : La
+protection légale des travailleurs. — HiLFERDING: L'Inspection du travail en Autriche. — HuBERT LAGARDELLE: La
 nouvelle loi sur la durée du travail. — ANATOLE DE MONZIE
 Le droit ouvrier.— Les conseils de l'Industrie et du Travail
 en Belgique. — Les conseils du travail en France. — MARIUS
-Mourter : La réforme de la loi sur les syndicats : le projet
-Waldeck-Rousseau-Millerand.— Rivière : La législation du
+Mourter: La réforme de la loi sur les syndicats: le projet
+Waldeck-Rousseau-Millerand.— Rivière: La législation du
 travail en Australie. — L'industrie à domicile.
 
-Danemark. — La fin du lockout danois. — Brrar : La
+Danemark. — La fin du lockout danois. — Brrar: La
 bourse du travail de Paris. — Le syndicat des ouvriers en
-instruments de précision. — Apozr BRAUN : Les syndicats
-allemands. — Coupar : L'union des ouvriers mécaniciens
+instruments de précision. — Apozr BRAUN: Les syndicats
+allemands. — Coupar: L'union des ouvriers mécaniciens
 
-de la Seine. — Vicror Dazce : Les employées et leur congrès. — Dewinxe : La question syndicale en Belgique. —
-Euro : Grève générale des mineurs belges. — Pau
-Fauconxer : Les secrétariats ouvriers en Allemagne. —
-fédération des Bourses de Travail. — GuérARD : La Confé-
-dération du Travail. — À. Hameznx : La fédération française
-des travailleurs du livre. — H. Haxrior : Les employés de
+de la Seine. — Vicror Dazce: Les employées et leur congrès. — Dewinxe: La question syndicale en Belgique. —
+Euro: Grève générale des mineurs belges. — Pau
+Fauconxer: Les secrétariats ouvriers en Allemagne. —
+fédération des Bourses de Travail. — GuérARD: La Confé-
+dération du Travail. — À. Hameznx: La fédération française
+des travailleurs du livre. — H. Haxrior: Les employés de
 magasin au Havre. — Le mouvement ouvrier au Havre. —
-d _ HixrerpiNG : La grève générale des mineurs autrichiens.
+HixrerpiNG: La grève générale des mineurs autrichiens.
 dixième cahier de la deuxième série
-Laporte : Les travailleurs de la voie ferrée. — Deux
+Laporte: Les travailleurs de la voie ferrée. — Deux
 congrès des travailleurs de chemin de fer. — JEAN LoNGuer
-Le congrès international des mineurs. — Norrt : Organisation des ouvriers et employés de chemins de fer en Italie.
-— A. Ocrors : Les Dockers belges. — Le premier congrès
+Le congrès international des mineurs. — Norrt: Organisation des ouvriers et employés de chemins de fer en Italie.
+— A. Ocrors: Les Dockers belges. — Le premier congrès
 fédéral des Bourses du Travail. — La fédération des Bourses
-du Travail et ses congrès. — Réven : La grève de Calais.
-— Rivière : La crise de l'industrie textile. — MAXENCE
-Rozpess : Les grèves du Creusot et de Montceau-les-Mines:
-HAERT : La fédération des ouvriers gantiers et ses congrès.
+du Travail et ses congrès. — Réven: La grève de Calais.
+— Rivière: La crise de l'industrie textile. — MAXENCE
+Rozpess: Les grèves du Creusot et de Montceau-les-Mines:
+HAERT: La fédération des ouvriers gantiers et ses congrès.
 
-Émize Aumerr : La verrerie ouvrière d'Albi. — ANSRELE
-La coopération et le socialisme. — Bocx : La coopérative
-« l''Abeïlle suresnoiïise ». — DEewinne : La coopération en
-Belgique. — XAVIER GuILLEMN : L'Avenir de Plaisance. —
-rique. — Marcez Mauss : Le congrès des coopératives socialistes. — Samson : La coopérative « l'Union de Lille ».
+Émize Aumerr: La verrerie ouvrière d'Albi. — ANSRELE
+La coopération et le socialisme. — Bocx: La coopérative
+« l''Abeïlle suresnoiïise ». — DEewinne: La coopération en
+Belgique. — XAVIER GuILLEMN: L'Avenir de Plaisance. —
+rique. — Marcez Mauss: Le congrès des coopératives socialistes. — Samson: La coopérative « l'Union de Lille ».
 Socialisme et militarisme
-Russie. — Pauz Fauconwer : La réforme militaire. — GaAsTON VANDERMEEREN : La propagande antimilitariste en Belgique.
-BRuNELLIÈRE : L'agriculture dans l'ouest de la France. —
-Huserr LAGARDELLE : Le programme agraire du P.O:F:
-jugé par le P. O.F. lui-même. — VANDERVELDE : Influence
-des villes sur les campagnes : le Limbourg et Anvers, la
-province de Liège. — Les villes tentaculaires. — Le recensement agricole en Belgique. — VLmGEn : La question
+Russie. — Pauz Fauconwer: La réforme militaire. — GaAsTON VANDERMEEREN: La propagande antimilitariste en Belgique.
+BRuNELLIÈRE: L'agriculture dans l'ouest de la France. —
+Huserr LAGARDELLE: Le programme agraire du P.O:F:
+jugé par le P. O.F. lui-même. — VANDERVELDE: Influence
+des villes sur les campagnes: le Limbourg et Anvers, la
+province de Liège. — Les villes tentaculaires. — Le recensement agricole en Belgique. — VLmGEn: La question
 
-CraBrouIzLAUD : L'œuvre de la municipalité socialiste de
-Roubaix. — Maurice CHARNAY : L'action socialiste au conseil municipal de Paris. — Le gaz à Paris. — GHESQUIÈRE
-La municipalité de Lille. — HuBerT LAGARDELLE : Les élections municipales et le parti socialiste. — MARPAUx
+CraBrouIzLAUD: L'œuvre de la municipalité socialiste de
+Roubaix. — Maurice CHARNAY: L'action socialiste au conseil municipal de Paris. — Le gaz à Paris. — GHESQUIÈRE
+La municipalité de Lille. — HuBerT LAGARDELLE: Les élections municipales et le parti socialiste. — MARPAUx
 L'œuvre de la municipalité socialiste de Dijon. — SINGER
 L'action socialiste au conseil municipal de Berlin. — EMILE
-VINcr : Le socialisme municipal en Belgique.
-Docteur V. AuGAGneuR : Les vraies causes et les vrais
-remèdes de l'alcoolisme. — L. GraAux : Les habitations
-ouvrières. — Maurice LAUZzEL : L'alcoolisme. — ANDRÉ
-SPrRE : Le budget d'un alcoolique. — Docteur VERHAEGHE
+VINcr: Le socialisme municipal en Belgique.
+Docteur V. AuGAGneuR: Les vraies causes et les vrais
+remèdes de l'alcoolisme. — L. GraAux: Les habitations
+ouvrières. — Maurice LAUZzEL: L'alcoolisme. — ANDRÉ
+SPrRE: Le budget d'un alcoolique. — Docteur VERHAEGHE
 Le parti socialiste et la lutte contre l'alcool. — La lutte
 contre l'alcool.
-E. Berru : Le socialisme et M. Faguet. — MARCEL LANDRIEU : La concentration des forces ouvrières dans l'Amé-
-rique du Nord.— A. Lévy : Réponse de Kautsky à Bernstein.
+E. Berru: Le socialisme et M. Faguet. — MARCEL LANDRIEU: La concentration des forces ouvrières dans l'Amé-
+rique du Nord.— A. Lévy: Réponse de Kautsky à Bernstein.
 Les industries monopolisées aux États-Unis. — La Pré-
 voyance sociale en Italie. — La participation aux béné-
 Arts et littérature
-Henry BAUER : Critique littéraire. — Bouran : L'Anneau
-d'améthyste, d'Anatole France. — DE BrouckèrE : Le socialisme et les intellectuels. — Emize Buré : Chroniques dramatiques : En Paix. — Le Ressort. — La Robe rouge. — La
-Poigne. — Desnars : Art et socialisme. — Les Façades, —
-Corot et les impressionnistes. — J. Dazou : L'art à l'Exposition. — ANATOLE FRANCE : Science et prolétariat. — A.
-Feromwanp HéroLp : Henry Becque. — Le fruit d'immor-
-talité (nouvelle). — JEAN Jaurès : L'art et le socialisme. —
+Henry BAUER: Critique littéraire. — Bouran: L'Anneau
+d'améthyste, d'Anatole France. — DE BrouckèrE: Le socialisme et les intellectuels. — Emize Buré: Chroniques dramatiques: En Paix. — Le Ressort. — La Robe rouge. — La
+Poigne. — Desnars: Art et socialisme. — Les Façades, —
+Corot et les impressionnistes. — J. Dazou: L'art à l'Exposition. — ANATOLE FRANCE: Science et prolétariat. — A.
+Feromwanp HéroLp: Henry Becque. — Le fruit d'immor-
+talité (nouvelle). — JEAN Jaurès: L'art et le socialisme. —
 
 dixième cahier de la deuxième série
-Manrivs-Ary LeBLoxp : Résurrection, de Tolstoi. — La char-
-pente, de J.-H. Rosny. — Maurice MAGRE : L'adieu du wer- À
-rier (vers). — Le mineur (vers). — Octave MIRBEA& : Scru- $L
-pule (nouvelle). — Wiczram Morris : Une lecon de roi és
-(nouvelle). — CHaRLes PÉGux : Les récentes œuvres de Zola.
-GxAUD : De la constitution d'un théâtre populaire. — Hymne
+Manrivs-Ary LeBLoxp: Résurrection, de Tolstoi. — La char-
+pente, de J.-H. Rosny. — Maurice MAGRE: L'adieu du wer- À
+rier (vers). — Le mineur (vers). — Octave MIRBEA&: Scru-
+pule (nouvelle). — Wiczram Morris: Une lecon de roi
+(nouvelle). — CHaRLes PÉGux: Les récentes œuvres de Zola.
+GxAUD: De la constitution d'un théâtre populaire. — Hymne
 au jour (vers).
 
-Mar BoxnevraL : Le congrès de la condition des droïts
-de la femme. — Cu. Boorx : Les clubs ouvriers à Londres.
-— Joserx Boucer : Le congrès des étudiants et anciens
-étudiants socialistes. — Vicror CHARBONNEL : Les jeunes
-catholiques et l'action sociale. — HuBERT LAGARDELLE : A
+Mar BoxnevraL: Le congrès de la condition des droïts
+de la femme. — Cu. Boorx: Les clubs ouvriers à Londres.
+— Joserx Boucer: Le congrès des étudiants et anciens
+étudiants socialistes. — Vicror CHARBONNEL: Les jeunes
+catholiques et l'action sociale. — HuBERT LAGARDELLE: A
 la mémoire de Liebknecht. — BerNarp Moxop: Les réfugiés
-politiques en Angleterre. — SoreL : L'économie politique
-à l'Exposition. — SORGUE : Aline Valette. — EmIxE VaxDERVELDE : La nouvelle maison du peuple de Bruxelles.
+politiques en Angleterre. — SoreL: L'économie politique
+à l'Exposition. — SORGUE: Aline Valette. — EmIxE VaxDERVELDE: La nouvelle maison du peuple de Bruxelles.
 
 « Nous répétons pour nos nouveaux abonnés ce que
-nous avons déclaré dès le commencement : que nous.
+nous avons déclaré dès le commencement: que nous.
 n'avons pas institué nos cahiers pour donner sur le.
 mouvement socialiste les nouvelles simultanées complètes et les renseignements rigoureusement contemporains. Pour se tenir au courant du mouvement sotialiste à mesure qu'il se meut, on doit s'abonner au
 
 Paraît le 10 de chaque mois
-Éditeur : Société d'éditions artistiques et littéraires,
-s Extrait des collections
+Éditeur: Société d'éditions artistiques et littéraires,
+Extrait des collections
 — Henri HENE. — Les Femmes de Shakespeare.
 1891 HENRY BECQUE. — Hamlet et les chroniques de
 — Taéopore REINAcCH. — L'Hymne d'Apollon.
@@ -1628,7 +1627,7 @@ s Extrait des collections
 dixième cahier de la deuxième série
 — Eucène Morer. — Projet de Théâtres populaires.
 Récemment réorganisée, la Revue d'Art dramatique
-Hexry Lyonner. — Le Théâtre hors de France. Italie. ‘
+Hexry Lyonner. — Le Théâtre hors de France. Italie.
 Henry Lyonner. — Lettres inédites de Verdi.
 SuarÈs. — L'Amour et la Volupté au théâtre.
 Théâtres. Compte rendu et analyse des pièces jouées sur
@@ -1650,7 +1649,7 @@ des Bibliothèques universitaires de Paris, Caen, Rennes, etc.
 La Société Nouvelle a été formée il y a un peu plus
 d'un an par des hommes désireux d'être utiles au travail intellectuel et à l'éducation populaire. Ils ont mis
 en commun, sans arrière-pensée d'intérêt personnel,
-leurs bonnes volontés et leurs ressources : les statuts
+leurs bonnes volontés et leurs ressources: les statuts
 de la Société stipulent que, sous réserve d'un faible
 intérêt attribué au capital social, les bénéfices seront
 tout entiers consacrés au perfectionnement et au développement de l'entreprise, et à la diffusion d'ouvrages
@@ -1666,12 +1665,12 @@ du public des services de librairie bien organisés, et
 
 qui fonctionnent avec toute la précision, la rapidité et
 le bon marché désirables.
-- Elle est én mesure d'exécuter aux meilleures condidixième cahier de la deuxième série
-tions tous les ordres relatifs aux publications françaises, .
+- Elle est mesure d'exécuter aux meilleures condidixième cahier de la deuxième série
+tions tous les ordres relatifs aux publications françaises,.
 aussi bien littéraires et courantes que scientifiques et “4
-techniques. Elle fournit les livres français avecles remises usuelles sur le marché parisien, sans frais sup- “À
+techniques. Elle fournit les livres français avecles remises usuelles sur le marché parisien, sans frais sup-
 plémentaires de commission, le port seul étant à la
-charge du destinataire, sauf pour les commandes supé- Fe
+charge du destinataire, sauf pour les commandes supé-
 rieures à 30 francs, qui sont expédiées franco à Paris
 et en province. Elle exécute sans frais les abonnements
 Les agents que la Société possède aujourd'hui à
@@ -1706,30 +1705,30 @@ et je me permets de recommander que l'on suive assidû-
 - ment les cours de l'école socialiste instituée récemment
 par les actionnaires de la Société nouvelle.
 
-installée à l'Union Moufjetard, université pop re du.
+installée à l'Union Moufjetard, université pop du.
 
 connET, agrégé de l'Université; LucIEN HERR, agrégé
 de l'Université; HuBerr LAGARDELLE, directeur dus
 LonquEr; Marcez Mauss, agrégé de l''Univer sité;
-Encarp MicnAu », agrégé de l'Université; EUGÈNE
-Penir, docteur en droit; ABEL REY, agrégé de EU ni-
+Encarp MicnAu agrégé de l'Université; EUGÈNE
+Penir, docteur en droit; ABEL REY, agrégé de ni-
 versité; FRANÇOIS Smmranp, agrégé de l'Université.
-Les cours de l'École socialiste s'adressent à tous ce ux ï]
+Les cours de l'École socialiste s'adressent à tous ce
 qui veulent entreprendre ou poursuivre leur éducation
 Ils ne sont pas faits pour satisfaire des curios tés
 vaines ou pour entretenir de vagues sympathies; is)
 veulent préparer à une action socialiste effective et
-L'enseignement aura un caractère scientifique. #4 Hé
-Le programme de la première année comporte q natre
-séries de leçons ayant pour objet : “URSS
-1° L'Histoire des doctrines socialistes; LR
+L'enseignement aura un caractère scientifique. #4
+Le programme de la première année comporte natre
+séries de leçons ayant pour objet: “URSS
+1° L'Histoire des doctrines socialistes;
 L'Organisation des partis socialistes français et
 L'Organisation économique (coopératives, SYndEN
-Le Le programme sera, d'année en année, él A bte
+Le Le programme sera, d'année en année, A bte
 
 Le Lundi à 9 heures du soir
-s COOPÉRATIVES ra » 111 février  L Histoire du mouvement coopératif.
-. > » 925 février I. Nature des diverses institutions coopé-
+COOPÉRATIVES » 111 février Histoire du mouvement coopératif.
+. » 925 février I. Nature des diverses institutions coopé-
 - 3 4 mars II. Le fonctionnement des coopératives de
 mars IV. L'organisation fédérale. — Coopérative
 et socialisme.
@@ -1739,15 +1738,15 @@ et le syndicat professionnel.
 6° 25 mars IL. Structure syndicale et fonction syn-
 
 7° 15 avril III. Les buts syndicaux.
-nu 822 avril IV. Les méthodes syndicales.
+822 avril IV. Les méthodes syndicales.
 9° 29 avril V. La fonction syndicale dans la démocratie
 
 12° 20 mai IL. Budget communal.
 
 février I. La formation historique du Parti.
 2 21 février IL. Les éléments d'organisation et les di-
-ü verses formes d'action et de propa-
-ka 4 7 mars IV. Le mouvement politique dans ses rapports
+verses formes d'action et de propa-
+4 7 mars IV. Le mouvement politique dans ses rapports
 à avec le mouvement syndical et coopé-
 
 dixième cahier de la deuxième série
@@ -1756,7 +1755,7 @@ dixième cahier de la deuxième série
 9° 25 avril I. Depuis la Commune jusqu'en 1889.
 10° 2 mai IL. Depuis 1889 jusqu'au Congrès de Paris.
 11° 9 mai II. Le Congrès de Paris et l'Unité socialiste.
-7° 30 mars  Karz Marx : I. La plus-value.
+7° 30 mars Karz Marx: I. La plus-value.
 9° 27 avril — II. La rente foncière.
 Les Samedi 25 et Jeudi 30 mai à 5 heures 1/2.
 Les cartes d'entrée sont délivrées à la Société NouVELLE DE LIBRAIRIE ET D'ÉDITION, 17, RUE Cuyas. Elles
@@ -1765,8 +1764,8 @@ délivrées moyennant une cotisation fixée, pour les quatre
 mois, à 2 francs, payables facultativement par quarts.
 Ce cahier a été composé par des ouvriers syndiqués
 
-ra Nous prions ceux de nos abonnés qui nous envoient ]
-s des documents et des renseignements de vouloir bien
+Nous prions ceux de nos abonnés qui nous envoient
+des documents et des renseignements de vouloir bien
 écrire très lisiblement et d'un seul côté de la page.
 Quand leurs études sont d'ensemble et un peu longues,
 ils peuvent les rédiger. Mais toutes les fois qu'ils nous
@@ -1781,7 +1780,7 @@ les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept heures.
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction
-le jeudi soir de deux heures à cinq heures. “
+le jeudi soir de deux heures à cinq heures.
 Par exception pendant les vacances de Pâques
 M. Péguy reçoit le jeudi de huit heures à onze heures
 et de une heure à sept heures.
@@ -1795,7 +1794,7 @@ Adresser à M. Charles Péguy, gérant des cahiers,
 16,rue de la Sorbonne, Paris, la correspondante de
 rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy peut entraîner pour
 la réponse un retard considérable.
-Nous avons pu reconstiluer avec nos retours quelques
+Nous avons reconstiluer avec nos retours quelques
 premières séries complètes. Nous les vendons au prix
 d'un abonnement ordinaire. Nous ne les vendons qu'à
 nos abonnés.
@@ -1812,7 +1811,7 @@ et Les œuvres qui nous paraissent bonnes, sans demander
 aux éditeurs, aux initiateurs, aux gérants ni leur avis
 ni leur finance.
 Nous pensions d'abord faire tout un cahier d'annonces;
-mais nous avons dû faire place dans ce dixième cahier
+mais nous avons faire place dans ce dixième cahier
 à la propagande universitaire pour les étudiants russes.
 Nous publierons dans les prochains cahiers les annonces
 qui nous restent sur le marbre.

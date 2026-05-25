@@ -71,7 +71,7 @@ renseigne sur l'histoire du paradis.
 — Nous venons te souhaiter la bonne année, répéta
 gravement Pierre Baudouin. Au temps que nous vivons,
 cela veut dire que nous te souhaitons que tu sois et que
-tu demeures juste et vrai. Nous ie souhaitons aussi que
+tu demeures juste et vrai. Nous souhaitons aussi que
 beaucoup d'honnêtes gens t'apportent beaucoup de bonne
 
 copie, que les compositeurs ne te fassent aucune coquille et que les imprimeurs ne t'impriment aucune
@@ -80,7 +80,7 @@ bourde; enfin je te souhaite que les abonnés croissent
 — Mais, dit Pierre Deloire, comme l'histoire des évé-
 nements nous fait voir que Les souhaits ne suffisent pas,
 je apporte pour le mois de janvier les dix francs de
-souscription mensuelle que je prélève sur le produit des !
+souscription mensuelle que je prélève sur le produit des!
 leçons que je vends.
 
 — Pour la même raison, dit Pierre Baudouin, je Vapporte ces cinquante francs de souscription extraordinaire. Mes terres de Bourgogne se sont enfin vendues.
@@ -88,7 +88,7 @@ Elles se sont vendues un assez bon prix, parce que les
 Bourguignons, ayant fait beaucoup de vin, pouvaient
 dépenser quelque argent. Elles m'ont rapporté quinze et
 quelques cents francs dont j'ai besoin pour la nourriture
-de ma famille ; mais je tenais à prélever les cinquante
+de ma famille; mais je tenais à prélever les cinquante
 francs que je voulais vous donner.
 
 — Vos souscriptions m'étaient indispensables et vos
@@ -114,7 +114,7 @@ reçu le premier désabonnement.
 
 La lecture de ton dernier cahier m'a révolté.
 
-— Quel était ce cahier ?
+— Quel était ce cahier?
 
 — Le premier de la deuxième série.
 
@@ -125,12 +125,12 @@ pas d'autre mot.
 
 1° Comment! tu t'amuses à recueillir les commérages
 du Cri de Paris, à les discuter d'une façon blessante et
-peu loyale pour les camarades que tu mets en cause !
+peu loyale pour les camarades que tu mets en cause!
 Herr peut avoir ses défauts, mais on ne peut méconnaître
 ses rares qualités de dévouement à la cause! L'œuvre
 
-L'auteur avait mis d'abord : L'œuvre qu'il à fondée et
-fait vivre. Il a rectifié : L'œuvre qu'il a sinon fondée, du
+L'auteur avait mis d'abord: L'œuvre qu'il à fondée et
+fait vivre. Il a rectifié: L'œuvre qu'il a sinon fondée, du
 moins fait vivre. -
 
 — Il a aussi bien fait de rectifier. Nous vous requé-
@@ -144,17 +144,17 @@ que ta critique n'est pas loyale. Je regrette d'y trouver
 des insinuations peu dignes de toi. —
 
 — Nous sommes ici venus, dit Pierre Baudouin, pour
-te forcer à n'insinuer pas. Nous te requérons de conti- ,
+te forcer à n'insinuer pas. Nous te requérons de conti-,
 
 —Je regrette d'y trouver des insinuations peu dignes de
-toi; par exemple, quand tu dis : L'admiration mutuelle
+toi; par exemple, quand tu dis: L'admiration mutuelle
 n'avait pas cours parmi nous, tu sous-entends que les
 amis de Herr pratiquent cette admiration mutuelle, etc.
 Est-ce bien à toi aussi de t'ériger en censeur pour
-des camarades à qui tu ne peux reprocher que des divergences de vues ! Ne crains-tu pas que ta censure ne soit
+des camarades à qui tu ne peux reprocher que des divergences de vues! Ne crains-tu pas que ta censure ne soit
 suspecte et qu'on ne dise que c'est la rancune plus que
-la vérité qui inspire ? Enfin à quoi servent ces polémiques — qui sont lettre morte, heureusement, pour tes
-lecteurs de province ? Le péril clérical et capitaliste et
+la vérité qui inspire? Enfin à quoi servent ces polémiques — qui sont lettre morte, heureusement, pour tes
+lecteurs de province? Le péril clérical et capitaliste et
 militariste n'est-il donc plus présent, pour que tu t'amuses ainsi à frapper —
 
 — Je te réponds, dit Pierre Baudouin, que l'on ne dira
@@ -162,7 +162,7 @@ pas ce soir que tu t'amuses. Nous te requérons de continuer.
 
 — pour que tut'amuses ainsi à frapper sur nos amis?
 Ou veux-tu propager le scepticisme et le découragement
-dans notre parti ? Si c'est cela, il m'est impossible de
+dans notre parti? Si c'est cela, il m'est impossible de
 
 2° Quel besoin as-tu de renseigner bénévolement les
 journaux bourgeoïs et les gros bonnets universitaires
@@ -172,14 +172,14 @@ sur la personnalité de —. Vous permettez que je passe
 
 — Provisoirement nous te le permettons. Nous te requérons de continuer.
 
-— Mettons : sur la personnalité de celui de nos camarades qui signe un universitaire à la Petite République. En écrivant que ce rédacteur appartient à une
+— Mettons: sur la personnalité de celui de nos camarades qui signe un universitaire à la Petite République. En écrivant que ce rédacteur appartient à une
 promotion de deux ans plus ancienne que toi, en
 ajoutant qu'il est en congé à Paris, tu le désignes
 très clairement.
 
 Qu'est-ce aussi que les conseils — pires que des critiques — que tu te plais à lui donner? Veux-tu à l'avance
 affaiblir l'autorité de ses articles auprès des lecteurs de
-la Petite République ? Je remarque encore que cette
+la Petite République? Je remarque encore que cette
 rage d'indiscrétion et de censure ne peut faire que les
 affaires de nos adversaires.
 
@@ -187,7 +187,7 @@ affaires de nos adversaires.
 que pour toi, puisqu'elles ne contiennent que des réserves à ton adresse ou des conseils.
 A quoi bon revenir longuementsur le Journal d'une
 femme de chambre et donner à cette ordure les propor-
-tions d'un événement ? Tout ce que tu publies aujourd'hui a déjà été dit la dernière fois. Ce n'est que du
+tions d'un événement? Tout ce que tu publies aujourd'hui a déjà été dit la dernière fois. Ce n'est que du
 
 5° Les annonces de l'école des hautes études sociales
 occupent 15 pages de ton cahier!
@@ -197,9 +197,9 @@ occupent 15 pages de ton cahier!
 — Nous te requérons de continuer et de finir.
 
 — de ton cahier! Cette publication n'a aucune utilité, ni pour les lecteurs de province qui n'iront jamais
-à cette école, ni pour les lecteurs de Paris qui ont pu lire
+à cette école, ni pour les lecteurs de Paris qui ont lire
 ces afliches sur tous les murs. Ne pouvais-tu remplir ces
-pages par quelque chose de plus utile, par une critique d'un abus dont nous souffrons, par exemple ?
+pages par quelque chose de plus utile, par une critique d'un abus dont nous souffrons, par exemple?
 
 6° L'amplification de Boutroux est parfaitement insignifiante, quand elle n'est pas infectée d'esprit métaphysique et bourgeois.
 
@@ -231,17 +231,17 @@ qui les étreint.
 Enfin, alors que nous n'avons pas trop de tous nos
 efforts, etde nos maigres ressources pour combattre les
 forces du passé, plus menaçantes que jamais, tu nous
-annonces que tu vas publier des romans ! des romans,
+annonces que tu vas publier des romans! des romans,
 comme si la réalité n'était pas assez tragique et que
 nous avions —
 
 — avions le temps de nous intéresser à des fioritures
-de phrases et à des divertissements d'esthètes !
+de phrases et à des divertissements d'esthètes!
 
-— Il faut : comme si la réalité n'était pas — — et
-comme si nous avions — — — ou bien : comme si la
+— Il faut: comme si la réalité n'était pas — — et
+comme si nous avions — — — ou bien: comme si la
 réalité n'était pas — — et que nous ayons. Ce n'est pas
-là fioriture d'esthètes, mais bonne et grosse grammaire
+fioriture d'esthètes, mais bonne et grosse grammaire
 française. Avez-vous bientôt fini?
 
 — Je ne me flatte pas de te convaincre. Je crains que
@@ -256,9 +256,9 @@ Je ne veux donc pas que tu la publies.
 — Ton ami qui regrette que tu fasses un si mauvais
 usage de tes qualités naturelles.
 
-Vous permettez que je passe la signature ?
+Vous permettez que je passe la signature?
 
-— Provisoirement nous vous le permettons. Ensuite ?
+— Provisoirement nous vous le permettons. Ensuite?
 
 — Le troisième cahier descendait des compositeurs
 aux imprimeurs quand me parvint le deuxième désabonnement.
@@ -296,7 +296,7 @@ ton imagination, tu peux lui reprocher. Je ne veux
 m'associer, ni de près ni de loin, à cette œuvre de
 désorganisation, pour laquelle sont dépensées les
 cotisations que tu reçois, et que l'on t'offre pour de
-tout autres combats. Même à l'époque où je ne té donnais pas tous les torts, j'étais avec ceux qui organisent
+tout autres combats. Même à l'époque où je ne donnais pas tous les torts, j'étais avec ceux qui organisent
 
 le travail contre ceux qui le désorganisent; aujourd'hui
 tu diminues même la sympathie qui allait à ta personne.
@@ -304,7 +304,7 @@ Tout ce que j'espère, c'est que tu ne continueras pas
 dans cette voie, et que nous te retrouverons avec nous,
 contre l'ennemi commun, que tu sers aujourd'hui indirectement. CE JOUR-LA JE SERAI HEUREUX DE TE REVOIR
 
-Vous permettez que je passe la signature ?
+Vous permettez que je passe la signature?
 
 — Provisoirement nous le permettons.
 
@@ -350,15 +350,15 @@ ne pensent qu'à leur métier, leur gagne-pain, leur avan-
 
 cinquième cahier de la deuxième série
 cement. S'il y en a par-ci par-là un qui partage nos idées
-— ou qui s'en sert —, il peut d'abord être pour nous
+— ou qui s'en sert il peut d'abord être pour nous
 plus gênant qu'utile, et en tout cas ne peut pas faire grand
-chose, vu qu'il a assez à faire pour n'être pas déplacé
+chose, qu'il a assez à faire pour n'être pas déplacé
 par les ennemis ou les défenseurs de la République.
 Autant que je connais ton public, il n'y a pas beaucoup de tes lecteurs qui ne regrettent pas leurs huit ou
 leurs vingt francs, qui les intéressent plus que les
 divisions et les discussions entre socialistes.
 
-D'ailleurs tu es forcé dès maintenant de faire des concessions à ton public : tu te lances bon gré mal gré dans
+D'ailleurs tu es forcé dès maintenant de faire des concessions à ton public: tu te lances bon gré mal gré dans
 la concurrence, dans la réclame, directement ou par
 prétérition, volontairement ou non, mais fatalement.
 En annonçant la sténographie de l'International, tu
@@ -398,10 +398,10 @@ exemple je —
 Mon ami ajoute ici en marge: tu simplifies et tu
 aggraves à la fois.
 
-Et au bas de la page : cela va très bien pour Pascal,
+Et au bas de la page: cela très bien pour Pascal,
 mais pour d'autres — —
 
-Il continue : Par exemple je connais en province des
+Il continue: Par exemple je connais en province des
 variétés nombreuses de guesdistes parmi lesquels de
 très bons, — tel allemaniste pure crapule, — etc., des
 universitaires de valeur très inégale et très différente de
@@ -414,7 +414,7 @@ caution, réserve, correction et qu'en discutant avec tel
 de tes adversaires, je lui dirais bien des choses que tu
 me répondras sans doute.
 
-Crois-moi ton ami. .
+Crois-moi ton ami..
 
 cinquième cahier de la deuxième série
 
@@ -499,12 +499,12 @@ dans le premier numéro. Je bafouillai. Vous savez, mes
 amis, comme il est pénible et gauche d'expliquer
 d'avance, d'échafauder pour un juge violent et raïlleur
 la carcasse des formes prochaines. Léon Blum, très
-courtoisement, me dit : Péguy, je ne veux pas traiter
+courtoisement, me dit: Péguy, je ne veux pas traiter
 avec vous la question au fond. Ce que vous préparez
 me semble inopportun. Vous venez ou trop tard ou trop
 tôt. — C'était une opinion respectable, fondée ou non,
 qui demandait une amicale discussion. Simiand intervint, et confondant ses fonctions d'administrateur de
-la Société Nouvelle avec sa situation de critique sociologique il me dit : Je vois ce que c'est : tu veux faire une
+la Société Nouvelle avec sa situation de critique sociologique il me dit: Je vois ce que c'est: tu veux faire une
 revue pour les imbéciles. — Dite avec ce sourire mince
 froid qui rend son auteur si redoutable aux imbéciles
 que nous sommes, cette indication me coupa le soufile.
@@ -513,14 +513,14 @@ il nommait imbéciles tous les citoyens qui n'ont pas fait
 
 de la sociologie, ainsi que l'on m'a dit que les anciens
 nommaient stulti les citoyens qui n'étaient pas philosophes. Mais d'abord ce mot ainsi prononcé me coupa
-la respiration. Herr m'acheva : Jusqu'ici, me dit-il
+la respiration. Herr m'acheva: Jusqu'ici, me dit-il
 fortement avec l'assentiment du conseil, nous vous avons
 trop souvent suivi par amitié dans des aventures qui
 nous déplaisaient. Maintenant c'est fini. Vous allez
 contre ce que nous préparons depuis plusieurs années.
 Vous êtes un anarchiste. — Je lui répondis que ce mot
 ne m'effrayait pas. — C'est bien cela, vous êtes un
-anarchiste : nous marcherons contre vous de toutes nos
+anarchiste: nous marcherons contre vous de toutes nos
 forces. Mario Roques a bien voulu n'assurer depuis que
 Herr était trop bon pour avoir tenu parole, et que sa
 déclaration de guerre lui avait coûté beaucoup à prononcer. Mais elle me coûta beaucoup plus à recevoir. Je
@@ -535,35 +535,35 @@ de l'État-Major. J'y annonçai l'édition du « Compte
 rendu sténographique officiel du Congrès général des
 Décembre 1899 ». Vous êtes mes anciens abonnés. Vous
 avez chez vous ce cahier du 5 janvier 1900. Vous avez
-lu ces rappels studieux et ces annonces. Enfin, et
+ces rappels studieux et ces annonces. Enfin, et
 surtout, voulant donner à la maison que j'ai fondée, à
 un livre que j'ai fait, la quatrième page de ma couverture je la disposai comme suit. Permettez que je la
 remette exactement sous vos yeux
 
-La guerre = Les alliances - La pai
+La guerre Les alliances - La pai
 
-l'enseignement ; ' Mae
+l'enseignement; Mae
 
-L'enseignement primaire; l'en- Les écoles militaires ; la loi
+L'enseignement primaire; l'en- Les écoles militaires; la loi
 
-seignement moral donné au | Militaire; le budget de la
-peuple par les instituteurs ; guerre
+seignement moral donné au Militaire; le budget de la
+peuple par les instituteurs; guerre
 crise de l'enseignement secon- L'éducation militaire; l'armée
 daire; la question du baccalauréat; républicaine
 L'enseignement supérieur; la
 question des Universités; l'exten- La paix et la revanche; la
-sion universitaire ; question d'Alsace-Lorraine ; la
+sion universitaire; question d'Alsace-Lorraine; la
 
-La bee religieuse ; Léon France et l'Allemagne
+La bee religieuse; Léon France et l'Allemagne
 et le catholicisme social
-seignant; interpellation Thierry | double alliance »; le Tsar
+seignant; interpellation Thierry double alliance le Tsar
 L'enseignement laïque et l'en-
-seignement clérical ; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
+seignement clérical; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
 
-Science et socialisme ; l'indépendancecrétoise; la guerre
+Science et socialisme; l'indépendancecrétoise; la guerre
 
 des socialistes dans l'enseigne- 4 nie
-ment bourgeois ; La guerre hispano-américaine
+ment bourgeois; La guerre hispano-américaine
 La question sociale dans l'en-
 seignement. L'affaire de Fashoda.
 
@@ -634,15 +634,15 @@ infidèle, comme auteur des cahiers.
 — Nous vous demandons communication de ce
 
 — Demandez-le. Vous nous dites que vous y êtes mis
-en cause. Réclamez-le. ‘
+en cause. Réclamez-le.
 
 La partie du rapport de Janvier qui vous concerne
 occupe quatre pages et demie, qu'il m'est matériellement
 impossible de copier. Je ne puis davantage songer
-faire copier par un employé un document qui est confidentiel, et qui doit le rester. Il va de soi que lesrapports
+faire copier par un employé un document qui est confidentiel, et qui doit le rester. Il de soi que lesrapports
 lus aux assemblées générales restent toujours à la disposition des sociétaires qui veulent en prendre connaïssance, et qu'il sera mis à la vôtre si vous pouvez venir
 un jour dans la matinée, à un moment où quelqu'un
-soit là pour vous le remettre.
+soit pour vous le remettre.
 
 Je passe un paragraphe personnel et privé.
 
@@ -663,7 +663,7 @@ assemblées générales, elles sont, conformément à la loi
 et aux statuts, tenues constamment à la disposition des
 sociétaires, et d'eux seuls, c'est-à-dire que les pièces
 confidentielles ne peuvent êire ni communiquées à des
-tierces personnes, ni publiées. Il va de soi, je vous le
+tierces personnes, ni publiées. Il de soi, je vous le
 répète, que ces documents vous seront donc toujours
 communiqués selon votre désir, et que vous pourrez
 prendre copie des parties que vous jugerez bon, mais
@@ -677,7 +677,7 @@ sa première décision. J'ai soumis la question à la prochaine assemblée gén�
 jeudi en huit, le jeudi matin 10 courant. Voilà pourquoi
 je ne peux pas vous donner aujourd'hui communication
 des pages du rapport de janvier où je fus mis en cause.
-— Que vous en rappelez-vous ?
+— Que vous en rappelez-vous?
 — Ce rapport n'était pas un réquisitoire implacable,
 mais un de ces réquisitoires mouillés de tendresse qui
 écrasent leur homme. L'auteur m'y reprochaït d'avoir
@@ -691,7 +691,7 @@ après avoir entendu l'accusation voudront m'entendre
 en ma défense me trouveront au siège des cahiers,
 rue des Fossés-Saint-Jacques, le lundi et le jeudi, de
 
-— Y allèrent-ils ?
+— Y allèrent-ils?
 
 — Quelques-uns, deux ou trois sur une vingtaine et
 quelques. J'étais si abasourdi que je ne pensai pas
@@ -721,22 +721,22 @@ ceux qui auraient entendu prononcer quelque réquisi-
 cinquième cahier de la deuxième série
 toire contre ces cahiers qu'aussi longtemps qu'ils ne
 m'auront pas entendu en ma défense ils seront dansune
-situation exactement antidreyfusiste. Is ne vinrent pas
+situation exactement antidreyfusiste. ne vinrent pas
 plus. Sur la couverture du cinquième j'annonçai
 Vient de paraître à la Société Nouvelle de librairie
-et d'édition, 17, rue Cujas, Paris : la Question de l'Enseignement secondaire en France et à l'étranger, par
+et d'édition, 17, rue Cujas, Paris: la Question de l'Enseignement secondaire en France et à l'étranger, par
 CR.-V. Langlois, un volume de 140 pages, petit in-18,
-à I franc 50, livre que nous aurons sans doute à citer
+à franc 50, livre que nous aurons sans doute à citer
 quand nous présenterons les raisons pour et contre la
 liberté de l'enseignement.
 
-Vient de paraître à la même librairie : la Réforme
-militaire, Vive la Milice, par Gaston Moch, ancien capitaine d'artillerie : M. Gaston Moch a réuni et composé
-les articles qu'il avait donnés à la Petite République ; une
-propagande, 50 exemplaires, 12 fr. 5o, et 100 exemplaires, 20 francs.
+Vient de paraître à la même librairie: la Réforme
+militaire, Vive la Milice, par Gaston Moch, ancien capitaine d'artillerie: M. Gaston Moch a réuni et composé
+les articles qu'il avait donnés à la Petite République; une
+propagande, 50 exemplaires, 12 fr. et 100 exemplaires, 20 francs.
 
 Les cinquième et sixième cahiers avaient publié la
-consultation internationale ouverte à la Petite Républi- .
+consultation internationale ouverte à la Petite Républi-.
 que sur l'affaire Dreyfus et le cas Millerand. Un libraire
 m'en demandait le tirage à part. Je le lui refusai. Je
 proposai à la Société Nouvelle de faire une édition commune avec les cahiers. On en demanda l'autorisation
@@ -755,14 +755,14 @@ pages, imprimées très denses, in-16, pour cinquante centimes.
 Dans le huitième cahier j'annonçai à la dernière page
 de la couverture
 Demander à la Société Nouvelle de librairie et d'édition, 17, rue Cujas, Paris, le premier roman de Jérôme
-et Jean Tharaud : le Coltineur débile, un beau volume
-in-1 8 jésus de 116 pages, pour un franc.
+et Jean Tharaud: le Coltineur débile, un beau volume
+8 jésus de 116 pages, pour un franc.
 
-Demander à la Société Nouvelle de librairie et d'édition, de Marcel et Pierre Baudouin, Jeanne d Are,
+Demander à la Société Nouvelle de librairie et d'édition, de Marcel et Pierre Baudouin, Jeanne Are,
 drame en trois pièces, un volume lourd grand in-octavo
 de 752 pages très peu denses, pour dix francs.
 
-— Rassure-toi : on ne l'a pas demandé.
+— Rassure-toi: on ne l'a pas demandé.
 
 — Taiïs-toi, dit Pierre Deloire, écoute la lecture des
 
@@ -772,7 +772,7 @@ je dis au docteur socialiste révolutionnaire moraliste
 j'achèterai un petit Sophocle. La première fois —
 
 cinquième cahier de la deuxième série
-— Qu'est-il devenu, le docteur socialiste révolutionnaire moraliste internationaliste ?
+— Qu'est-il devenu, le docteur socialiste révolutionnaire moraliste internationaliste?
 — Je suis sans nouvelles.
 
 — Taisez-vous, dit Pierre Deloire. Écoutons le texte.
@@ -808,19 +808,19 @@ en particulier pendant les manœuvres de Beauce. Un mot
 à Corcos, fidèle sténographe. Je me débrouillai le
 samedi pour sauter dans le train. Je joignis Herr par
 hasard à la librairie. — Prenez-vous la sténographie du
-Congrès international ? — Non, ce sera sans doute la
+Congrès international? — Non, ce sera sans doute la
 confusion des langues. — Aucun ne la prend? — Non. —
 Alors je la prends. Corcos me joignit à la gare du Luxembourg. Le lendemain la sténographie fonctionnait pour Les
 cahiers, que le président de la séance n'avait pas encore
 de papier à se mettre sous la main. J'ai la sténographie
 dans ma corbeille et nous la publierons bientôt.
-Or la Société Nouvelle de librairie et d'édition avait,
+la Société Nouvelle de librairie et d'édition avait,
 comme les cahiers l'ont annoncé plusieurs fois, édité
 le compte rendu sténographique officiel du premier
 congrès national. Pareiïllement elle préparait, après
 entente avec l'ancien Comité général, un compte rendu
 sténographique officiel du deuxième congrès national,
-et un compte rendu analytique officiel du congrès ‘
+et un compte rendu analytique officiel du congrès
 international. Ce dernier congrès prit une importance
 inattendue. Si mes renseignements sont exacts, — et, au
 cas où ils ne le seraient pas, je souhaite un démenti
@@ -838,12 +838,12 @@ comptes rendus, un compte rendu analytique officiel, et
 un compte rendu sténographique non officiel.
 
 — C'est cela, dit Pierre Baudouin sourdement, c'est
-cela qu'ils nomment organiser le travail. C'est là ce qu'ils
+cela qu'ils nomment organiser le travail. C'est ce qu'ils
 nomment organiser le travail commun.
 
 — Tais-toi. Écoutons le second fait.
 
-— Second fait : un ami commun avait communiqué
+— Second fait: un ami commun avait communiqué
 M. Herr une liste, ou plutôt les matériaux d'où l'on pouvait extraire une liste assez utile des sociétés qui font
 en province de la libre pensée ou de l'enseignement
 laïque. Je la demandai innocemment. M. Herr, inquiet,
@@ -892,14 +892,14 @@ contraire les bons catholiques sont catholiques en
 semaine, et le dimanche ne leur apporte qu'un rafraichissement de leur foi. Ainsi nous sommes socialistes
 en semaine et nous ne savons pas quand nous faisons
 de la propagande. Je ne me suis jamais dit, avant un
-entretien : Attention! tu vas faire de la propagande.
+entretien: Attention! tu vas faire de la propagande.
 Mais je vis en socialiste et je parle uniment en socialiste. Je ne traite jamais personne en propagandable ou
 propagandisable, je ne suis pas propagandeur ou propagandiseur ou propagandisateur. Quand je vois venir
-à moi mon meilleur ami, je ne me dis point : Comment
+à moi mon meilleur ami, je ne me dis point: Comment
 vais-je faire pour le propagander? Mais je lui serre la
-main et je lui dis : Bonjour mon vieux, comment vas-tu?
+main et je lui dis: Bonjour mon vieux, comment vas-tu?
 parce qu'il est mon meilleur ami. Et quand je vois un
-inconnu je lui dis : Bonjour monsieur, et je cherche
+inconnu je lui dis: Bonjour monsieur, et je cherche
 savoir comme il est, mais je ne cherche pas à savoir
 
 cinquième cahier de la deuxième série
@@ -911,13 +911,13 @@ aux radicaux, eurent enlevé aux réactionnaires le con-
 
 seil municipal de Lille, vous vous rappelez sans doute
 l'enthousiasme avec lequel un journal ami, la Petite
-République, afficha une énorme manchette : Lille con-
+République, afficha une énorme manchette: Lille con-
 quise. Un envahisseur militaire parlerait ainsi. Ou bien
 la propagandisation est une forme de l'acquisition, de
-l'appropriation. Or nous voulons supprimer la propriété
+l'appropriation. nous voulons supprimer la propriété
 même.
 
-Au fond leur propagande revient à ceci : elle suppose
+Au fond leur propagande revient à ceci: elle suppose
 un propagandeur et des propagandables; un propagandeur est quelqu'un qui sait; les propagandables, c'est
 tout le monde qui ne sait pas, les imbéciles, comme
 Simiand dit. Celui qui sait enseigne ceux qui ne savent
@@ -933,7 +933,7 @@ veut pas qu'il entende.
 
 Ce n'est pas ainsi du tout que je me représente l'action
 modeste que j'exerce et l'action modeste que je reçois.
-Quand je vois quelqu'un, je ne me dis jamais : Propagandons. Mais je cause honnêtement avec ce quelqu'un.
+Quand je vois quelqu'un, je ne me dis jamais: Propagandons. Mais je cause honnêtement avec ce quelqu'un.
 Je lui énonce très sincèrement les faits que je connais,
 les idées que j'aime. Il m'énonce tout à fait sincèrement
 les faits qu'il connaît et les idées qu'il aime et qui souvent sont fort différentes. Quand il me quitte j'espère
@@ -985,7 +985,7 @@ Péguy est accusé d'avoir accueilli ou mis dans les
 cahiers de la copie qui nuit à la propagande. Qu'il s'en
 
 — Il est trop bête. Je le défendrai. Péguy trahit la
-République. Si jeune ! Et qu'ont-ils fait pour la République ceux qui l'accusent de trahir la République. Je
+République. Si jeune! Et qu'ont-ils fait pour la République ceux qui l'accusent de trahir la République. Je
 veux savoir qui c'est.
 
 — Nous examinerons plus tard si nous pouvons le
@@ -1012,10 +1012,10 @@ réserviste. Si demain matin je recevais ma feuille de
 route pour aller à Calais, sachant comme je le sais ce
 que les bourgeois font à nos amis ouvriers, je refuserais le service militaire, je déserterais. Pourquoi dès
 lors veut-on que dans le civil je recoive et j'accueille le
-mot d'ordre et le mot de ralliement. O vanité des consignes anciennes ! Quand j'étais à l'école en première
+mot d'ordre et le mot de ralliement. O vanité des consignes anciennes! Quand j'étais à l'école en première
 année, tu te rappelles, Deloire, les consignes étaient les
 suivantes, et à ces consignes obsolètes nous avons en
-leur temps donné tout ce que nous avons eu de foi, de
+leur temps donné tout ce que nous avons de foi, de
 raison, de vouloir et de force. A ces consignes obsolètes
 
 cinquième cahier de la deuxième série
@@ -1032,11 +1032,11 @@ que des tyrans. Il fallait que le suffrage universel fût
 un seul degré, le double degré ne pouvant qu'éliminer
 les meilleurs candidats. La consigne était que M. Léon
 Bourgeois préparait infailliblement la voie du seigneur
-que M. Doumer. La consigne était que l'impôt pro- ‘
+que M. Doumer. La consigne était que l'impôt pro-
 gressif sur le revenu constituait la réforme la plus
 les premiers décrets de la Révolution sociale. Et cependant que M. Léon Bourgeois était le précurseur et
 M. Doumer le sous-saint-Jean-Baptiste, ou l'aide-saintJean-Baptiste, la consigne était que M. Trarieux, un
-sénateur ! était la plus réactionnaire des canailles ou le
+sénateur! était la plus réactionnaire des canailles ou le
 plus canaïlle des réactionnaires. La Révolution sociale
 avait un jour demandé que M. Godefroy Cavaignac, un
 civil, devint ministre de la guerre. La Révolution sociale
@@ -1052,34 +1052,34 @@ aussi. Le polémiste rentra. Le président et le polémiste
 purent chauffer le second boulangisme. Il fallait alors
 que Rochefort eût de l'esprit et fût non seulement un
 bon républicain mais un bon révolutionnaire. Il faut
-présent qu'il n'ait jamais eu d'esprit et qu'il ait toujours
-été une immonde canaïlle. Or M. le marquis de
+présent qu'il n'ait jamais d'esprit et qu'il ait toujours
+été une immonde canaïlle. M. le marquis de
 Rochefort avait de l'esprit quand il servait la république
 sous l'empire, et dès lors il était une spirituelle canaille.
-Rochefort a longtemps eu de l'esprit sous la république
+Rochefort a longtemps de l'esprit sous la république
 et il était encore en ce temps une spirituelle canaiïlle.
 Tout le monde savait qu'il était une inépuisable canaille.
 Jaurès le savait quand il accueillait, au retour de l'exil
-doré, le virulent polémiste et le fougueux révolutionnaire. Comment veut-on que le bon peuple s'y reconnaisse ? Comment veut-on que le peuple s'y reconnaisse ?
-Comment veut-on que moi, peuple, je m'y reconnaisse ?
+doré, le virulent polémiste et le fougueux révolutionnaire. Comment veut-on que le bon peuple s'y reconnaisse? Comment veut-on que le peuple s'y reconnaisse?
+Comment veut-on que moi, peuple, je m'y reconnaisse?
 — Un ami que j'ai, dit Pierre Deloire, a bien voulu
-aller à la Nationale me chercher ces quelques renseignements : L'amnistie fut votée à la Chambre le 28 janvier 1895. Le 29 il y eut dans la Petite République un
+aller à la Nationale me chercher ces quelques renseignements: L'amnistie fut votée à la Chambre le 28 janvier 1895. Le 29 il y eut dans la Petite République un
 article de Sembat, très raisonnable. Le 31 vote au Sénat.
 Le premier février, article de Fournière, enthousiaste
-« En moins de quinze ans, Paris aura vu Rochefort
+« En moins de quinze ans, Paris aura Rochefort
 revenir deux fois d'exil. Son retour en 1880 fut un
 triomphe. Il en sera de même dimanche. » — Fournière
 fait des restrictions sur le boulangisme de Rochefort.
-Puis : « Vraiment, ce retour simultané de Rochefort et
-de Gérault-Richard est d'un puissant symbolisme que .
+Puis: « Vraiment, ce retour simultané de Rochefort et
+de Gérault-Richard est d'un puissant symbolisme que.
 tous comprendront. » — « Jean Grave et Drumont, ces
 
 cinquième cahier de la deuxième série
 deux démolisseurs, reviennent aussi, et ce retour complète le symbole. Ce que le peuple a voulu en exigeant,
 en imposant l'amnistie, c'est la liberté de tout dire. » —
-Le 3 février, portrait de Rochefort, sous le titre Zmpressions quotidiennes, signé Tabarant. On y lit : « On s'est
+Le 3 février, portrait de Rochefort, sous le titre Zmpressions quotidiennes, signé Tabarant. On y lit: « On s'est
 exclamé et fort justement sur l'éternel rajeunissement
-de cet esprit auquel les imbéciles seuls refusent l'envergure et la solidité. » — Le 3, retour triomphal. Millerand, entouré de ses collaborateurs de la Petite République, va recevoir le virulent à la gare. Puis il vient le
+de cet esprit auquel les imbéciles seuls refusent l'envergure et la solidité. » — Le 3, retour triomphal. Millerand, entouré de ses collaborateurs de la Petite République, recevoir le virulent à la gare. Puis il vient le
 saluer à l'Intransigeant. Jaurès arrive ensuite. Il est
 en nage. Il présente Gérault-Richard à Rochefort qui
 lui tend les bras. — C'est à vous que je dois mon retour
@@ -1095,7 +1095,7 @@ sur les libertés municipales de Paris, qui avait droit
 aux mêmes libertés que la plus petite commune de
 France. Où en serions-nous si le Paris nationaliste
 avait les libertés que nous avons réclamées pour le
-Paris révolutionnaire ? Ne croyez pas, mon ami, que je
+Paris révolutionnaire? Ne croyez pas, mon ami, que je
 rappelle ces souvenirs — et ces leçons — pour embêter
 Gérault ou pour faire de la peine à Jaurès. Aujourd'hui
 moins que jamais il ne faut leur faire de la peine, exposés qu'ils sont à la concurrence déloyale du Petit Sou,
@@ -1120,7 +1120,7 @@ et que les journalistes se font des rentes en faisant
 semblant de le servir. —
 — Attendez, dit sèchement Pierre Deloire. Faites-vous
 ici allusion au débat récemment ému entre Jean Grave
-et Urbain Gohier ?
+et Urbain Gohier?
 — Laissez-moi tranquille, je ne fais aucune allusion.
 La Société mourante et l'anarchie est le livre qui nv'a le
 plus profondément remué. Mon discours est plein de
@@ -1137,7 +1137,7 @@ paration de la révolution sociale. On me répond que la
 
 politique est un sale métier. Nous savons qu'il y a dans
 la société bourgeoise beaucoup de sales métiers, inévitables. Nous avons donc la plus-grande et la plus sincère gratitude pour les citoyens qui veulent bien assumer
-ces métiers sacrifiés. Je le dis sérieusement : j'ai la plus
+ces métiers sacrifiés. Je le dis sérieusement: j'ai la plus
 vive et la plus profonde reconnaissance pour les citoyens
 qui veulent bien faire de la politique. J'ai aussi, comme
 Français, de la reconnaissance pour les pauvres bougres
@@ -1148,14 +1148,14 @@ eût une armée. Il était inévitable, dans la situation de
 surexcitée où l'Europe se crève, il était inévitable que
 la nation française eût une armée, c'est-à-dire que pendant certaines années certains citoyens fissent leur mé-
 tier de la préparation technique aux travaux de la
-guerre. Mais qu'est-il advenu ? et c'est ici, vous m'entendez, qu'intervient ce que je nomme la contamination.
+guerre. Mais qu'est-il advenu? et c'est ici, vous m'entendez, qu'intervient ce que je nomme la contamination.
 Les citoyens qui se préparaient aux travaux déplorables
 de la guerre, au lien de garder précieusement en eux
 
 l'esprit de la cité, se laissèrent contaminer par les pas-
 sions qui naissent malheureusement de la guerre. Et il
 
-n'y eût eu que demi-mal, et contamination partielle.
+n'y eût que demi-mal, et contamination partielle.
 Maïs la plupart des citoyens, dans les années où ilsne
 faisaient pas leur métier de la préparation à la guerre,
 avaient en eux et gardaient glorieusement les passions
@@ -1170,21 +1170,21 @@ effectuée dans le socialisme révolutionnaire. Il était
 indispensable que le socialisme révolutionnaire eût ses
 politiques professionnels. Dans la situation de concurrence politique bourgeoise indéfiniment surexcitée où
 crève lentement la nation française, tous les partis politiques bourgeois se fussent payés sur le dos du socialisme révolutionnaire si le socialisme révolutionnaire
-n'avait pas eu des militaires, comme il convient de
+n'avait pas des militaires, comme il convient de
 nommer nos politiques professionnels. J'ai donc pour
-nos citoyens politiques une vive et profonde reconnaissance. On ne m'a pas vu leur jeter des tuiles sur la tête
+nos citoyens politiques une vive et profonde reconnaissance. On ne m'a pas leur jeter des tuiles sur la tête
 pendant qu'ils recevaient les tuiles des démagogues. Je
-les ai défendus tant que j'ai pu contre les démagogues.
+les ai défendus tant que j'ai contre les démagogues.
 Je les défends tant que je peux. Je les défendrai tant
 que je pourrai. Pendant qu'ils se noyaient ou couraient
-le danger de se noyer, on n'a pas vu que je faisais mon
+le danger de se noyer, on n'a pas que je faisais mon
 petit maître d'école de la Fontaine. Je me suis fait de
 sérieux ennemis parmi leurs ennemis parce que je leur
 
 cinquième cahier de la deuxième série
 subvenaïs de toutes mes forces. Quand il y a des élections politiques je fais la campagne électorale et je vote.
 Quand il y a des élections universitaires je fais la campagne. Si j'étais citoyen actif universitaire, je voterais
-aussi dans les élections universitaires. Mais là je ne suis
+aussi dans les élections universitaires. Mais je ne suis
 qu'un citoyen passif. Dans le petit village de banlieue
 extrême où je me suis réfugié, vous savez que j'ai suivi
 attentivement la campagne politique inaugurée pour les
@@ -1200,12 +1200,12 @@ Je demande que le socialisme révolutionnaire ne soit
 pas contaminé par son armée politique ainsi que la nation française fut contaminée par son armée militaire.
 Je demande que nous ayons pour nos citoyens politiques
 une reconnaissance exactement prudente et non pas une
-serve admiration, une humilité d'imitation. Or il suffit
+serve admiration, une humilité d'imitation. il suffit
 de regarder rapidement ce qui advient au socialisme
 
 - révolutionnaire pour constater un incroyable envahis-
 
-sement de la mentalité politique. !
+sement de la mentalité politique.!
 
 J'ai comparu, moi aussi, devant le Conseïl d'administration de la Société Nouvelle. Et j'ai participé aux Assemblées générales, simples chambres d'enregistrement
 qui étaient censées souveraines. C'était un des spectacles et un des événements les plus désolants que je
@@ -1227,7 +1227,7 @@ l'administration de ma vie, de quel ton Herr vous dit
 Nous sommes unanimes à penser que vous allez marcher
 contre tout ce que nous avons fait ensemble. Nous
 sommes unanimes à n'accepter pas cette publication. —
-Ils étaient unanimes ! Et qu'est-ce que cela prouve? Esprits à peu près identiques, ayant la même culture, les
+Ils étaient unanimes! Et qu'est-ce que cela prouve? Esprits à peu près identiques, ayant la même culture, les
 mêmes bonnes et les mêmes mauvaises qualités, les
 mêmes déformations et les mêmes alourdissements, ces
 cinq administrateurs étaient plus facilement unanimes
@@ -1256,9 +1256,9 @@ majorité par la minorité. Je ne veux pas réparer une injustice par une injust
 déraison par une lamentable déraison majeure. Je
 demande que parmi nous, parmi les socialistes révolutionnaires agissant entre eux, et travaillant solidairement, on n'introduise pas, venues des assemblées bourgeoises, les présomptions autoritaires de la paresseuse
 et facile votation. Je demande que l'on ne croie pas que
-l'on a tout dit quand on a dit : nous sommes unanimes,
-ou bien: nous sommes en majorité, ou bien : nous avons
-une forte majorité, ou : nous avons la majorité des deux
+l'on a tout dit quand on a dit: nous sommes unanimes,
+ou bien: nous sommes en majorité, ou bien: nous avons
+une forte majorité, ou: nous avons la majorité des deux
 tiers. Nous demandons que ces constatations de quantités n'empêchent pas d'écouter scrupuleusement la voix
 de la raison. Nous demandons que ces constatations de
 quantités n'empêchent pas systématiquement d'écouter
@@ -1266,9 +1266,9 @@ le bon sens en intellect, et le sens droit en morale. J'admets, je demande que l
 aille voter pour tels ou tels candidats au conseil municipal, au conseil d'arrondissement, au conseil législatif
 ou national, que nous nommons Chambre des Députés.
 Mais le citoyen qui, son bulletin mis, rentrant à la
-maison, dirait à sa femme : à présent nous allons voter
+maison, dirait à sa femme: à présent nous allons voter
 pour savoir si nous ferons ce soir un pot au feu me sem-
-blerait un dangereux maniaque. Pourtant c'est là que il
+blerait un dangereux maniaque. Pourtant c'est que il
 nous en sommes. La votation parlementaire bourgeoise
 ne nous a pas seulement contaminés en ce sens que
 
@@ -1292,7 +1292,7 @@ coopératives et beaucoup de syndicats ont une histoire
 parlementaire. On n'entend partout parler que de majorité. Cela est incroyable d'un parti révolutionnaire,
 d'un parti qui ne tient dans le monde qu'un espace
 extrêmement mineur. Combien y a-t-il dans l'univers
-de socialistes véritablement socialistes ? Moins que
+de socialistes véritablement socialistes? Moins que
 jamais. Et n'est-il pas évident que si la loi de majorité régissait le monde nous serions écrasés comme un
 nouveau-né chinois. Pendant toute l'affaire, les dreyfusards furent en France la minorité infime. Et depuis
 
@@ -1305,7 +1305,7 @@ rité infime. Et pour longtemps nous sommes en infimité.
 Pourquoi dès lors introduire dans nos relations mutuelles comme le seul régulateur cette loi bourgeoise immorale et dérationnelle que les bourgeoïs eux-mêmes
 ont soin de ne pas utiliser contre nous jusqu'en sa
 
-.. Pourquoi ? Parce que nos censeurs ne sont pas moins
+.. Pourquoi? Parce que nos censeurs ne sont pas moins
 contaminés de l'insincérité bourgeoise qu'ils ne sont contaminés de lautorité bourgeoise. Tout cela se tient.
 L'autoritaire ment. La seule raison ne ment pas. L'autoritaire est celui qui veutexercer une action plus grande
 que la raison ne le lui permet, que la raison ne la lui confère. IlLveut avoir un effet plus grand qu'il n'est, raisonnablement, une cause. Il veutrompre à son avantage la juste
@@ -1319,12 +1319,12 @@ lentendement du lecteur et l'entendement de l'auteur,
 une certaine quantité de croyance fidèle. Et quand Jaurès
 monte à la tribune, le censeur veut qu'il y ait, interposée entre l'entendement de l'auditeur et l'entendement de l'orateur, une certaine quantité de croyance
 fidèlement déférente. Le censeur n'admet pas que le
-texte imprimé paraisse seul, pauvre et nu au regard du
+texte imprimé paraisse seul, pauvre et au regard du
 simple citoyen. Le censeur n'admet pas que le discours
-parvienne seul, pauvre et nu à l'ouïe du simple citoyen. De
+parvienne seul, pauvre et à l'ouïe du simple citoyen. De
 Honte à ces habilleurs! Nous demandons qu'en ce sens-
 
-là il n'y ait parmi nous aucune autorité individuelle, et
+il n'y ait parmi nous aucune autorité individuelle, et
 encore moins une autorité collective. Nous demandons
 que le peuple accorde une large audience à tous ceux
 qui lui veulent parler. Mais quand il a entendu l'orateur
@@ -1335,7 +1335,7 @@ sommes de ces singuliers libre-penseurs qui n'acceptons
 aucune Église. Au sens profond des mots, nous n'autorisons aucune congrégation. Que le peuple écoute volontiers tel ou tel en mémoire des auditions précédentes,
 si elles étaient bonnes, soit. Mais dresser le peuple ou
 le public à ce qu'un jour lisant un article ou entendant
-un discours le simple citoyen pense en lui-même : Ce
+un discours le simple citoyen pense en lui-même: Ce
 raisonnement me paraît faux, mais j'admets qu'il
 est juste, puisqu'il est de monsieur un tel; — ou bien:
 Ce sentiment me paraît mauvais, mais il faut bien qu'il
@@ -1380,7 +1380,7 @@ Madagascar et la guerre du Transvaal, tant de guerres
 et tant d'épouvantes où le socialisme universel n'a rien
 tenté d'efficace ni d'effectif, sont faits pour donner
 quelque humilité à la génération que nous sommes, au
-socialisme que nous sommes. Loin de là : nos chefs
+socialisme que nous sommes. Loin de: nos chefs
 s'enrouent à chanter les hymnes et les actions de
 
 ils font à la fois la fanfare et le commandement. Quand
@@ -1396,17 +1396,17 @@ peuple allemand ont reçu et fomenté des perversités
 que le sort des âges révolus n'attribuait qu'aux chefs.
 Les peuples mêmes sont devenus pillards, menteurs,
 voleurs, assassins, nationalistes et militaristes. Alors
-pourquoi faire les malins ? Nous avons contre nous la
+pourquoi faire les malins? Nous avons contre nous la
 lourdeur de l'ignorance et le vice de la perversité de
 tous les peuples mêmes. Et pourquoi faire les petits
-bons dieux ? Nous avons contre nous le monde même
+bons dieux? Nous avons contre nous le monde même
 que nous voulons refaire. Sauf de rares exceptions, les
 passions bourgeoises croissent parmi les peuples mêmes
 comme elles ne croissaient pas jadis parmi les aristocraties et naguère parmi les bourgeoisies. Pourquoi
 nous le dissimuler. Quand il faut bâtir un immeuble de
 dix mètres et que les maçons arrivent au pied du mur,
 on ne voit pas que l'entrepreneur les assemble et leur
-annonce : Mes enfants, nous allons bâtir un tout petit
+annonce: Mes enfants, nous allons bâtir un tout petit
 mur de deux mètres et demi, — dans l'espoir qu'après
 que les maçons auront conduit le mur jusqu'à deux
 
@@ -1424,16 +1424,16 @@ et que tout se passera en douceur. C'est qu'au lieu de
 nous traiter comme des ouvriers raisonnables nos chefs
 nous traitent comme des soldats. Et non pas comme un
 officier raisonnable peut traiter des soldats raisonnables, mais comme un officier de l'ancienne armée
-traitait les mauvais soldats : Allons, encore un coup
+traitait les mauvais soldats: Allons, encore un coup
 d'épaule, il n'y a plus que deux kilomètres, quand on
-attaque : Hardi ! en avant ! ils ont peur ! ils vont foutre
-le camp! avec le refrain obligé : il y @ la goutte à boire
-là-haut! C'est comme ça que les gens finissent par
+attaque: Hardi! en avant! ils ont peur! ils vont foutre
+le camp! avec le refrain obligé: il y la goutte à boire
+là-haut! C'est comme que les gens finissent par
 boire la goutte en bas. Nous ne voulons pas boire la
 goutte. Nous sommes des ouvriers. Nous acceptons,
 nous demandons que l'on nous guide quand il en est
 besoin. Nous acceptons, nous demandons des architectes et des ingénieurs, à condition qu'ils nous diront
-la vérité. Nous ne voulons pas d'entraîneurs. Nous ne ss
+la vérité. Nous ne voulons pas d'entraîneurs. Nous ne
 sommes ni des chevaux ni des cyclistes. Nous ne
 faisons pas des courses. Nous voulons faire un travail
 raisonnable. Nous ne voulons pas de propagandeurs (
@@ -1442,7 +1442,7 @@ gande ne soit pas la communication pure et simple de
 la vérité que l'on sait. Ce qui revient à dire que c'est
 Péguy l'accusé qui fait de la propagande et que ce sont
 les censeurs qui n'en font pas Ce sera le premier point
-de ma défense. Fi
+de ma défense.
 
 s'arrêta pour souffler un peu, parce qu'il était
 
@@ -1463,7 +1463,7 @@ je le dirai bien. Mais ce que j'ai dit aujourd'hui était
 indispensable avant de commencer. Mon premier point
 était en réalité un point préliminaire. Il fallait savoir si
 le compte rendu que Péguy nous doit sera un compte
-rendu de fausse propagande sur ce modèle : Hardi les
+rendu de fausse propagande sur ce modèle: Hardi les
 gars! ou un compte rendu historique sur ce plan: J'ai
 ou ceci et entendu ceci. Alors j'ai fait ceci.
 
@@ -1508,7 +1508,7 @@ faire la leçon ou au sentiment catholique de me
 mettre en pénitence, ont organisé l'inanition de nos cahiers m'a causé une singulièrement lourde peine.
 présent que leur effort me parait déjoué pour longtemps
 je dois renoncer à m'occuper d'eux autant que je le fis.
-J'ai fait tout ce que j'ai pu pour les empêcher de commettre une injustice qu'ils croyaient utile. A présent il
+J'ai fait tout ce que j'ai pour les empêcher de commettre une injustice qu'ils croyaient utile. A présent il
 se trouve qu'ils ont commis malgré moi une injustice
 qui leur devient inutile. Négligeant pour eux l'immense
 majorité de nos abonnés, j'ai employé beaucoup du
@@ -1552,7 +1552,7 @@ nos reçus pour nous envoyer des mandats beaucoup
 plus forts. A ce propos nous rappelons à quelques-uns
 de nos abonnés que l'on ne peut pas donner au facteur
 une somme supérieure à celle que porte le mandat.
-Nous insistons aussi sur ce renseignement : que nous
+Nous insistons aussi sur ce renseignement: que nous
 ne faisons présenter de mandat que par la poste.
 
 Aussitôt que nos anciens abonnés nous auront manifesté leurs intentions, nous pourrons établir sérieuse-
@@ -1563,7 +1563,7 @@ que si le réabonnement produit peu nous aurons au
 moins neuf cents abonnés. Si le réabonnement produit
 beaucoup, nous pouvons avoir douze cents abonnés.
 
-Ce résultat considérable est dû surtout au travail de
+Ce résultat considérable est surtout au travail de
 l'administration. Ce travail continue. Ainsi nous recensons dans l'Aurore les citoyens qui ont envoyé leur
 protestation contre l'amnistie et nous leur envoyons
 éventuellement nos cahiers. Nous ne demandons à ces
@@ -1580,12 +1580,12 @@ publions donc la seconde édition, revue par l'auteur,
 qui a refondu tout le jeu de la foule au troisième acte.
 Ce très gros cahier sera mis dans le commerce et
 
-Nos abonnés ont lu dans le premier cahier de la
+Nos abonnés ont dans le premier cahier de la
 deuxième série que M. Charles Guieysse, ancien ofjicier d'artillerie, ferait à l'école des hautes études
 sociales une série de leçons sur la morale et l'armée,
 rôle de l'officier. Ces leçons commencent le mercredi
 
-3o janvier. Nous les ferons sténographier et nous les
+janvier. Nous les ferons sténographier et nous les
 réunirons sans doute en un gros cahier.
 
 Au dernier moment nos reçus commencent à nous
@@ -1596,7 +1596,7 @@ poste belge des reçus français est ainsi organisé que
 les mandats des reçus acceptés nous reviennent sans
 
 Nous prions nos souscripteurs et nos abonnés de vouloir bien nous envoyer des mandats de poste plutôt que
-des bons : le mandat est une pièce d''administration-plus
+des bons: le mandat est une pièce d''administration-plus
 
 En résumé nous demandons à tous nos abonnés de
 vouloir bien nous manifester leurs intentions fermes,
@@ -1606,5 +1606,3 @@ Nous tenons gratuitement à la disposition de nos
 abonnés la Jeanne d'Arc de Marcel et Pierre Baudouin
 et la Lumière de Jérôme et Jean Tharaud. Envoyer
 un franc pour les frais d'envoi.
-
----

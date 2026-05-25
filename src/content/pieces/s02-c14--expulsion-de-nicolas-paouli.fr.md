@@ -13,7 +13,7 @@ suivante, que je transcris textuellement en respectant
 l'orthographe de l'original
 Paris, le 15 juin 1901
 Au mois d'Avril de l'année dernière, nous soussignés,
-étions chargés de la surveillance de Paouly, demeurant .
+étions chargés de la surveillance de Paouly, demeurant.
 rue Gassendi, réputé comme un révolutionnaire russe
 « très dangereux ». À notre grande stupéfaction, nous
 avons conduit notre client deux mois après, au restaurant
@@ -24,15 +24,15 @@ sommes bien rendu compte que Paouly était une brebis
 galeuse dans le parti révolutionnaire russe. Cela n'a pas
 empêché notre chef, à notre grand étonnement de nous
 faire continuer la surveillance, entre autre, nous étions
-chargés de le surveiller à l'étranger au mois de Janvier et ?
+chargés de le surveiller à l'étranger au mois de Janvier et?
 au mois de Mars et Avril dernier. En Allemagne nous
 devions savoir, par quel moyen et à quel endroit de la
 frontière, il pouvait faire passer des brochures en Russie,
 malheureusement pour nous, avec tous ces détours, nous
 l'avons perdu, et les agents russes qui étaient à la frontière, l'ont attendu inutilement pendant un mois.
 Nous avons appris que malgré cette surveillance, Paouly
-a pu pénétrer en Russie, et s'est rendu à Saint-Pétersbourg,
-où il a eu plusieurs entrevues, avec un Chef de la Police
+a pénétrer en Russie, et s'est rendu à Saint-Pétersbourg,
+où il a plusieurs entrevues, avec un Chef de la Police
 politique, par ordre duquel il est rentré à Paris en passant
 
 par Berlin et Zurich, dans cette dernière ville il y est resté
@@ -53,7 +53,7 @@ pour pouvoir mieux vous rouler. C'est dans ce but qu'il
 
 cherche à vous grouper autour de lui, pour mieux profiter
 de votre naïveté et de votre ignorance. En quittant notre
-service, nous avons pu obtenir de nos anciens collègues,
+service, nous avons obtenir de nos anciens collègues,
 la lettre adressée à notre Chef par Paouly et dont ci-joint
 une copie décalquée, qui vous prouvera la trahison de
 votre Cher Ami.
@@ -74,7 +74,7 @@ avantages que je suis en mesure d'offrir en échange,
 quatorzième cahier de la deuxième série
 seront très considérables. C'est pourquoi j'espère que
 vous daignerez répondre à la présente lettre. Mon
-adresse : 15, rue Gassendi. , Le
+adresse: 15, rue Gassendi., Le
 La « dénonciation » était trop grotesque. Paouli est
 dans le mouvement révolutionnaire depuis plus de vingt
 ans. Il fut membre du glorieux partit Narodnaïa Volia »
@@ -82,24 +82,24 @@ dont la lutte titanique avec le tsarisme attirait l'attention et l'admiration du
 militants de ce parti, Paouli ne fut pas un faible. Envoyé
 la première fois en Sibérie, il s''évada, non pas pour
 aller chercher du repos à l'étranger, mais pour continuer
-la lutte à laquelle il a, consacré sa vie. De nouveau
-arrêté, il fut de nouveau envoyé, après deux années de .
+la lutte à laquelle il consacré sa vie. De nouveau
+arrêté, il fut de nouveau envoyé, après deux années de.
 détention préventive, en Sibérie. ILréussit encore une
 fois à échapper à la surveillance de-ses geôliers, et ce
 fut encore pour combattre les bourreaux du peuple
 russe. Arrêté pour la troisième fois et envoyé denou
 veau en Sibérie, il s''évada et vint à Paris. C'est cet.
 homme qu'on voulait nous présenter comme une brebis
-L'auteur de ce dossier publiait dans le Petit Sou du : -
-samedi 29 juin cette Fe
+L'auteur de ce dossier publiait dans le Petit Sou du: -
+samedi 29 juin cette
 Très honoré citoyen Jaurès,
 Je m'adresse à vous par la voie de la presse parce qu'il
 faut que vous expliquiez publiquement devant les socia-
 
 listes du monde entier, votre conduite et celle de votre
 Parti à l'égard du Parti socialiste russe.
-Ee gouvernement dont fait partie M. Millerand, membre
-« en congé » de votre parti, vient de commettre une nouvelle infamie : sur l'instigation de la police russe, on vient
+gouvernement dont fait partie M. Millerand, membre
+« en congé » de votre parti, vient de commettre une nouvelle infamie: sur l'instigation de la police russe, on vient
 d'arrêter et d'expulser notre excellent ami, Nicolas Paouli.
 Paouli est un révolutionnaire. Agé aujourd'hui de quarante-deux ans, il a consacré déjà plus de vingt ans — dont
 quinze années passées en Sibérie — à la lutte contre le
@@ -112,8 +112,8 @@ demanda au ministre, par télégramme, de lui donner un ou
 deux jours pour arranger ses affaires. Le ministre opposa
 un refus catégorique, et Paouli a été conduit et abandonné
 à la frontière sans argent pour pouvoir continuer son
-voyage, sans effets, et sans qu'il ait pu prévenir ses amis. *.
-Pourquoi cette mesure ? Pour donner au gouvernement
+voyage, sans effets, et sans qu'il ait prévenir ses amis. *.
+Pourquoi cette mesure? Pour donner au gouvernement
 russe la satisfaction de se venger du progrès énorme que
 fait, en Russie, la cause de la révolution; pour donner
 satisfaction à l'agent policier du gouvernement tsariste
@@ -123,11 +123,11 @@ théorie de la collaboration des classes.
 Bien plus, on a opéré une perquisition chez Paouli et on
 a saisi tous ses papiers et toutes ses lettres qui, certaine- à
 ment, seront livrés à la police russe. Il y aura donc des
-us victimes en Russie qui seront emprisonnées, jetées dans
+victimes en Russie qui seront emprisonnées, jetées dans
 les forteresses de Pierre et Paul, de Schliesselburg, envoyées
-Ce n'est là qu'un premier essai. S'il réussit, on continuera.
+Ce n'est qu'un premier essai. S'il réussit, on continuera.
 Mais vous pouvez prévenir votre ami, le socialiste « en
-congé », que ses agents ne trouveront rien chez nous : nous
+congé que ses agents ne trouveront rien chez nous: nous
 ce avons tous passé la soirée d'hier à brûler nos papiers et les
 lettres de nos amis et de nos parents, ne voulant pas que
 des sales mains policières puissent souiller ce qui nous est
@@ -183,9 +183,9 @@ Petite République ne souflle jamais mot sur les décorations
 que le « citoyen ministre » accepte des mains de tous les
 tyrans. M. Millerand remplit une haute mission historique,
 
-. « a fait faire un grand pas en avant au socialisme », — y
+. « a fait faire un grand pas en avant au socialisme — y
 a-t-il lieu de s'arrêter à ces faits, tristes il est vrai, pénibles
-même, mais, somme toute, si anodins ?
+même, mais, somme toute, si anodins?
 
 Maïs veuillez, je vous prie, citoyen Jaurès, envisager de
 plus près, avec moi, ce côté de la nouvelle méthode. Quelle
@@ -216,12 +216,12 @@ Mais voici que ce ministre reçoit à table leur ennemi,
 Witte, qu'il s'incline bassement devant leurs bourreaux,
 qu'il accepte de leurs mains des décorations, que le ministère dont il fait partie arrête et expulse leurs camarades,
 livre à la police russe des papiers trouvés à leur domicile.
-Que devons-nous leur dire ? Que les socialistes français,
-pour obtenir quelques réformes, oh! combien problématiques ! doivent participer dans un gouvernement qui devient
+Que devons-nous leur dire? Que les socialistes français,
+pour obtenir quelques réformes, oh! combien problématiques! doivent participer dans un gouvernement qui devient
 
-quatorzième cahier de la deuxième série Ki
-un agent du tsarisme dans sa lutte contre notre parti ? Que a
-l'internationalisme est un vain mot ?
+quatorzième cahier de la deuxième série
+un agent du tsarisme dans sa lutte contre notre parti? Que a
+l'internationalisme est un vain mot?
 Nous sommes donc obligés de repousser toute solidarité
 avec le ministre socialiste et, puisque son parti ne veut pas
 rompre avec lui, puisqu'il ne veut pas se séparer de lui,
@@ -232,16 +232,16 @@ telles infamies à l'égard de notre parti, ne peuvent pas être
 nos amis.
 Vous rappelez-vous, citoyen Jaurès, le discours que pro-
 nonça Guesde au congrès de Paris, contre la nouvelle
-méthode ? « Vous représentez-vous, disait-il, un Millerand
+méthode? « Vous représentez-vous, disait-il, un Millerand
 anglais, un Millerand italien, un Millerand allemand s'ajou- à
 tant au Millerand français et engageant les prolétaires, les
 uns contre les autres? Que resterait-il, je vous le
 demande, camarades, de la solidarité internationale
-ouvrière ? Le jour où le cas Millerand serait devenu un fait
+ouvrière? Le jour où le cas Millerand serait devenu un fait
 général, il faudrait dire adieu à tout internationalisme, et
 devenir les nationalistes que ni vous, ni moi, ne consentirions jamais à être. »
 Aujourd'hui, après tous les faits que je viens de raconter,
-vous devez convenir que Guesde a vu juste. Vous savez
+vous devez convenir que Guesde a juste. Vous savez
 que Millerand agit de cette sorte non seulement envers
 nous, mais aussi à l'égard d'autres partis étrangers.
 
@@ -252,10 +252,10 @@ Dreyfus, et la tactique erronée des vieilles organisationsa
 produit un changement d'opinion. On vous admirait et esti- ".
 mait profondément. Mais votre persistance à soutenir Millerand, malgré toutes ses fautes et toutes ses trahisons,
 ouvre peu à peu les yeux des socialistes du monde entier
-sur le véritable sens de votre méthode nouvelle. Bientôt il €
+sur le véritable sens de votre méthode nouvelle. Bientôt il
 
 - n'y aura plus un seul socialiste pour soutenir votre politique.
-Un membre du Parti Ouvrier Démocrate-Socialiste .
+Un membre du Parti Ouvrier Démocrate-Socialiste.
 
 de Russie
 
@@ -289,7 +289,7 @@ Nous renvoyons au treizième cahier de cette série
 pour tous renseignements sur la librairie des cahiers.
 Abonnements gratuits. — C'est trente et non cinquante francs par mois que les Journaux pour tousnous
 donnaient pour nos abonnements gratuits.
-Vacances. — Définitivement c'est à peu près du .
+Vacances. — Définitivement c'est à peu près du.
 samedi 3 août au lundi 16 septembre que nous demandons qu'on nous laisse des vacances devenues indispensables.
 Cependant même alors je serai aux cahiers, réguliè-
 rement, le jeudi de deux heures à cinq heures
@@ -307,5 +307,3 @@ est devenue générale. J'avais demandé à notre ami -
 Léon Deshairs de vouloir bien nous éclairer sur la
 partie du débat qui intéresse Boecklin. On lira ci-après
 sa contribution.
-
----

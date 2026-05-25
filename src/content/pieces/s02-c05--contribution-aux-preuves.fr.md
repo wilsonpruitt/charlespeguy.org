@@ -14,34 +14,34 @@ publiait cet article
 quoi pense donc M.le commandant Cuignet? Sur la
 liste assez copieuse des témoins qu'il a cités, ne figure pas
 le nom de M. Rochefort. Celui-ci pourtant s'écriait ces
-jours-ci avec une noble impatience : « Et nous aussi, nous
+jours-ci avec une noble impatience: « Et nous aussi, nous
 en avons assez. Je prie M. le commandant Cuignet de
 m'appeler en témoignage soit devant le conseil d'enquête,
-soit devant la cour d'assises, et là je ferai la preuve que
+soit devant la cour d'assises, et je ferai la preuve que
 Dreyfus avait envoyé directement à l'empereur d'Allemagne
 un bordereau sur papier fort; que ce bordereau a été
 annoté de la main même de l'empereur, et retourné à Paris
-avec une lettre de recommandation pour Dreyfus ; que c'est
+avec une lettre de recommandation pour Dreyfus; que c'est
 ce bordereau qui a été saisi, et qu'ensuite on l'a décalqué
 sur papier pelure en négligeant les notes inscrites par
 
 Nos lecteurs se souviennent assurément qu'il y a quelques
-jours nous avons cité in extenso le passage de l'article de
+jours nous avons cité extenso le passage de l'article de
 M. Rochefort qui annonçait ces révélations foudroyantes.
 Le grand polémiste de l'État-Major ne nous aceusera pas
 de vouloir attenter à sa gloire, ou étouffer la lumière.
 peine annonçait-il le terrible coup de théâtre qu'il préparait, que nous avons convoqué tous les prolétaires qui
-nous lisent : « Attention! et ne manquez pas ce spectacle. »
+nous lisent: « Attention! et ne manquez pas ce spectacle. »
 Nous-même nous attendions avec une hâte fiévreuse que le
 sublime impresario esterhazien levät le rideau sur ce grand
 
-Guillaume II démasqué par Rochefort, Dreyfus accablé, la
+Guillaume démasqué par Rochefort, Dreyfus accablé, la
 
 conscience humaine qui a la faiblesse de croire maintenant
 à l'innocence de Dreyfus retournée, Henry réhabilité,
 Boisdeffre glorifié, Esterhazy canonisé, tous les amis du
-traître confondus et gisant à terre : quel événement! La
-planète tout entière en aurait eu une commotion ! Et cette
+traître confondus et gisant à terre: quel événement! La
+planète tout entière en aurait une commotion! Et cette
 fois, c'était bien la fin de l'affaire Dreyfus et du dreyfusisme;
 Loubet, président de la trahison, était chassé de l'Élysée
 et nous tous, il ne nous restait plus qu'à fuir en exil, sans
@@ -52,28 +52,28 @@ peur de trop de gloire. Et il se dérobe avec une modestie
 incomparable au formidable triomphe de rire et de moque-
 
 rie, à l'incroyable apothéose de quolibets et de huées que
-l'univers lui préparait. Voltaire disait : « Ces Parisiens me
-feront mourir de plaisir »; M. Rochefort a eu peur de
+l'univers lui préparait. Voltaire disait: « Ces Parisiens me
+feront mourir de plaisir M. Rochefort a peur de
 mourir étouffé sous les manifestations joyeuses et tendres
 que son récit allait provoquer de toute part.
 
 Mais comment expliquera-t-il ce silence? Il écrivait l'autre
 jour — (c'est le mot de la fin de son article, et on sait qu'il
-soigne toujours le mot de la fin) : « Le patriotisme maintenant nous oblige à parler. » Comment donc ce patriote
+soigne toujours le mot de la fin): « Le patriotisme maintenant nous oblige à parler. » Comment donc ce patriote
 consent-il maintenant à se taire?
 
-I! a risqué une explication. Il nous a dit, le surlendemain
+a risqué une explication. Il nous a dit, le surlendemain
 du jour où il annonçait ces révélations étourdissantes, que
 décidément il ne montrerait pas le bordereau annoté; car
 s'il le montrait, ce serait la guerre.
 Mais M. Rochefort, quand il annonçait, le mardi, qu'il
 allait parler, avait prévu sans doute les périls devant
-lesquels il recule le jeudi : que s'est-il donc passé?
+lesquels il recule le jeudi: que s'est-il donc passé?
 
 Notez que M. Rochefort met la France dans une situation
 terrible. Nous savons maintenant que tout le destin de la
 patrie dépend de M. Rochefort et de M. Rochefort seul.
-M. Rochefort a, dans un tiroir de son secrétaire, un bordereau mystérieux et formidable, annoté de la main de
+M. Rochefort dans un tiroir de son secrétaire, un bordereau mystérieux et formidable, annoté de la main de
 l'empereur. S'il le cache, c'est la paix; s'il le produit, c'est
 la guerre.
 
@@ -82,11 +82,11 @@ il se décide à le cacher, rien ne nous assure qu'un samedi
 l'idée ne le reprendra point de déchaïîner l'ouragan. Un
 vieil Éole capricieux, dont le toupet blanchi remue à tous
 les vents, a dans ses mains l'outre des tempêtes. Comment
-la France pourrait-elle dormir? Ah! par pitié! que M. Rochefort ouvre toute grande l'outre des secrets tumultueux !
+la France pourrait-elle dormir? Ah! par pitié! que M. Rochefort ouvre toute grande l'outre des secrets tumultueux!
 Mieux vaut la tourmente, mieux vaut la guerre que l'état
 d'incertitude mortelle et d'insomnie obsédée où la France
 
-J'imagine que lorsque M. Rochefort a annoncé la production du bordereau impérial, il y a eu un grand émoi
+J'imagine que lorsque M. Rochefort a annoncé la production du bordereau impérial, il y a un grand émoi
 dans le monde nationaliste. Une consigne universelle de
 silence a couru aussitôt dans toute la presse patriote. On
 s'est regardé et on s'est tu, comme on se tait dans une
@@ -100,10 +100,10 @@ parlera plus.
 C'est qu'il ne pourrait arriver de pire désastre au parti
 des faussaires que de s'expliquer enfin sur le faux suprême,
 sur le roi des faux, sur l'empereur des faux, la lettre de
-Guillaume. Dès qu'il a eu l'imprudence de montrer le faux
+Guillaume. Dès qu'il a l'imprudence de montrer le faux
 Henry, le nationalisme a été bien malade; que serait-ce si,
 entraîné par Rochefort, presque aussi subtil que Cavaignac,
-il montrait la lettre impériale ?
+il montrait la lettre impériale?
 
 Les nationalistes voudraient bien que l'agitation de
 l'affaire Dreyfus recommencçât dans le vide, pour détourner
@@ -114,18 +114,18 @@ le plus inepte des faux fabriqué par eux pour perdre l'innocent, vienne à la l
 Pour quelque temps encore, et jusqu'à l'inévitable indiscrétion que réserve la justice immanente, nous serons
 réduits à des conjectures sur la date où les bandits ont
 fabriqué cette pièce extraordinaire, sur le rôle précis qu'ils
-lui destinaient, sur l'usage qu'ils en ont fait. C'est probablement la visite faite par M. de Munster à M. Casimir- ,
+lui destinaient, sur l'usage qu'ils en ont fait. C'est probablement la visite faite par M. de Munster à M. Casimir-,
 
 Perier qui a suggéré à Henry et à ses acolytes l'idée d'élaborer ce document. Du moment que l'ambassadeur d'Alle-
 magne, averti que le bordereau avait été saisi à son a.
 ambassade, était venu se plaindre au Président de la Répu- à
 blique et demander qu'officiellement aucune allusion ne
-fût faite aux conditions dans lesquelles la pièce avait été !
+fût faite aux conditions dans lesquelles la pièce avait été!
 prise, les faussaires ont pensé qu'ils pouvaient tout risquer.
 Ils pouvaient fabriquer une lettre de Guillaume, dire que
-c'était là le vrai bordereau saisi, et couvrir cette opération
+c'était le vrai bordereau saisi, et couvrir cette opération
 audacieuse en alléguant que le Président de la République
-avait dù désarmer M. de Munster par la substitution au
+avait désarmer M. de Munster par la substitution au
 bordereau authentique d'un décalque où les mots écrits
 par l'empereur ne paraissaient plus. Les scélérats ont compté
 sur le mystère diplomatique pour risquer cette légende
@@ -143,27 +143,27 @@ dire mystérieusement, comme un terrible secret d'État, que
 le bordereau soumis aux juges de 189%, et où l'on retrouvait
 l'écriture d'Esterhazy, n'était pas le vrai bordereau; qu'il y
 en avait un autre formidable, impossible à produire publi-
-quement, parce que Guillaume II lui-même l'avait annoté.
+quement, parce que Guillaume lui-même l'avait annoté.
 Ayant besoin de substituer au bordereau sur lequel éclatait l'écriture d''Esterhazy, un autre bordereau, il fallait bien,
-pourexpliquer qu'on n'eùt pu montrer à personne, même aux
-juges, ce bordereau occulte, créer une circonstance extraordinaire. De là vint naturellement aux faussaires l'idée de
-mêler Guillaume IT en personne au bordereau. Qui pourrait s'étonner, dès lors, qu'on eût remplacé par une pièce
+pourexpliquer qu'on n'eùt montrer à personne, même aux
+juges, ce bordereau occulte, créer une circonstance extraordinaire. De vint naturellement aux faussaires l'idée de
+mêler Guillaume en personne au bordereau. Qui pourrait s'étonner, dès lors, qu'on eût remplacé par une pièce
 
 qui püt être vue la pièce primitive, où l'empereur allemand
 était personnellement compromis? Le bordereau HenryRochefort a donc été probablement fabriqué dans le premier moment de désarroi qui suivit, à l'État-Major, les
-premières découvertes du colonel Picquart. Il a dù éclore
+premières découvertes du colonel Picquart. Il a éclore
 un moment où l'État-Major, affolé, ne croyait pas possible
 de nier que l'écriture du bordereau de 1894 fût d'Esterhazy,
 et où il fallait donc créer contre Dreyfus un autre bordereau.
 
 Mais l''État-Major ne tarda pas à renoncer à ce système
 de défense trop périlleux. D'abord, il lui parut décidément
-trop compromettant de mettre Guillaume II au premier
-plan de l'affaire ; car c'était le provoquer à livrer au gouvernement français les papiers que l''État-Major de Berlin
+trop compromettant de mettre Guillaume au premier
+plan de l'affaire; car c'était le provoquer à livrer au gouvernement français les papiers que l''État-Major de Berlin
 avait reçus d'Esterhazy. En outre, il était dangereux
 d'avouer, même tout bas, que le bordereau sur lequel,
 en 1894, on avait fait condamner Dreyfus, était un faux
-bordereau : cela pouvait percer, et cela seul entraînait la
+bordereau: cela pouvait percer, et cela seul entraînait la
 nullité du jugement et la revision.
 
 Enfin pourquoi perdre courage? Quoique l'écriture du
@@ -174,7 +174,7 @@ Belhomme et des Varinard. On renonça donc à faire usage,
 en première ligne, du bordereau annoté par Guillaume. On
 renonça à le verser ofliciellement au dossier secret, et on le
 remplaça, à l'intention des ministres à la Billot qui avaient
-besoin qu'on rassuràt leur « conscience », par un document
+besoin qu'on rassuràt leur « conscience par un document
 plus modeste, moins impérial: celui qui est connu maintenant dans l'histoire sous le nom de faux Henry. Et, si je ne
 me trompe, quand Henry a dit, quand ses défenseurs ont
 répété qu'il avait fabriqué son faux pour en faire le substitut d'une autre pièce qu'on ne pouvait montrer, ils ont
@@ -190,14 +190,14 @@ ses faux, ait pensé que les autres, y compris la lettre impé-
 riale et le bordereau annoté, seraient aussi percés à jour;
 la situation lui a paru désespérée, et il s'est suicidé, autant
 par la crainte des aveux qui lui restaient à faire que dans
-l'accablement des aveux qu'il avait déjà faits. \à
+l'accablement des aveux qu'il avait déjà faits.
 
 Mais les faussaires, quand ils renoncèrent à incorporer
 au dossier secret la lettre de Guillaume et le bordereau
 annoté de sa main, ne détruisirent point pour cela ces
 
 pièces extraordinaires. On ne savait ce qui allait advenir,
-k et on tenait en réserve, comme un suprême moyen de
+et on tenait en réserve, comme un suprême moyen de
 défense, les faux de première grandeur dont on hésitait
 à se servir tout d'abord. En attendant, on les colportait, on
 en colportait des photographies chez les personnes consi- à
@@ -211,17 +211,17 @@ Ainsi commence à affleurer cette pièce secrète, la plus
 extraordinaire, la plus inepte, la plus étourdissante de ce
 prodigieux roman de trahison, de sottise et de crime. C'est
 sur Rochefort qu'elle est sortie. C'était comme une humeur
-cachée qui circulait dans le sang : elle s'est épanouie en
+cachée qui circulait dans le sang: elle s'est épanouie en
 bouton sur le nez de Rochefort.
 
-Aussitôt, tous les patriotes effarés se sont empressés autour de l'innocent polémiste : « Cachez, lui ont-ils dit, ce (à
+Aussitôt, tous les patriotes effarés se sont empressés autour de l'innocent polémiste: « Cachez, lui ont-ils dit, ce
 méchant bobo qui ferait jaser. »
 Et c'est pourquoi, ni au procès Cuignet ni ailleurs, Roche-
 fort ne montrera le bout de son nez qu'il relevait l'autre
 jour d'un air de défi.
 
 Le capitaine Alfred Dreyfus avait écrit le mercredi 26 décembre au président du conseil une re-
-quête que nous lisons dans /a Petite République du
+quête que nous lisons dans Petite République du
 Monsieur le président du conseil,
 
 Je suis accusé, par certaine presse, d'avoir
@@ -243,11 +243,11 @@ confidences qui lui ont été portées, avec des faux
 impudents, par un émissaire de M. le général de
 
 Les photographies des fausses lettres de l'empereur d'Allemagne et du bordereau annoté ont été
-montrées à plusieurs reprises ; cette autre version
+montrées à plusieurs reprises; cette autre version
 pour beaucoup d'esprits abusés, l'inepte légende
 serait la vérité.
 
-Mon innocence est absolue ; cette innocence, j'en
+Mon innocence est absolue; cette innocence, j'en
 poursuivrai jusqu'à mon dernier souffle la reconnaissance juridique par la revision.
 Je ne suis pas plus l'auteur du bordereau annoté
 par l'empereur d'Allemagne, qui n'est qu'un faux,
@@ -266,12 +266,12 @@ utile de continuer à l'étudier pour en éclaircir les obscurités. Je vous sou
 paraîtra sans doute, comme à bien d'autres, lever de
 Il s'agit du faux Guillaume, c'est-à-dire d'un bordereau sur papier fort, avec une annotation autographe
 de l'empereur d'Allemagne, où cette canaille de Dreyfus
-est nommée. Rochefort l'a vu et a failli le montrer par
+est nommée. Rochefort l'a et a failli le montrer par
 patriotisme. C'est encore un fait constant que le géné-
 ral Mercier en possède l'original ou un fac-similé, qu'il
 en fait état auprès de ses amis et qu'il y ajoute la plus
 
-Or Jaurès, l'autre matin, dans son dernier article de
+Jaurès, l'autre matin, dans son dernier article de
 spéculation sur l'affaire, a émis cette hypothèse que le
 faux Guillaume avait été fabriqué au moment où le
 colonel Picquart découvrait Esterhazy, un peu avantle
@@ -288,58 +288,58 @@ sa fourberie dénoncée sans réplique possible par un de
 ses anciens collègues.
 
 Cette hypothèse écartée, il ne vous reste qu'une
-issue : c'est quele faux Guillaume est de 94, à l'origine
+issue: c'est quele faux Guillaume est de 94, à l'origine
 même de l'affaire dont il est la clé. Voyez, en effet,
 comment s'expliquent facilement dans cette hypothèse
 les faits et les hommes
 Cette pièce est introduite en 94, nous rechercherons
 
-sont dupes. — De là leur émoi bien connu. De là leur
+sont dupes. — De leur émoi bien connu. De leur
 terreur de l'ambassade d'Allemagne et la fameuse nuit
 historique, jusqu'ici mal expliquée. Ils craignaient, ont-
 ils dit, la colère de l'ambassadeur, menacé par la presse
-de voir son attaché militaire mis en cause ! En réalité,
+de voir son attaché militaire mis en cause! En réalité,
 dans cette mystérieuse insomnie, ils craignaïent la
-colère de l'empereur, qui allait se voir personnellement mis en cause. Îls y ont cru. De là le mot de
+colère de l'empereur, qui allait se voir personnellement mis en cause. Îls y ont cru. De le mot de
 M. Charles Dupuy, Nous avons peut-être été victimes
-d'une mystification qu'il a reconnu à la Cour de Cassation, mais qu'il n'a pas expliqué. De là le mot analogue
-de M. Hanotaux à M. Monod : Cela n'a peut-être été
-qu'un vaste roman. De là bien d'autres propos non
+d'une mystification qu'il a reconnu à la Cour de Cassation, mais qu'il n'a pas expliqué. De le mot analogue
+de M. Hanotaux à M. Monod: Cela n'a peut-être été
+qu'un vaste roman. De bien d'autres propos non
 moins authentiques et bien plus significatifs, dont je
 ne vous parle pas parce qu'ils n'ont pas été imprimés
 en des documents officiels.
 
-Ils y ont cru, ils ont eu peur. Mais le général Mercier,
+Ils y ont cru, ils ont peur. Mais le général Mercier,
 en présence de cette aventure inouïe d'un service impé-
 rial de trahison installé dans ses bureaux, n'a pas hé-
 sité à marcher. Il y a peut-être, dans son cas, du courage patriotique.
 
 Cependant Esterhazy a gardé un fac-similé de ce
-document, et c'est là la garde IMPÉRIALE (je souligne à dessein le mot). C'est là encore la pièce libératrice qu'il a apportée au ministère de la guerre aprèsla
+document, et c'est la garde IMPÉRIALE (je souligne à dessein le mot). C'est encore la pièce libératrice qu'il a apportée au ministère de la guerre aprèsla
 dénonciation de M. Mathieu Dreyfus. On a prétendu
 qu'il avait apporté la pièce ce canaille de D. Mais
-Jaurès lui-même n'a pu expliquer comment cette pièce,
+Jaurès lui-même n'a expliquer comment cette pièce,
 jusqu'ici enfermée dansles tiroirs du ministère, pouvait
 
 Ce faux apporté par Esterhazy intimide le général
 
 gravement soupçonné le général de Boisdeffre, c'est
-à cause de ce mot de M. Méline : Pour faire la revision, il faudrait mettre en cause un trop haut personnage. Vous voyez maintenant que ce mot s'applique
+à cause de ce mot de M. Méline: Pour faire la revision, il faudrait mettre en cause un trop haut personnage. Vous voyez maintenant que ce mot s'applique
 bien plus aisément à l'empereur. — M.Rambaud a également déclaré à des amis que de la mise en lumière de
-tous les documents sortirait la guerre !
+tous les documents sortirait la guerre!
 
 Je pourrais continuer ainsi longtemps, mais je pré-
 
-ÿ fère vous laisser continuer tout seul. Ce qui précède
+fère vous laisser continuer tout seul. Ce qui précède
 suflit à vous montrer combien de faits, jusqu'ici non
 expliqués, sont expliqués par cette hypothèse nécessaire.
 
-Reste la question : Comment ce faux a-t-il été introduit en 94. Cette question du scénario inventé par les
+Reste la question: Comment ce faux a-t-il été introduit en 94. Cette question du scénario inventé par les
 faussaires est d'ailleurs sans importance et ïil est
 évident que sur ce point nous en sommes réduits à la
-pure imagination. On peut imaginer ceci : Le bordereau
-sur papier pelure arrive au ministère. Il y a là un fait
-indéniable car il y a eu réellement trahison. On cherche
+pure imagination. On peut imaginer ceci: Le bordereau
+sur papier pelure arrive au ministère. Il y a un fait
+indéniable car il y a réellement trahison. On cherche
 dans les divers bureaux, l'écriture fait soupçonner
 Dreyfus. Mais Henry tremble de peur pour Esterhazy.
 Il lui faut fortifier ces soupçons. Il fabrique alors un
@@ -358,16 +358,16 @@ Le faux Guillaume est donc probablement le ressort
 de l'affaire et peut-être qu'en appuyant fortement dessus
 on ferait plus facilement jaillir la vérité. D'autant,
 remarquez-le, qu'il tend à prouver une certaine bonne
-foi, de la part de gens que nous avons crus seulement .
+foi, de la part de gens que nous avons crus seulement.
 
 Il n'est pas possible que ce faux ait produit tant de
 ravages, sans laisser de nombreuses traces même dans
 les cartons du ministère. Si le ministère, refusant de
 laisser bafouer la cour suprême par un tribunal négligeable, avait voulu relancer l'affaire, c'est de ce côté
-qu'il aurait probablement pu trouver des faits nouveaux.
+qu'il aurait probablement trouver des faits nouveaux.
 Sans procès humiliants et affligeants pour tout le
-monde, sans envoyer personne au bagne, il aurait probablement pu faire la lumière, qui est le seul bien que
-nous désirions. N'y a-t-il pas là de quoi déplorer davantage le malheur irréparable de cette amnistie qui livre
+monde, sans envoyer personne au bagne, il aurait probablement faire la lumière, qui est le seul bien que
+nous désirions. N'y a-t-il pas de quoi déplorer davantage le malheur irréparable de cette amnistie qui livre
 la grande masse de nos concitoyens au développement
 
 des passions réactionnaires et dont on peut se demander si elle n'aura pas pour l'éducation de la jeune
@@ -375,5 +375,3 @@ génération bourgeoise d'aussi funestes effets que la loi
 Falloux elle-même.
 
 Bien à vous.
-
----
