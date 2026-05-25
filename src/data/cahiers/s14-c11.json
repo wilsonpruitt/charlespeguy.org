@@ -8,19 +8,7 @@
   "pieces": [
     {
       "slug": "mes-cahiers-rouges",
-      "titleFr": "Mes cahiers rouges",
-      "author": "maxime-vuillaume",
-      "isAvertissement": false
-    },
-    {
-      "slug": "ix",
-      "titleFr": "IX",
-      "author": "maxime-vuillaume",
-      "isAvertissement": false
-    },
-    {
-      "slug": "lettres-et-temoignages",
-      "titleFr": "Lettres et témoignages",
+      "titleFr": "Mes cahiers rouges. IX — Lettres et témoignages",
       "author": "maxime-vuillaume",
       "isAvertissement": false
     }

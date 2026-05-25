@@ -1,14 +1,14 @@
-# Pieces audit — 278 (cahier, piece) entries
+# Pieces audit — 274 (cahier, piece) entries
 
 ## Flag counts
 
 - **COM_PLACEHOLDER**: 34
-- **COM_MISSING**: 20
-- **EMPTY_FR**: 19
+- **COM_MISSING**: 18
 - **LOW_PROSE_EN**: 17
-- **EMPTY_EN**: 15
-- **NO_FR**: 15
-- **NO_EN**: 12
+- **EMPTY_FR**: 17
+- **EMPTY_EN**: 13
+- **NO_FR**: 11
+- **NO_EN**: 10
 - **AUTHOR_MISMATCH**: 4
 - **LOW_PROSE_FR**: 2
 
@@ -36,9 +36,7 @@
 - s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris: The Milliets. X. The Commune and the Second Siege of Paris  *paul-milliet*
 - s13-c12--le-mystere-des-saints-innocents: Le mystère des saints Innocents  *charles-peguy*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
-- s14-c11--mes-cahiers-rouges: Mes cahiers rouges  *maxime-vuillaume*
-- s14-c11--ix: IX  *maxime-vuillaume*
-- s14-c11--lettres-et-temoignages: Lettres et témoignages  *maxime-vuillaume*
+- s14-c11--mes-cahiers-rouges: Mes cahiers rouges. IX — Lettres et témoignages  *maxime-vuillaume*
 - s15-c03--la-loi-militaire: La loi militaire  *joseph-reinach*
 - s15-c06--l-exode: L'Exode  *georges-delahache*
 - s15-c10--nous: Nous  *francois-porche*
@@ -94,8 +92,6 @@
 - s08-c15--les-sonnets-de-shakespeare: Les sonnets de Shakespeare  *marie-garnier*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
 - s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
-- s10-c11--au-large: Au large  *maxime-vuillaume*
-- s11-c09--dernier-cahier: Dernier cahier  *maxime-vuillaume*
 - s14-c04--la-chute: La chute  *julien-benda*
 
 ## EMPTY_FR
@@ -116,8 +112,6 @@
 - s08-c15--les-sonnets-de-shakespeare: Les sonnets de Shakespeare  *marie-garnier*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
 - s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
-- s10-c11--au-large: Au large  *maxime-vuillaume*
-- s11-c09--dernier-cahier: Dernier cahier  *maxime-vuillaume*
 - s14-c04--la-chute: La chute  *julien-benda*
 
 ## LOW_PROSE_EN
@@ -154,9 +148,7 @@
 - s12-c10--oeuvres-choisies-postface: Œuvres choisies (postface)  *charles-peguy*
 - s13-c12--le-mystere-des-saints-innocents: Le mystère des saints Innocents  *charles-peguy*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
-- s14-c11--mes-cahiers-rouges: Mes cahiers rouges  *maxime-vuillaume*
-- s14-c11--ix: IX  *maxime-vuillaume*
-- s14-c11--lettres-et-temoignages: Lettres et témoignages  *maxime-vuillaume*
+- s14-c11--mes-cahiers-rouges: Mes cahiers rouges. IX — Lettres et témoignages  *maxime-vuillaume*
 - s15-c03--la-loi-militaire: La loi militaire  *joseph-reinach*
 - s15-c10--nous: Nous  *francois-porche*
 
@@ -168,12 +160,8 @@
 - s12-c03--my-first-testament: My First Testament  *julien-benda*
 - s12-c10--adrien-de-tuce: Adrien de Tucé  *adrien-de-tuce*
 - s12-c10--cinq-ans-au-mexique: Cinq ans au Mexique  *adrien-de-tuce*
-- s12-c10--oeuvres-choisies-postface: Œuvres choisies (postface)  *charles-peguy*
 - s13-c02--a-new-theologian-m-fernand-laudet: A New Theologian, M. Fernand Laudet  *charles-peguy*
 - s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris: The Milliets. X. The Commune and the Second Siege of Paris  *paul-milliet*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
-- s14-c11--mes-cahiers-rouges: Mes cahiers rouges  *maxime-vuillaume*
-- s14-c11--ix: IX  *maxime-vuillaume*
-- s14-c11--lettres-et-temoignages: Lettres et témoignages  *maxime-vuillaume*
 - s15-c06--l-exode: L'Exode  *georges-delahache*
 - s15-c10--nous: Nous  *francois-porche*

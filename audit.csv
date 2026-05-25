@@ -210,7 +210,6 @@ s10-c09,jean-christophe-a-paris,Jean-Christophe à Paris,romain-rolland,78,0.76,
 s10-c09,dans-la-maison-1,Dans la maison. 1,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
 s10-c10,jean-christophe-a-paris,Jean-Christophe à Paris. II. Dans la maison. 2,romain-rolland,6433,0.92,7,0.70,
 s10-c11,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,557,0.94,33,0.94,
-s10-c11,au-large,Au large,maxime-vuillaume,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
 s10-c12,le-travail-de-zarathoustra,Le travail de Zarathoustra,daniel-halevy,1,0.20,2,0.67,LOW_PROSE_FR
 s10-c13,a-nos-amis-a-nos-abonnes,"A nos amis, à nos abonnés",charles-peguy,3445,0.90,3,0.75,
 s11-c01,visite-a-pascal,Visite à Pascal,andre-suares,1496,0.93,130,0.96,
@@ -222,7 +221,6 @@ s11-c06,le-mystere-de-la-charite-de-jeanne-d-arc,Le mystère de la charité de J
 s11-c07,jean-christophe,Jean-Christophe. III. La fin du voyage. I. Les amies. 1,romain-rolland,2902,0.94,476,0.83,
 s11-c08,jean-christophe,Jean-Christophe. III. La fin du voyage. I. Les amies. 2,romain-rolland,3027,0.95,354,0.81,
 s11-c09,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,3247,0.89,1,0.25,LOW_PROSE_EN
-s11-c09,dernier-cahier,Dernier cahier,maxime-vuillaume,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
 s11-c10,apologie-pour-notre-passe,Apologie pour notre passé,daniel-halevy,2480,0.92,218,0.86,
 s11-c11,la-maison-vers-le-lac,La maison vers le lac,joseph-melon,954,0.86,738,0.87,
 s11-c12,notre-jeunesse-les-milliet,Notre jeunesse. Les Milliet,charles-peguy,5910,0.94,380,0.97,AUTHOR_MISMATCH(charles-peguy→paul-milliet)
@@ -240,7 +238,7 @@ s12-c09,l-ordination,L'ordination,julien-benda,334,0.90,14,0.78,COM_PLACEHOLDER
 s12-c10,les-milliet,Les Milliet,paul-milliet,1761,0.90,0,,COM_MISSING|NO_EN
 s12-c10,adrien-de-tuce,Adrien de Tucé,adrien-de-tuce,0,,0,,COM_MISSING|NO_FR|NO_EN
 s12-c10,cinq-ans-au-mexique,Cinq ans au Mexique,adrien-de-tuce,0,,0,,COM_MISSING|NO_FR|NO_EN
-s12-c10,oeuvres-choisies-postface,Œuvres choisies (postface),charles-peguy,0,,0,,COM_MISSING|NO_FR|NO_EN
+s12-c10,oeuvres-choisies-postface,Œuvres choisies (postface),charles-peguy,528,0.85,0,,COM_MISSING|NO_EN
 s13-c01,voyage-d-etudes-en-italie,Voyage d'études en Italie,paul-milliet,2931,0.92,618,0.83,COM_PLACEHOLDER
 s13-c02,a-new-theologian-m-fernand-laudet,"A New Theologian, M. Fernand Laudet",charles-peguy,0,,770,0.95,COM_MISSING|NO_FR
 s13-c03,la-guerre-de-france,La guerre de France,ix,10,0.67,818,0.81,COM_PLACEHOLDER
@@ -264,9 +262,7 @@ s14-c07,depuis-1880-l-enseignement-primaire,"Depuis 1880, l'enseignement primair
 s14-c08,les-chants-de-l-ame-reveillee,Les chants de l'âme réveillée,rene-salome,0,,0,,COM_MISSING|NO_FR|NO_EN
 s14-c09,l-argent-suite,L'argent suite,charles-peguy,5703,0.93,30,0.75,
 s14-c10,la-tapisserie-de-notre-dame,La tapisserie de Notre Dame,charles-peguy,1051,0.83,489,0.87,
-s14-c11,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,0,,0,,COM_MISSING|NO_FR|NO_EN
-s14-c11,ix,IX,maxime-vuillaume,0,,0,,COM_MISSING|NO_FR|NO_EN
-s14-c11,lettres-et-temoignages,Lettres et témoignages,maxime-vuillaume,0,,0,,COM_MISSING|NO_FR|NO_EN
+s14-c11,mes-cahiers-rouges,Mes cahiers rouges. IX — Lettres et témoignages,maxime-vuillaume,747,0.54,0,,COM_MISSING|NO_EN
 s15-c01,ecoute-israel,Ecoute Israël,edmond-fleg,1533,0.80,1281,0.83,
 s15-c02,une-philosophie-pathetique,Une philosophie pathétique,julien-benda,2984,0.91,426,0.86,COM_PLACEHOLDER
 s15-c03,la-loi-militaire,La loi militaire,joseph-reinach,1574,0.98,0,,COM_MISSING|NO_EN
