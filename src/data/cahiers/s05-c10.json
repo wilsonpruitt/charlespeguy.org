@@ -8,13 +8,7 @@
   "pieces": [
     {
       "slug": "jean-christophe",
-      "titleFr": "Jean-Christophe",
-      "author": "romain-rolland",
-      "isAvertissement": false
-    },
-    {
-      "slug": "le-matin",
-      "titleFr": "Le matin",
+      "titleFr": "Jean-Christophe. II. Le matin",
       "author": "romain-rolland",
       "isAvertissement": false
     }

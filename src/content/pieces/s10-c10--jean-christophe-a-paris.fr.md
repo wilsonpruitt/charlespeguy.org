@@ -2,7 +2,7 @@
 cahier: s10-c10
 pieceSlug: jean-christophe-a-paris
 lang: fr
-title: Jean-Christophe à Paris
+title: Jean-Christophe à Paris. II. Dans la maison. 2
 author: romain-rolland
 isAvertissement: false
 wordCount: 76519

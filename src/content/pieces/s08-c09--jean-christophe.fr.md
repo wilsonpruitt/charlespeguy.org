@@ -2,7 +2,7 @@
 cahier: s08-c09
 pieceSlug: jean-christophe
 lang: fr
-title: Jean-Christophe
+title: Jean-Christophe. IV. La révolte. 3. La délivrance
 author: romain-rolland
 isAvertissement: false
 wordCount: 3795

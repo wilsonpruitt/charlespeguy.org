@@ -2,7 +2,7 @@
 cahier: s05-c10
 pieceSlug: jean-christophe
 lang: fr
-title: Jean-Christophe
+title: Jean-Christophe. II. Le matin
 author: romain-rolland
 isAvertissement: false
 wordCount: 44365

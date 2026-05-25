@@ -3,7 +3,7 @@ cahier: s12-c06
 pieceSlug: les-milliet-v-jours-heureux
 lang: en
 title: Les Milliet. V. Jours heureux
-author: charles-peguy
+author: paul-milliet
 isAvertissement: false
 wordCount: 2238
 ---

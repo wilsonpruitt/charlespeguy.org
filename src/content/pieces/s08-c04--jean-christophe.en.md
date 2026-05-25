@@ -2,7 +2,7 @@
 cahier: s08-c04
 pieceSlug: jean-christophe
 lang: en
-title: Jean-Christophe
+title: Jean-Christophe. IV. La révolte. 1. Sables mouvants
 author: romain-rolland
 isAvertissement: false
 wordCount: 655

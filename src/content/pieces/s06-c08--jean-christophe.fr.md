@@ -2,7 +2,7 @@
 cahier: s06-c08
 pieceSlug: jean-christophe
 lang: fr
-title: Jean-Christophe
+title: Jean-Christophe. III. L'adolescent
 author: romain-rolland
 isAvertissement: false
 wordCount: 58803

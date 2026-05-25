@@ -2,7 +2,7 @@
 cahier: s11-c07
 pieceSlug: jean-christophe
 lang: en
-title: Jean-Christophe
+title: Jean-Christophe. III. La fin du voyage. I. Les amies. 1
 author: romain-rolland
 isAvertissement: false
 wordCount: 31193

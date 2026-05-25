@@ -2,7 +2,7 @@
 cahier: s08-c06
 pieceSlug: jean-christophe
 lang: en
-title: Jean-Christophe
+title: Jean-Christophe. IV. La révolte. 2. L'enlisement
 author: romain-rolland
 isAvertissement: false
 wordCount: 70
