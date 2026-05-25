@@ -81,30 +81,41 @@ const validWorks = works.filter(Boolean);
     <section class="cahier-pieces">
       <h2 class="sr-only">Table of pieces</h2>
       <ol class="pieces-list">
-        {piecesWithAuthors.map(p => (
+        {piecesWithAuthors.map(p => {
+          // Chrome is EN — prefer English, fall back to French.
+          const primaryLang = p.langs.en ? 'en' : (p.langs.fr ? 'fr' : null);
+          const otherLang = primaryLang === 'en' && p.langs.fr ? 'fr' : (primaryLang === 'fr' && p.langs.en ? 'en' : null);
+          const primaryHref = primaryLang ? `/cahiers/${d.slug}/${p.slug}/${primaryLang}` : null;
+          const otherHref = otherLang ? `/cahiers/${d.slug}/${p.slug}/${otherLang}` : null;
+          const otherLabel = otherLang === 'fr' ? 'Also available in French' : 'Also available in French translation';
+          // Note: EN chrome chooses EN primary. If only FR exists, primary is FR + no "also" line.
+          return (
           <li class={`piece-row${p.isAvertissement ? ' is-ave' : ''}`}>
             <p class="piece-title">
               {p.isAvertissement && <span class="ave-tag">Avertissement</span>}
-              {p.titleFr}
+              {primaryHref ? (
+                <a href={primaryHref} class="piece-title-link">{p.titleFr}</a>
+              ) : (
+                <span>{p.titleFr}</span>
+              )}
             </p>
             <p class="piece-meta">
               <a href={`/authors/${p.authorSlug}`} class="piece-author">{p.authorName}</a>
               {p.pages && <span class="piece-pages"> · {p.pages}</span>}
-            </p>
-            <p class="piece-read">
-              {p.langs.fr && (
-                <a href={`/cahiers/${d.slug}/${p.slug}/fr`} class="piece-link">Read in French</a>
-              )}
-              {p.langs.fr && p.langs.en && <span class="piece-sep"> · </span>}
-              {p.langs.en && (
-                <a href={`/cahiers/${d.slug}/${p.slug}/en`} class="piece-link">Read in English</a>
-              )}
-              {!p.langs.fr && !p.langs.en && (
-                <span class="piece-pending"><em>Text not yet available.</em></span>
+              {primaryLang === 'fr' && p.langs.fr && !p.langs.en && (
+                <span class="piece-lang-note"> · <em>French only</em></span>
               )}
             </p>
+            {otherHref && (
+              <p class="piece-also">
+                <a href={otherHref}>{otherLang === 'fr' ? 'Also in French →' : 'Also in English →'}</a>
+              </p>
+            )}
+            {!primaryHref && (
+              <p class="piece-pending"><em>Text not yet available.</em></p>
+            )}
           </li>
-        ))}
+        );})}
       </ol>
     </section>
 
@@ -192,15 +203,23 @@ const validWorks = works.filter(Boolean);
     font-size: 0.8rem; margin-right: 0.5rem;
   }
 
-  .piece-title { font-size: 1.2rem; margin: 0; }
-  .piece-meta { margin: 0.2rem 0 0; font-size: 0.9rem; color: var(--ink-soft); }
+  .piece-title { font-size: 1.3rem; margin: 0; line-height: 1.3; }
+  .piece-title-link {
+    color: var(--ink);
+    border: none;
+    border-bottom: 1px solid transparent;
+    transition: color 0.15s, border-color 0.15s;
+  }
+  .piece-title-link:hover { color: var(--rouge); border-bottom-color: var(--rouge); }
+  .piece-meta { margin: 0.25rem 0 0; font-size: 0.92rem; color: var(--ink-soft); }
   .piece-author { color: var(--ink); border: none; }
   .piece-author:hover { color: var(--rouge); }
   .piece-pages { color: var(--ink-muted); }
-  .piece-read { margin: 0.4rem 0 0; font-size: 0.92rem; }
-  .piece-link { font-style: italic; }
-  .piece-sep { color: var(--ink-muted); }
-  .piece-pending { color: var(--ink-muted); font-size: 0.9rem; }
+  .piece-lang-note { color: var(--ink-muted); }
+  .piece-also { margin: 0.35rem 0 0; font-size: 0.85rem; }
+  .piece-also a { font-style: italic; color: var(--ink-muted); border: none; }
+  .piece-also a:hover { color: var(--rouge); }
+  .piece-pending { color: var(--ink-muted); font-size: 0.9rem; font-style: italic; margin: 0.4rem 0 0; }
 
   .colophon { margin-top: 3rem; }
   .colophon-head {

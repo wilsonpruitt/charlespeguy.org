@@ -71,24 +71,39 @@ const validWorks = works.filter(Boolean);
 
     <section class="cahier-pieces">
       <ol class="pieces-list">
-        {piecesWithAuthors.map(p => (
+        {piecesWithAuthors.map(p => {
+          // Chrome is FR — prefer French, fall back to English.
+          const primaryLang = p.langs.fr ? 'fr' : (p.langs.en ? 'en' : null);
+          const otherLang = primaryLang === 'fr' && p.langs.en ? 'en' : (primaryLang === 'en' && p.langs.fr ? 'fr' : null);
+          const primaryHref = primaryLang ? pieceUrl(d.slug, p.slug, primaryLang, true) : null;
+          const otherHref = otherLang ? pieceUrl(d.slug, p.slug, otherLang, true) : null;
+          return (
           <li class={`piece-row${p.isAvertissement ? ' is-ave' : ''}`}>
             <p class="piece-title">
               {p.isAvertissement && <span class="ave-tag">Avertissement</span>}
-              {p.titleFr}
+              {primaryHref ? (
+                <a href={primaryHref} class="piece-title-link">{p.titleFr}</a>
+              ) : (
+                <span>{p.titleFr}</span>
+              )}
             </p>
             <p class="piece-meta">
               <a href={authorUrl(p.authorSlug, true)} class="piece-author">{p.authorName}</a>
               {p.pages && <span class="piece-pages"> · {p.pages}</span>}
+              {primaryLang === 'en' && !p.langs.fr && (
+                <span class="piece-lang-note"> · <em>en anglais uniquement</em></span>
+              )}
             </p>
-            <p class="piece-read">
-              {p.langs.fr && (<a href={pieceUrl(d.slug, p.slug, 'fr', true)} class="piece-link">Lire en français</a>)}
-              {p.langs.fr && p.langs.en && <span class="piece-sep"> · </span>}
-              {p.langs.en && (<a href={pieceUrl(d.slug, p.slug, 'en', true)} class="piece-link">Lire en anglais</a>)}
-              {!p.langs.fr && !p.langs.en && (<span class="piece-pending"><em>Texte indisponible pour le moment.</em></span>)}
-            </p>
+            {otherHref && (
+              <p class="piece-also">
+                <a href={otherHref}>{otherLang === 'en' ? 'Lire aussi en anglais →' : 'Lire aussi en français →'}</a>
+              </p>
+            )}
+            {!primaryHref && (
+              <p class="piece-pending"><em>Texte indisponible pour le moment.</em></p>
+            )}
           </li>
-        ))}
+        );})}
       </ol>
     </section>
 
@@ -137,15 +152,22 @@ const validWorks = works.filter(Boolean);
   .piece-row:last-child { border-bottom: 0; }
   .piece-row.is-ave { background: var(--paper-deep); padding-left: 1rem; padding-right: 1rem; margin: 0 -1rem; border-radius: 2px; }
   .ave-tag { color: var(--rouge); font-style: italic; font-variant: small-caps; letter-spacing: 0.1em; font-size: 0.8rem; margin-right: 0.5rem; }
-  .piece-title { font-size: 1.2rem; margin: 0; }
-  .piece-meta { margin: 0.2rem 0 0; font-size: 0.9rem; color: var(--ink-soft); }
+  .piece-title { font-size: 1.3rem; margin: 0; line-height: 1.3; }
+  .piece-title-link {
+    color: var(--ink); border: none;
+    border-bottom: 1px solid transparent;
+    transition: color 0.15s, border-color 0.15s;
+  }
+  .piece-title-link:hover { color: var(--rouge); border-bottom-color: var(--rouge); }
+  .piece-meta { margin: 0.25rem 0 0; font-size: 0.92rem; color: var(--ink-soft); }
   .piece-author { color: var(--ink); border: none; }
   .piece-author:hover { color: var(--rouge); }
   .piece-pages { color: var(--ink-muted); }
-  .piece-read { margin: 0.4rem 0 0; font-size: 0.92rem; }
-  .piece-link { font-style: italic; }
-  .piece-sep { color: var(--ink-muted); }
-  .piece-pending { color: var(--ink-muted); font-size: 0.9rem; }
+  .piece-lang-note { color: var(--ink-muted); }
+  .piece-also { margin: 0.35rem 0 0; font-size: 0.85rem; }
+  .piece-also a { font-style: italic; color: var(--ink-muted); border: none; }
+  .piece-also a:hover { color: var(--rouge); }
+  .piece-pending { color: var(--ink-muted); font-size: 0.9rem; font-style: italic; margin: 0.4rem 0 0; }
   .colophon { margin-top: 3rem; }
   .colophon-head { text-align: center; font-size: 0.9rem; font-variant: small-caps; letter-spacing: 0.2em; color: var(--ink-muted); font-weight: 400; margin: 0 0 1rem; }
   .colophon-list { display: grid; grid-template-columns: 10rem 1fr; gap: 0.3rem 1.5rem; max-width: 32rem; margin: 0 auto; font-size: 0.92rem; }

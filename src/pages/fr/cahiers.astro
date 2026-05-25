@@ -12,47 +12,134 @@ try {
     return a.data.issue - b.data.issue;
   });
 } catch {}
+
+const seriesFirstId = new Map<number, string>();
+const seriesYear = new Map<number, string>();
+for (const c of cahiers) {
+  if (!seriesFirstId.has(c.data.series)) seriesFirstId.set(c.data.series, c.id);
+  if (c.data.bonATirer && !seriesYear.has(c.data.series)) seriesYear.set(c.data.series, c.data.bonATirer.slice(0, 4));
+}
+const seriesRomans = ['I','II','III','IV','V','VI','VII','VIII','IX','X','XI','XII','XIII','XIV','XV'];
 ---
 
 <Base title="Les cahiers — flot chronologique" lang="fr">
   <h1>Cahiers de la Quinzaine</h1>
   <p class="metadata">Les 229 cahiers dans l'ordre de publication, 1900–1914.</p>
 
-  {cahiers.length === 0 ? (
-    <div class="placeholder">
-      <p><em>Aucune donnée disponible pour le moment.</em></p>
-    </div>
-  ) : (
+  {cahiers.length > 0 && (
+    <nav class="series-jumps" aria-label="Aller à une série">
+      <p class="series-jumps-label">Aller à une série</p>
+      <ul class="series-jumps-list">
+        {seriesRomans.map((roman, i) => {
+          const seriesNum = i + 1;
+          const firstId = seriesFirstId.get(seriesNum);
+          const year = seriesYear.get(seriesNum);
+          return firstId ? (
+            <li>
+              <a href={`#series-${seriesNum}`}>
+                <span class="jump-roman">{roman}</span>
+                {year && <span class="jump-year">{year}</span>}
+              </a>
+            </li>
+          ) : null;
+        })}
+      </ul>
+    </nav>
+  )}
+
+  {cahiers.length === 0 && (
+    <div class="placeholder"><p><em>Aucune donnée disponible pour le moment.</em></p></div>
+  )}
+
+  {cahiers.length > 0 && (
     <ol class="river">
-      {cahiers.map(cahier => (
-        <li class="cahier-card">
-          <p class="cahier-label">
-            <span class="series-label">{cahier.data.label}</span>
-            {cahier.data.bonATirer && <span class="cahier-date"> · {cahier.data.bonATirer}</span>}
-          </p>
-          <p class="cahier-title">
-            <a href={cahierUrl(cahier.data.slug, true)}>
-              <em>{cahier.data.titleFr}</em>
-            </a>
-          </p>
-          <ul class="cahier-pieces">
-            {cahier.data.pieces.map(p => (
-              <li>
-                {p.isAvertissement && <span class="ave">Avertissement · </span>}
-                {p.titleFr}
-                {' '}<span class="cahier-author">({p.author.id})</span>
-              </li>
-            ))}
-          </ul>
-        </li>
-      ))}
+      {cahiers.map((cahier, i) => {
+        const prevSeries = i > 0 ? cahiers[i - 1].data.series : -1;
+        const isSeriesStart = cahier.data.series !== prevSeries;
+        return (
+        <>
+          {isSeriesStart && (
+            <li class="series-divider" id={`series-${cahier.data.series}`}>
+              <p class="series-divider-roman">{seriesRomans[cahier.data.series - 1]}<sup>e</sup> série</p>
+              {cahier.data.bonATirer && (<p class="series-divider-year">{cahier.data.bonATirer.slice(0, 4)}</p>)}
+            </li>
+          )}
+          <li class="cahier-card">
+            <p class="cahier-label">
+              <span class="series-label">{cahier.data.label}</span>
+              {cahier.data.bonATirer && <span class="cahier-date"> · {cahier.data.bonATirer}</span>}
+            </p>
+            <p class="cahier-title">
+              <a href={cahierUrl(cahier.data.slug, true)}>
+                <em>{cahier.data.titleFr}</em>
+              </a>
+            </p>
+            <ul class="cahier-pieces">
+              {cahier.data.pieces.map(p => (
+                <li>
+                  {p.isAvertissement && <span class="ave">Avertissement · </span>}
+                  {p.titleFr}
+                  {' '}<span class="cahier-author">({p.author.id})</span>
+                </li>
+              ))}
+            </ul>
+          </li>
+        </>
+        );
+      })}
     </ol>
   )}
 </Base>
 
 <style>
   .placeholder { margin: 3rem auto; padding: 2rem; max-width: var(--measure); background: var(--paper-deep); border-left: 3px solid var(--rouge); color: var(--ink-soft); text-align: center; }
+
+  .series-jumps {
+    margin: 2rem 0 2.5rem;
+    padding: 1rem;
+    border-top: 1px solid var(--rule);
+    border-bottom: 1px solid var(--rule);
+    position: sticky;
+    top: 0;
+    z-index: 10;
+    backdrop-filter: blur(8px);
+    -webkit-backdrop-filter: blur(8px);
+    background: rgba(236, 228, 210, 0.9);
+  }
+  .series-jumps-label {
+    text-align: center;
+    margin: 0 0 0.5rem;
+    font-variant: small-caps;
+    letter-spacing: 0.15em;
+    color: var(--ink-muted);
+    font-size: 0.78rem;
+    font-style: italic;
+  }
+  .series-jumps-list {
+    list-style: none; padding: 0; margin: 0;
+    display: flex; flex-wrap: wrap; justify-content: center; gap: 0.4rem 1rem;
+  }
+  .series-jumps-list a {
+    border: none; color: var(--ink);
+    padding: 0.15rem 0.4rem;
+    display: inline-flex; flex-direction: column; align-items: center; line-height: 1.1;
+  }
+  .series-jumps-list a:hover { color: var(--rouge); }
+  .jump-roman { color: var(--rouge); font-variant: small-caps; letter-spacing: 0.06em; font-weight: 500; font-size: 0.95rem; }
+  .jump-year { font-size: 0.7rem; color: var(--ink-muted); font-style: italic; }
+
   .river { list-style: none; padding: 0; margin: 2rem 0; }
+
+  .series-divider {
+    margin: 3rem 0 1.5rem; padding-top: 2rem;
+    border-top: 2px solid var(--rouge); text-align: center;
+    scroll-margin-top: 5rem;
+  }
+  .series-divider:first-child { margin-top: 0; padding-top: 0; border-top: none; }
+  .series-divider-roman { font-size: 1.4rem; margin: 0; font-variant: small-caps; letter-spacing: 0.1em; color: var(--rouge); }
+  .series-divider-roman sup { font-size: 0.6em; vertical-align: super; }
+  .series-divider-year { font-style: italic; color: var(--ink-muted); margin: 0.2rem 0 0; letter-spacing: 0.15em; font-size: 0.85rem; }
+
   .cahier-card { padding: 1.25rem 0; border-bottom: 1px solid var(--rule); }
   .cahier-label { margin: 0 0 0.25rem; font-size: 0.85rem; color: var(--ink-muted); font-variant: small-caps; letter-spacing: 0.08em; }
   .series-label { color: var(--rouge); font-weight: 500; }
