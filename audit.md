@@ -1,14 +1,13 @@
-# Pieces audit — 274 (cahier, piece) entries
+# Pieces audit — 271 (cahier, piece) entries
 
 ## Flag counts
 
 - **COM_PLACEHOLDER**: 34
-- **COM_MISSING**: 18
 - **LOW_PROSE_EN**: 17
-- **EMPTY_FR**: 17
-- **EMPTY_EN**: 13
-- **NO_FR**: 11
-- **NO_EN**: 10
+- **EMPTY_FR**: 16
+- **COM_MISSING**: 16
+- **EMPTY_EN**: 12
+- **NO_EN**: 8
 - **AUTHOR_MISMATCH**: 4
 - **LOW_PROSE_FR**: 2
 
@@ -22,18 +21,16 @@
 
 ## COM_MISSING
 
-- s09-c03--the-socialist-party-and-the-trade-unions: The Socialist Party and the Trade Unions  *etienne-buisson*
+- s09-c03--the-socialist-party-and-the-trade-unions: Le parti socialiste et les syndicats  *etienne-buisson*
 - s09-c14--jean-christophe-in-paris-i-the-fair-on-the-square-2: Jean-Christophe in Paris. I. The Fair on the Square. 2  *romain-rolland*
 - s11-c06--le-mystere-de-la-charite-de-jeanne-d-arc: Le mystère de la charité de Jeanne d'Arc  *charles-peguy*
-- s11-c13--the-milliets-i-up-to-the-threshold-of-exile: The Milliets. I. Up to the Threshold of Exile  *paul-milliet*
-- s11-c14--the-milliets-ii-farewells: The Milliets. II. Farewells  *paul-milliet*
-- s12-c03--my-first-testament: My First Testament  *julien-benda*
-- s12-c10--les-milliet: Les Milliet  *paul-milliet*
-- s12-c10--adrien-de-tuce: Adrien de Tucé  *adrien-de-tuce*
-- s12-c10--cinq-ans-au-mexique: Cinq ans au Mexique  *adrien-de-tuce*
+- s11-c13--the-milliets-i-up-to-the-threshold-of-exile: Les Milliet. I — Jusqu'au seuil de l'exil  *paul-milliet*
+- s11-c14--the-milliets-ii-farewells: Les Milliet. II — Adieux  *paul-milliet*
+- s12-c03--my-first-testament: Mon premier testament  *julien-benda*
+- s12-c10--les-milliet: Les Milliet (VII — Adrien de Tucé, Cinq ans au Mexique)  *paul-milliet*
 - s12-c10--oeuvres-choisies-postface: Œuvres choisies (postface)  *charles-peguy*
-- s13-c02--a-new-theologian-m-fernand-laudet: A New Theologian, M. Fernand Laudet  *charles-peguy*
-- s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris: The Milliets. X. The Commune and the Second Siege of Paris  *paul-milliet*
+- s13-c02--a-new-theologian-m-fernand-laudet: Un nouveau théologien, M. Fernand Laudet  *charles-peguy*
+- s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris: Les Milliet. X — La Commune et le second siège de Paris  *paul-milliet*
 - s13-c12--le-mystere-des-saints-innocents: Le mystère des saints Innocents  *charles-peguy*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
 - s14-c11--mes-cahiers-rouges: Mes cahiers rouges. IX — Lettres et témoignages  *maxime-vuillaume*
@@ -92,7 +89,6 @@
 - s08-c15--les-sonnets-de-shakespeare: Les sonnets de Shakespeare  *marie-garnier*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
 - s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
-- s14-c04--la-chute: La chute  *julien-benda*
 
 ## EMPTY_FR
 
@@ -112,7 +108,6 @@
 - s08-c15--les-sonnets-de-shakespeare: Les sonnets de Shakespeare  *marie-garnier*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
 - s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
-- s14-c04--la-chute: La chute  *julien-benda*
 
 ## LOW_PROSE_EN
 
@@ -142,26 +137,10 @@
 ## NO_EN
 
 - s11-c06--le-mystere-de-la-charite-de-jeanne-d-arc: Le mystère de la charité de Jeanne d'Arc  *charles-peguy*
-- s12-c10--les-milliet: Les Milliet  *paul-milliet*
-- s12-c10--adrien-de-tuce: Adrien de Tucé  *adrien-de-tuce*
-- s12-c10--cinq-ans-au-mexique: Cinq ans au Mexique  *adrien-de-tuce*
+- s12-c10--les-milliet: Les Milliet (VII — Adrien de Tucé, Cinq ans au Mexique)  *paul-milliet*
 - s12-c10--oeuvres-choisies-postface: Œuvres choisies (postface)  *charles-peguy*
 - s13-c12--le-mystere-des-saints-innocents: Le mystère des saints Innocents  *charles-peguy*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
 - s14-c11--mes-cahiers-rouges: Mes cahiers rouges. IX — Lettres et témoignages  *maxime-vuillaume*
 - s15-c03--la-loi-militaire: La loi militaire  *joseph-reinach*
-- s15-c10--nous: Nous  *francois-porche*
-
-## NO_FR
-
-- s09-c03--the-socialist-party-and-the-trade-unions: The Socialist Party and the Trade Unions  *etienne-buisson*
-- s11-c13--the-milliets-i-up-to-the-threshold-of-exile: The Milliets. I. Up to the Threshold of Exile  *paul-milliet*
-- s11-c14--the-milliets-ii-farewells: The Milliets. II. Farewells  *paul-milliet*
-- s12-c03--my-first-testament: My First Testament  *julien-benda*
-- s12-c10--adrien-de-tuce: Adrien de Tucé  *adrien-de-tuce*
-- s12-c10--cinq-ans-au-mexique: Cinq ans au Mexique  *adrien-de-tuce*
-- s13-c02--a-new-theologian-m-fernand-laudet: A New Theologian, M. Fernand Laudet  *charles-peguy*
-- s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris: The Milliets. X. The Commune and the Second Siege of Paris  *paul-milliet*
-- s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
-- s15-c06--l-exode: L'Exode  *georges-delahache*
 - s15-c10--nous: Nous  *francois-porche*

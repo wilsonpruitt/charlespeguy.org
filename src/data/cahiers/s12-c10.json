@@ -8,20 +8,8 @@
   "pieces": [
     {
       "slug": "les-milliet",
-      "titleFr": "Les Milliet",
+      "titleFr": "Les Milliet (VII — Adrien de Tucé, Cinq ans au Mexique)",
       "author": "paul-milliet",
-      "isAvertissement": false
-    },
-    {
-      "slug": "adrien-de-tuce",
-      "titleFr": "Adrien de Tucé",
-      "author": "adrien-de-tuce",
-      "isAvertissement": false
-    },
-    {
-      "slug": "cinq-ans-au-mexique",
-      "titleFr": "Cinq ans au Mexique",
-      "author": "adrien-de-tuce",
       "isAvertissement": false
     },
     {
